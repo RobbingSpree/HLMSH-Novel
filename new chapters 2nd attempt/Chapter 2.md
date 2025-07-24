@@ -40,4 +40,6 @@ Felicity didn't answer, she was enjoying listing to the delightful rasp of this 
 
 "Hey Trouble, you with me?" The lady snapped her fingers and lent down a little to get on her level. Felicity realized she was staring and also not listening to what was being said. She broke eye contact and looked down to find her feet, she could see the hint of how black walking around in the rain had painted the soles of her feet.
 
-"Sorry, I don't mean to be a bother..." She mumbled, scrambling to remember anything that had just been said.
+"Sorry, I don't mean to be a bother..." She mumbled, scrambling to remember anything that had just been said and focus back on the present.
+
+Her efforts were thwarted when the taller lady gripped her chin and bid her to meet her gaze once more. As Felicity yeilded to her silent demand, the other lady returned to their full height and began inspecting her face.
