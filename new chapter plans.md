@@ -7,3 +7,5 @@ chapter cut once Brun has set fel down and called her boss
 
 # Chapter 2
 start on fel waking up
+half describe room she expects to wake up in
+fel duplicate of existing ticket
