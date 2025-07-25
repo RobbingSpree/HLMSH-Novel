@@ -44,4 +44,26 @@ Felicity didn't answer, she was enjoying listing to the delightful rasp of this 
 
 Her efforts were thwarted when the taller lady gripped her chin and bid her to meet her gaze once more. As Felicity yeilded to her silent demand, the other lady returned to their full height and began inspecting her face. With nowhere to look but at her captor, Felicity felt her face flush warm.
 
-"You're not in trouble, Trouble. And you're not in danger here." Her inspector said she she continued investigating her face as though counting all her bruises. "We can keep you safe here, we've got a shelter program. We keep a few rooms open for when there's people who... aren't safe at home." The inspection move on to her arms which she snatched back.
+"You're not in trouble, Trouble. And you're not in danger here." Her inspector said she she continued investigating her face as though counting all her bruises. "We can keep you safe here, we've got a shelter program at this hotel. We keep a few rooms open for when there's people who... look like they've had a fight with a flight of stairs." The inspection move on to her arms which she snatched back and tried to cover, but since she was wearing a sleeveless shirt not much was achieved.
+
+Felicity took a step back, feeling boxed in in the small room. The tall lady stood between her and the door, and while it didn't seem like she was trying to block the way, it would be hard to get around her in a room this small without her having a good chance to grab or stop Felicity.
+
+"Do you want some food? You look like you need some food." The lady continued undeterred. "I'm gonna sort a room out for you and bring you something to eat. Warm food will help, just wait here for a moment." Her final words being emphasized with her pointing to the chair in the corner.
+
+The door closed again, and Felicity was left alone with her thoughts.
+
+She felt conflicted. 
+
+Was she actually safe?
+
+Was this some kind of elaborate rouse?
+
+Was that lady's hair heavy?
+
+Did her wallet go through a wash cycle?
+
+What kind of Hotel had rooms that looked this scammy?
+
+Not confident to test of the door opened from this side, Felicity sat in the chair as directed. Her head in her hands. And did her best not to panic.
+
+***
