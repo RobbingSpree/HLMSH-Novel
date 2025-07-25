@@ -44,4 +44,4 @@ Felicity didn't answer, she was enjoying listing to the delightful rasp of this 
 
 Her efforts were thwarted when the taller lady gripped her chin and bid her to meet her gaze once more. As Felicity yeilded to her silent demand, the other lady returned to their full height and began inspecting her face. With nowhere to look but at her captor, Felicity felt her face flush warm.
 
-"You're not in trouble, Trouble." Her inspector said she she continued investigating her face as though counting all her bruises. "We can keep you safe here, we've got a shelter program. We keep an open few
+"You're not in trouble, Trouble. And you're not in danger here." Her inspector said she she continued investigating her face as though counting all her bruises. "We can keep you safe here, we've got a shelter program. We keep an open few
