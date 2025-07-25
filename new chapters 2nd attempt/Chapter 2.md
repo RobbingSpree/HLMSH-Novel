@@ -67,3 +67,15 @@ What kind of Hotel had rooms that looked this scammy?
 Not confident to test of the door opened from this side, Felicity sat in the chair as directed. Her head in her hands. And did her best not to panic.
 
 ***
+
+Her thoughts spun like cogs in a machine. She found herself plotting the most efficient route to do everything she'd just volunteered to do.
+
+Since the shortest route used the staff room behind the reception to reach the kitchen, the reception was her first destination. Closing the door to the nap room behind her and looking around to see if there were any guests in the corridor.
+
+Brun broke character from her work persona and started to walk at full speed. She had been told some time ago that guests had found her striding purposefully around the building to be intimidating. So she had taken up the habit of walking as silently and unnoticeable as possible, taking tips from her coworker Dee who had such an eclectic collection of skills and talents.
+
+Having actually met Trouble now, she was confident they were someone who needed help and she was someone who could give it. Brun stopped in her tracks and snapped her fingers.
+
+"Did I forgot to ask what her name was? Did I forget after asking?" Brun asked no one in particular. "Well...now I know what pseudonym to book her room under." And took off again towards the reception.
+
+Moment's later she arrived at the reception, and dialed Manager Beth's
