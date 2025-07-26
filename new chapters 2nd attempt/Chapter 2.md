@@ -1,6 +1,6 @@
-Her sleep was deep and dreamless. She almost didn't notice she had woken up as there was almost no ambient noise.
+Her sleep was deep and dreamless. She almost didn't notice that she had woken up as there was almost no ambient noise.
 
-Felicity lurched into a seated position, reaching for her bedside table to brace against, a pounding headache and general body ache assailing her as her all at once to let her know that moving was a bad idea. Leaning on the bedside table was also a bad idea because it wasn't there, this wasn't her bedroom.
+Felicity lurched into a seated position, reaching for her bedside table to brace against, a pounding headache and general body ache assailing her as her all at once to let her know that moving was a bad idea. Leaning on the bedside table was also a bad idea because it wasn't there, and this wasn't her bedroom.
 
 She cursed as she fell to the ground on thin carpet. Carpet she'd never seen before. 
 
@@ -32,9 +32,9 @@ Felicity heard the door she had yet to investigate open, and quick as a flash he
 
 "Morning Trouble, I'm glad to see you up on your feet after last night. Let me get a look at you." A voice she didn't know spoke behind her. Felicity checked to see if the mirror showed who had come in, but it pointed the wrong way. Before she think further, rough, work-worn hands gripped her shoulders and bid her to turn around and she prepared to defend herself.
 
-Turned around, Felicity found herself staring at the clavicle and neck of a dark skinned woman. Looking up, she found herself staring harder at the face of that woman. A warm smile, kind eyes, and a single braid that had escaped the bun of them atop her head. The stark difference between the warm brown of her skin and the deep black of her hair held her in rapt attention.
+Once turned around, Felicity found herself staring at the clavicle and neck of a dark skinned woman. Looking up, she found herself staring harder at the face of that woman. A warm smile, kind eyes, and a single braid that had escaped the bun of them atop her head. The stark difference between the warm brown of her skin and the deep black of her hair held her in rapt attention.
 
-"I'm so glad you're up on your feet and I don't need to take you to the hospital." The lady's calm voice broke the spell her face had cast on her. "I was really worried with how cold you got last night. You got a name Trouble? I can't keep calling you that forever." 
+"I'm so glad you're up on your feet and I don't need to take you to the hospital." The lady's calm voice broke the spell their face had cast on her. "I was really worried with how cold you got last night. You got a name Trouble? I can't keep calling you that forever." 
 
 Felicity didn't answer, she was enjoying listing to the delightful rasp of this woman's voice and wondering if she had her ID in her wallet and if her wallet had gone through the wash with her clothes.
 
@@ -44,9 +44,9 @@ Felicity didn't answer, she was enjoying listing to the delightful rasp of this 
 
 Her efforts were thwarted when the taller lady gripped her chin and bid her to meet her gaze once more. As Felicity yeilded to her silent demand, the other lady returned to their full height and began inspecting her face. With nowhere to look but at her captor, Felicity felt her face flush warm.
 
-"You're not in trouble, Trouble. And you're not in danger here." Her inspector said she she continued investigating her face as though counting all her bruises. "We can keep you safe here, we've got a shelter program at this hotel. We keep a few rooms open for when there's people who... look like they've had a fight with a flight of stairs." The inspection move on to her arms which she snatched back and tried to cover, but since she was wearing a sleeveless shirt not much was achieved.
+"You're not in trouble, Trouble. And you're not in danger here." Her inspector said she she continued investigating her face as though counting all her bruises. "We can keep you safe here, we've got a shelter program at this hotel. We keep a few rooms open for when there's people who... look like they've had a fight with a flight of stairs." The inspection moved on to her arms which she snatched back and tried to cover, but since she was wearing a sleeveless shirt not much was achieved besides Felicity feeling the hairs on her arms stand on end.
 
-Felicity took a step back, feeling boxed in in the small room. The tall lady stood between her and the door, and while it didn't seem like she was trying to block the way, it would be hard to get around her in a room this small without her having a good chance to grab or stop Felicity.
+Felicity took a step back, feeling boxed in in the small room. The tall lady stood between her and the door, and while it didn't seem like she was trying to block the way, it would be hard to get around her in a room this small without them having a good chance to grab or stop Felicity.
 
 "Do you want some food? You look like you need some food." The lady continued undeterred. "I'm gonna sort a room out for you and bring you something to eat. Warm food will help, just wait here for a moment." Her final words being emphasized with her pointing to the chair in the corner.
 
@@ -62,9 +62,9 @@ Was that lady's hair heavy?
 
 Did her wallet go through a wash cycle?
 
-What kind of Hotel had rooms that looked this scammy?
+What kind of Hotel had rooms that looked this scammy and prison like?
 
-Not confident to test of the door opened from this side, Felicity sat in the chair as directed. Her head in her hands. And did her best not to panic.
+Not confident to test if the door opened from this side, Felicity sat in the chair as directed. Her head in her hands. And did her best not to panic.
 
 ***
 
@@ -72,10 +72,12 @@ Her thoughts spun like cogs in a machine. She found herself plotting the most ef
 
 Since the shortest route used the staff room behind the reception to reach the kitchen, the reception was her first destination. Closing the door to the nap room behind her and looking around to see if there were any guests in the corridor.
 
-Brun broke character from her work persona and started to walk at full speed. She had been told some time ago that guests had found her striding purposefully around the building to be intimidating. So she had taken up the habit of walking as silently and unnoticeable as possible, taking tips from her coworker Dee who had such an eclectic collection of skills and talents.
+Brun broke character from her work persona and started to walk at full speed. She had been told some time ago that guests had found her striding purposefully around the building to be intimidating. So she had taken up the habit of walking as silently and unnoticeable as possible, taking tips from her coworker Dee, who had such an eclectic collection of skills and talents it wasn't a surprise they knew how to act like a ninja.
 
 Having actually met Trouble now, she was confident they were someone who needed help and she was someone who could give it. Brun stopped in her tracks and snapped her fingers.
 
 "Did I forgot to ask what her name was? Did I forget after asking?" Brun asked no one in particular. "Well...now I know what pseudonym to book her room under." And took off again towards the reception.
 
-Moment's later she arrived at the reception, and dialed Manager Beth's
+Moment's later she arrived at the reception, and dialed Manager Beth's after hours number, reading it from the well worn note stuck to the staff side of the reception desk. And to her credit, despite it being 5am, she picked up after three rings.
+
+"Do I want to know what's wrong?" Beth's voice asked through the phone.
