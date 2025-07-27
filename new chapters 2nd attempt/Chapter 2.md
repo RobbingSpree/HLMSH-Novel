@@ -100,6 +100,13 @@ Moment's later she arrived at the reception, and dialed Manager Beth's after hou
 
 "Trouble." Brun said, feeling less sure of her decision than she had been moments earlier.
 
-"No, Love. Don't call her that to her face. That's going to be funny when we 'look for Trouble' later, but she's probably having a real time of it." Beth's serious voice hadn't survived the joke and she had immediately fallen back into her casual chatting voice customers never got to hear.
+"No, Love. Don't call her that to her face. That's going to be funny when we 'look for Trouble' in the system later, but she's probably having a real time of it." Beth's serious voice hadn't survived the joke and she had immediately fallen back into her casual chatting voice customers never got to hear.
 
-"No promises.
+"No promises." Brun said with a smile as she noted the room number the computer spat out for Trouble's room and grabbed the corresponding key.
+
+"OK, I'll send a mass text to everyone so they know to play dumb if anyone comes by asking vague questions. Is it still raining? Gah, listen to it come down out there. I don't envy Trouble for having to travel out in this weather." Beth sounded like she was getting back into bed on the other end of the line. "Maybe I won't come by the office after all. OK, you're in charge Brunhilde, talk later." And Beth ended the call.
+
+Brun put the phone back on the receiver, and strode into the back room paths that lead to the kitchen to cook.
+
+Minutes later, with a hastily assembled plate of fried foods, plus a single ripe avocado that kept trying to roll off the plate, Brun approached the nap room door and hoped Trouble was still waiting for her beyond it.
+

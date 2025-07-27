@@ -47,7 +47,7 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "chapters as imported/Chapter 1.md",
+                "file": "new chapters 2nd attempt/Chapter 1.md",
                 "mode": "source",
                 "source": false
               },
@@ -203,18 +203,19 @@
       "command-palette:Open command palette": false
     }
   },
-  "active": "db7010dc8961567f",
+  "active": "15ead0cdc86edb74",
   "lastOpenFiles": [
-    "chapters as imported/Chapter 1.md",
     "new chapters 2nd attempt/Chapter 2.md",
-    "chapters as imported/Chapter 0.md",
+    "new chapters 2nd attempt/Chapter 1.md",
+    "chapters as imported/Chapter 1.md",
+    "Read request post.md",
     "new chapter plans.md",
+    "chapters as imported/Chapter 0.md",
     "chapters as imported/Chapter 2.md",
     "chapter synopsis according to import copy.md",
     "obsidian templates/chapter summary.md",
     "obsidian templates",
     "New folder",
-    "new chapters 2nd attempt/Chapter 1.md",
     "character details/Felicity Harbor.md",
     "character details/Side characters.md",
     "character details/Debug Nolastnam.md",

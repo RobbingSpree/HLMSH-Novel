@@ -3,8 +3,6 @@ created: 2025-07-25T17:27:40+10:00
 modified: 2025-07-25T23:29:03+10:00
 ---
 
-# Read request post
-
 ⋆☕️ ˖ ┄───╮
 Genre- Romance, Psychological (light)
 Word count- 2500
