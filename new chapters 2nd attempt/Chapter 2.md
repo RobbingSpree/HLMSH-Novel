@@ -48,7 +48,11 @@ Her efforts were thwarted when the taller lady gripped her chin and bid her to m
 
 Felicity took a step back, feeling boxed in in the small room. The tall lady stood between her and the door, and while it didn't seem like she was trying to block the way, it would be hard to get around her in a room this small without them having a good chance to grab or stop Felicity.
 
-"Do you want some food? You look like you need some food." The lady continued undeterred. "I'm gonna sort a room out for you and bring you something to eat. Warm food will help, just wait here for a moment." Her final words being emphasized with her pointing to the chair in the corner.
+"Do you want some food? You look like you need some food." The lady continued undeterred. 
+
+"I'm fine." Felicity lied.
+
+"I'm gonna sort a room out for you and bring you something to eat. Warm food will help, just wait here for a moment." Her final words being emphasized with her pointing to the chair in the corner.
 
 The door closed again, and Felicity was left alone with her thoughts.
 
@@ -81,3 +85,21 @@ Having actually met Trouble now, she was confident they were someone who needed 
 Moment's later she arrived at the reception, and dialed Manager Beth's after hours number, reading it from the well worn note stuck to the staff side of the reception desk. And to her credit, despite it being 5am, she picked up after three rings.
 
 "Do I want to know what's wrong?" Beth's voice asked through the phone.
+
+"Nothing's wrong. Just had an expected arrival." Brun started typing in the reception computer to start the check in process.
+
+"Who arrives at...gah 5am, that's a terrible time to turn up, and in this weather too." Brun could hear beth fighting her bedding while looking for her glasses, smiling with the newfound knowledge she misplaced them at home as much as at work.
+
+"They actually arrived last night. They're a sanctuary case, that's why I called."
+
+"Ohh, they seem sane and in need?" Beth asked, the sounds of her struggling on the other end stopped.
+
+"Covered in defensive looking bruises, they looked like they were planning to escape when I spoke to them just now, doesn't look like they've ever eaten a full meal. Yeah, I think they're in need."
+
+"What name are we checking them in under?" Beth had switched fully to her serious voice now.
+
+"Trouble." Brun said, feeling less sure of her decision than she had been moments earlier.
+
+"No, Love. Don't call her that to her face. That's going to be funny when we 'look for Trouble' later, but she's probably having a real time of it." Beth's serious voice hadn't survived the joke and she had immediately fallen back into her casual chatting voice customers never got to hear.
+
+"No promises.
