@@ -50,46 +50,46 @@ This evening's storm had been a complete surprise to Brun. What little sky she c
 
 An hour ago, when her coworker had left after their shift, they'd come straight back inside cursing the world and announcing their intent to steal some of the bottled water they kept in the supply closet. Brun had simply thought they'd been theatrical and exaggerated for fun, but this storm told another story.
 
-The wind howled, and rain lashed the ground right up to the front door of the hotel. It came in sheets, wave after wave of rain, only visible when it struck the ground, sweeping across the carpark. Sometimes the wind would abruptly shift and the waves would break and scatter in various directions. It was mesmerizing to watch.
+In the present the wind howled, and rain lashed the ground right up to the front door of the hotel. It came in sheets, wave after wave of rain, only visible when it struck the ground, sweeping across the carpark. Sometimes the wind would abruptly shift and the waves would break and scatter in various directions. It was mesmerizing to watch.
 
-So far, two groups of rain soaked guests and a tumbling bucket had deigned to come in, bringing an entourage of puddles and work for Brun. As such, she now stood vigil waiting for the next person or debris unfortunate enough to come into her reception and force her to do her job.
+So far, two groups of rain soaked guests and a tumbling bucket had deigned to come in, bringing an entourage of puddles and extra work for Brun. As such, she now stood vigil waiting for the next person or debris unfortunate enough to come in and force her to do her job.
 
 Brun enjoyed the evening shifts, normally quiet and people free. She could roam the many halls and get all her tasks done without having people to complicate matters. The few times she would see people, it would be in the reception or the dining room when she came by to help tidy up with the wait staff. The real benefit of the night shift was that all the critters that lived in and around the building would venture out where Brun could see them.
 
-She had a real weakness for injured or maligned animals. Their delicate tiny bodies that she could fit into her lap and impossible their fluffiness. She'd considered asking her coworker if she could fluff their hair since they'd got an undercut, but with her own long braids that everyone knew weren't to be touched freely, she felt a bit trapped and simply didn't mention it.
+She had a real weakness for injured or maligned animals. Their delicate tiny bodies that she could fit into her lap and experience their fluffiness. She'd considered asking her coworker if she could fluff their hair since they'd got an undercut and it looked especially soft, but with her own long braids that everyone knew weren't to be touched freely, she felt a bit trapped and simply didn't mention it.
 
 Movement outside caught Brun's attention. At the edge of the carpark she could see something moving. She would cry if it was some sad, wet animal that had been caught out in the storm.
 
-Instead, as the figure grew closer and the lights in the carpark finally showed their full height, Brun had to admit it was human.  She was unsure what to do about them, they had no bags and appeared to not be wearing much clothes, making it unclear if they were a guest.
+Instead, as the figure grew closer and the lights in the carpark finally showed their full height, Brun had to admit it was a human.  She was unsure what to do about them, they had no bags and appeared to not be wearing much clothes, making it unclear if they were a guest.
 
 Brun walked back behind the reception desk to check for any expected arrivals left for tonight and found nothing. She watched them trudge closer and closer, swaying dangerously as the wind buffeted them. As they got closer still, she was able to make out tattoos on their arms and face. Were they just a person who lived nearby and had gotten locked out? The neighborhood near the hotel was mostly upper class houses, and when she had a day shift the cafes nearby were filled with artistic looking people.
 
-As the person got into the light from the entrance Brun felt her blood ran cold. What she had mistaken for tattoos were an extensive series of bruises. She could see their teeth chattering in the cold, with one arm wrapped around their body for warmth and the other pushing against the wind to stay upright. She crouched to grab a towel from behind the desk, and as she stood up and the person got within spitting distance of the door, the wind turned violently once more - with a sickening slap they were knocked to the ground.
+As the person got close enough for lights from the entrance to show them in detail Brun felt her blood ran cold. What she had mistaken for tattoos were an extensive series of bruises. She could see their teeth chattering in the cold, with one arm wrapped around their body for warmth and the other pushing against the wind to stay upright. She crouched to grab a towel from behind the desk. As she stood up to see the person get within spitting distance of the door, the wind turned violently once more they were pushed over and with a sickening, wet slap they were knocked to the ground.
 
 The automatic door somehow didn't see them and stayed shut. Previous conversations about the automatic door seeing in infrared climbed out of her memories.
 
-"Of course, it can't see them, they're too cold!" Brun rushed forward only for the door to also not open for her too. "Ahh no, it's cause it's so bloody late!!" She punched the door release button she'd forgotten existed, the door slowly opened and the wind fought to open it faster.
+"Of course, it can't see them, they're too cold!" Brun rushed forward only to almost run into the closed door as it also did not open for her. "Ahh no, it's cause it's so bloody late!!" She punched the door release button everyone forgot existed, the door opened slowly and the wind fought to open it faster.
 
-Brun knelt down to get a closer look. The person lay on the ground, moving only as the wind tried to push them back out into the parking lot. The puddle they'd landed in didn't reach their mouth, so they didn't need to be saved from drowning. Brun rolled them over and hefted them into her arms princess style before carrying them back inside so the door could close.
+Brun knelt down to get a closer look. The person lay on the tiled ground, moving only as the wind tried to push them back out into the parking lot. The puddle they'd landed in didn't reach their mouth, so they didn't need to immediately be saved from drowning. The rain continued to lash their skin as they lay at the edge of where it reached. Brun swiftly rolled them over and hefted them into her arms princess style before carrying them back inside to actually get them out of the rain.
 
-They felt like ice in her arms. The puddle they were wearing instantly soaked through Brun's shirt, pale skin casting their bruises into stark relief. The second thing Brun noticed was how light they were. As their sopping wet clothes drained onto the reception floor and into Brun's, she noticed their ribs through the shirt they were wearing that was so thoroughly plastered to their chest with the rain.
+They felt like ice in her arms. The puddle they were wearing instantly soaking through Brun's shirt, pale skin casting their bruises into stark relief. The second thing Brun noticed was how little they weighed and wondered how easily they would be to carry once dry. As their sopping wet clothes drained onto the reception floor and into Brun's own, her eyes were drawn to their chest and their ribs poking obvious bumps through the shirt they were wearing. So such so was the shirt  plastered to their chest with the rain it; might as well be transparent.
 
 Now that she had this mess of a person in her arms, Brun had to put them somewhere. Banishing thoughts of putting them into a nest of pillows like some kind of human sized dog bed, she came to the idea of putting them in the staff nap room. Though called a nap room it was little more than a broom cupboard crammed to fit a cot, chair and mirror and a desk phone they used to wake one another if need be.
 
-As Brun carried their armful of person, trying her best to walk in such a way that their head didn't lol about too much, and studied their face. They had short, pale silver-blonde hair stuck slick to their head and a bruise on one side of their jaw near their ear and a fresh looking graze a little lower down on the same side.
+As Brun carried their armful of person, trying her best to walk in such a way that their head didn't loll about too much, and studied their face. They had short, pale silver-blonde hair stuck slick to their head and a bruise on one side of their jaw near their ear and a fresh looking graze a little lower down on the same side.
 
-"You're in some trouble, aren't you?" She asked her unconscious passenger. Though before they could answer Brun arrived at the nap room.
+"You're in some trouble, aren't you?" She asked her unconscious passenger. Though before they could answer, Brun arrived at the nap room.
 
 She hip checked the door to bop the handle down and door open in one move, before cautiously sidling into the cramped room and regretting her choice of destination.
 
-"...You take clothes off a wet and cold person, right?" Brun asked herself, unsure if there would be much difference in what she could see of this person weather clothed or not with how powerfully they stuck to their figure.
+"...You take... you take clothes off a wet and cold person, right?" Brun asked herself, unsure if there would be much difference in what she could see of this person weather clothed or not with how visible their figure was while still dressed.
 
-She placed them on the floor in a siting pose and peeled their shirt off. She furrowed her brow upon seeing their bare mostly flat chest.
+She placed them on the floor in a siting pose and peeled their shirt off. She furrowed her brow upon seeing their bare, mostly flat chest.
 
-"Are you a woman, troubled one?" She asked, expecting no answer and knowing she'd get an answer in a moment when she removed their pants.
+"Are you a woman, troubled one?" She asked, expecting no answer and expecting she'd get an answer in a moment when she removed their pants.
 
-The drawstring of their trackpants had been doing the majority of the work keeping their pants up, because as soon as the knot there was undone and they were lifted back into Brun's arms their pants stayed exactly where they sat moments earlier sliding cleanly off them. Brun nodded at their plain looking underwear.
+The drawstring had been doing the majority of the work keeping their pants up, because as soon as the knot was undone and they were lifted back into Brun's arms their pants stayed exactly where they sat moments earlier sliding cleanly off them. Brun nodded at their plain looking women's underwear.
 
 "OK then, Trouble, let's get you in bed and then I'll get all the crinkly fire blankets to help keep you warm." She said as she placed the unconscious woman in the cot. "And I'll get you a warm wheat bag thing Manager Beth keeps around for period pain."
 
-Brun busied herself over the next few hours. Keeping an eye on her ward, making sure her temperature started to come back up to safe, washing and drying their clothes, swapping the fire blankets for normal cotton ones once she was sure they were out of danger for their temperature.
+Brun busied herself over the next few hours. Keeping an eye on her ward, making sure her temperature started to come back up to safe levels, washing and drying their clothes, swapping the fire blankets for normal cotton ones once she was sure they were out of danger for their temperature. And all the while, their guest slept.
