@@ -110,3 +110,14 @@ Brun put the phone back on the receiver, and strode into the back room paths tha
 
 Minutes later, with a hastily assembled plate of fried foods, plus a single ripe avocado that kept trying to roll off the plate, Brun approached the nap room door and hoped Trouble was still waiting for her beyond it.
 
+Opening the door, she found Trouble sitting and living up to their newly assigned moniker looking troubled. They didn't seem to react to the door opening, so Brun placed the plate on the cot and got down into a squat to get on the same eye level.
+
+"Hey..." Brun caught herself in time and wracked her mind for any other name to use aside from Trouble. "Small One." She didn't think this was much better than Trouble, but this was no time to show hesitation. Once more she gently gripped the only part of Trouble's face that wasn't covered in bruises, their chin, and tried to encourage them to look up. "I'm going to keep you safe, okay?"
+
+Brun assumed she was unconvincing, due to how as soon as she got Trouble to look her in the eyes tears welled up and they looked like they were on the verge of tears. Looking closer, she realized they must have been crying a lot while she was gone, and Trouble's eyes were a lot more puffy and swollen than when she had left. She tried to change tactics, and since she didn't think the dingy nap room's prison aesthetic wasn't helping, did some quick maths on how to get both of them and the food out of the nap room in the least actions.
+
+"Are you up for a quick walk? I've got something to show you." Brun entirely gave up trying to read Trouble's expression and did her best to power through and lead her out of the cell-like room. Moving her hand from Trouble's chin to hand and grabbing the plate of food in her other she tried to have both of them stand up together and lead them out into the hallway. 
+
+As they walked the hallways to Trouble's room, Brun recognized the habit of purposefully quiet footsteps from months ago when she had been practicing the same thing with Dee. Her form wasn't the precise and purposeful one that Brun had practiced, but it did speak more of her past than Trouble had said aloud so far.
+
+Looking ahead again and realizing they were still ten doors away from the room, Brun found herself focusing on Trouble's hand in hers. The long delicate fingers felt and soft hand with a curious rough spot on the outside of one of her fingers. 

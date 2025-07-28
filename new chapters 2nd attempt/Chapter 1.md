@@ -93,3 +93,5 @@ The drawstring had been doing the majority of the work keeping their pants up, b
 "OK then, Trouble, let's get you in bed and then I'll get all the crinkly fire blankets to help keep you warm." She said as she placed the unconscious woman in the cot. "And I'll get you a warm wheat bag thing Manager Beth keeps around for period pain."
 
 Brun busied herself over the next few hours. Keeping an eye on her ward, making sure her temperature started to come back up to safe levels, washing and drying their clothes, swapping the fire blankets for normal cotton ones once she was sure they were out of danger for their temperature. And all the while, their guest slept.
+
+ 
