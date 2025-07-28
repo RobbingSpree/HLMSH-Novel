@@ -8,7 +8,7 @@ But I found issues with forgetting to keep track of what time of day it was and 
 So I've started fresh, writing from chapter 1 again.
 
 Current length of rehash:
-1000-ish words
+3000-ish words
 1 chapter
 
 Latest posted chapter:
