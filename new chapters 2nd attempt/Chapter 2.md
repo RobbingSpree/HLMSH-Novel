@@ -120,5 +120,8 @@ Brun assumed she was unconvincing, due to how as soon as she got Trouble to look
 
 As they walked the hallways to Trouble's room, Brun recognized the habit of purposefully quiet footsteps from months ago when she had been practicing the same thing with Dee. Her form wasn't the precise and purposeful one that Brun had practiced, but it did speak more of her past than Trouble had said aloud so far.
 
-Looking ahead again and realizing they were still ten doors away from the room, Brun found herself focusing on Trouble's hand in hers. The long delicate fingers felt soft in her hand with a curious rough spot on the tip of a few of their fingers. 
-Looking ahead again and realizing they were still ten doors away from the room, Brun found herself focusing on Trouble's hand in hers. The long delicate fingers felt soft in her hand with a curious rough spot on the tip of a few of their fingers. 
+Looking ahead again and realizing they were still ten doors away from the room, Brun found herself focusing on Trouble's hand in hers. Their long delicate fingers felt soft in her hand, except for a rough patch that assumably was a graze she could feel near the heel of their palm. Brun didn't know why she felt this strongly about someone she didn't know having signs of obvious injury, she considered her attention hard to win. Did she see Trouble as akin to an animal, small and harmless? Or did she feel safe because they didn't talk much? Did that say something about her? Only liking someone who said nothing back? Like some sort of doll?
+
+Brun wrestled her mind out of her own self obsessive thoughts and counted the steps out as they arrived at the room.
+
+"Three, two, one, this door. We've given you suite 17." Brun announced, hip checking the security pad with her master key to momentarily unlock it. And when Trouble made no moves to open the door, 
