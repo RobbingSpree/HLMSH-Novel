@@ -120,4 +120,5 @@ Brun assumed she was unconvincing, due to how as soon as she got Trouble to look
 
 As they walked the hallways to Trouble's room, Brun recognized the habit of purposefully quiet footsteps from months ago when she had been practicing the same thing with Dee. Her form wasn't the precise and purposeful one that Brun had practiced, but it did speak more of her past than Trouble had said aloud so far.
 
-Looking ahead again and realizing they were still ten doors away from the room, Brun found herself focusing on Trouble's hand in hers. The long delicate fingers felt and soft hand with a curious rough spot on the outside of one of her fingers. 
+Looking ahead again and realizing they were still ten doors away from the room, Brun found herself focusing on Trouble's hand in hers. The long delicate fingers felt soft in her hand with a curious rough spot on the tip of a few of their fingers. 
+Looking ahead again and realizing they were still ten doors away from the room, Brun found herself focusing on Trouble's hand in hers. The long delicate fingers felt soft in her hand with a curious rough spot on the tip of a few of their fingers. 
