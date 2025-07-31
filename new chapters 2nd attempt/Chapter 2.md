@@ -124,4 +124,6 @@ Looking ahead again and realizing they were still ten doors away from the room, 
 
 Brun wrestled her mind out of her own self obsessive thoughts and counted the steps out as they arrived at the room.
 
-"Three, two, one, this door. We've given you suite 17." Brun announced, hip checking the security pad with her master key to momentarily unlock it. And when Trouble made no moves to open the door, 
+"Three, two, one, this door. We've given you suite 17." Brun announced, hip checking the security pad with her master key to momentarily unlock it. And when Trouble made no moves to open the door and Brun still had no free hands, she lost her temper. Kicking out and delicately swiping the door handle down with her foot while at the same time pushing it open in the brief window where it could move before the lock re-armed. Brun did her best to pull herself together again while silently reprimanding herself and trying to not congratulate herself on the successful trick.
+
+She lead Trouble into the room, pointing out the bathroom and kitchenette, placing the food down on the counter in the latter, before leading them to the bed. Trouble still looked exhausted on top of injured 
