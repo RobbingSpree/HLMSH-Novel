@@ -1,7 +1,7 @@
 blurb: Domestic abuse victim escaped into the welcoming arms of a stranger
 
 flaws: 
-- a bit manic in their emotions due to repression
+- a bit manic in their emotions due to repression and depression
 - slips back into emotional muteness if pressured but not overwhelmed
 - sensitive to sounds
 - ignores pain and discomfort at all costs
