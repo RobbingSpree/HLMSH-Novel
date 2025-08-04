@@ -5,6 +5,14 @@ pov swap when she spots the hotel's lights
 pov swap to brun to introduce and watch fel arrive and collapse
 chapter cut once Brun has set fel down and called her boss
 
+##### X's opinion of Y in Ch1
+
+|       | Brun     | Fel       | Debug         |
+| ----- | -------- | --------- | ------------- |
+| Brun  | Bored    | Concerned | Wants to chat |
+| Fel   | Scared   | Scared    | N/a           |
+| Debug | Dreaming | N/a       | Dreaming      |
+
 # Chapter 2
 fel pov
 start on fel waking up
@@ -26,6 +34,16 @@ relaxes while fel eats
 keeps talking
 promises to keep her safe, notices she really means it
 share names since brun realizes they forgot to mention it
+
+##### X's opinion of Y in Ch2
+
+|       | Brun                 | Fel        | Debug    |
+| ----- | -------------------- | ---------- | -------- |
+| Brun  | A bit of a failure   | Protective | Helpful  |
+| Fel   | Scared but improving | Battered   | N/a      |
+| Debug | Dreaming             | N/a        | Dreaming |
+
+
 # Chapter 3
 brun pov
 almost nap
@@ -47,3 +65,13 @@ POV swap to Brun
 be very lax and sleepy and heavy
 big flop onto fel
 give her more material to be flustered about
+TBC
+
+
+##### X's opinion of Y in Ch3
+
+|       | Brun           | Fel                                     | Debug          |
+| ----- | -------------- | --------------------------------------- | -------------- |
+| Brun  | Tired          | Needs protecting                        | N/a            |
+| Fel   | Gallant knight | Broken and worthless                    | N/a            |
+| Debug | At work        | We finally get to use the DV prototcols | Work work work |
