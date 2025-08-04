@@ -132,9 +132,9 @@ She lead Trouble into the room, pointing out the bathroom and kitchenette, placi
 
 Watching Trouble eating gave Brun the exact type of emotion she was expecting, but she didn't like it. It seemed she very much did equate Trouble with a small creature in need of help, because she felt the same watching Trouble as she did when birds or critters got to the food she might set out of them from the kitchen scraps. She looked away, lay on the bed beside Trouble and began scolding herself.
 
-"Hey..." Brun tried to talk to dismiss her own train of thought before Beth's warning not to use trouble as a name floated to fill the space. "...Small one..." Brun used every ounce of mental fortitude to not slap herself for further infantilizing her ward. She forced herself to keep talking so that wasn't how that sentence ended. "I'm going to keep you safe." She tried to reassure Trouble, but with her multitude of fuck ups, simple platitudes didn't seem like enough, especially since they hadn't even paused eating in response.
+"Hey..." Brun tried to talk to dismiss her own train of thought before Manager Beth's warning not to use trouble as a name floated to fill the space. "...Small one..." Brun used every ounce of mental fortitude to not slap herself for further infantilizing her ward. She forced herself to keep talking so that wasn't how that sentence ended. "I'm going to keep you safe." She tried to reassure Trouble, but with her multitude of fuck ups, simple platitudes didn't seem like enough, especially since they hadn't even paused eating in response.
 
-"Actually safe, I'm the only person who knows you came here, we've checked you in under a pseudonym so no one can ask after you." Brun realized this might sound like she had planned the perfect kidnapping and her internal count of crimes and failures increased once more. "My shift's over in ten minutes so I'm fine to just sit with you and do whatever you need to feel content." As the words tumbled out of her mouth Brun realized she actually meant it, this was put on her mental pile of stuff to consider later. She took the room key from her pocket and placed it on Trouble's thigh.
+"Actually safe, I'm the only person who knows you came here, and we've checked you in under a pseudonym so no one can ask after you." Brun then realized this might sound like she had planned the perfect kidnapping and her internal count of crimes and failures increased once more. "My shift's over in ten minutes so I'm fine to just sit with you and do whatever you need to feel content. I'll stay by your side until you feel safe." As the words tumbled out of her mouth Brun realized she actually meant it, this was put on her mental pile of stuff to consider later. She took the room key from her pocket and placed it on Trouble's thigh.
 
 "Ohh, by the way I'm Brunhilde. You can just call me Brun." Brun interjected once more into the silence. Realizing while she still didn't know Trouble's name, they also didn't know hers. She was curious if Trouble had given her a name as she had, but held the question back.
 
@@ -142,7 +142,7 @@ Trouble said something, but it was too quiet for Brun to hear. She sat up and sh
 
 "Pardon Love, I didn't catch that."
 
-"Felicity" Trouble muttered. Brun, having been awake for 18 hours at this point and just finished a 9 hour graveyard shift, took a moment to connect the dots. Brun furrowed her brow, and tried as hard as she could to overwrite where she had memorized Trouble's name to replace it with Felicity.
+"Felicity" Trouble muttered. Brun, having been awake for 18 hours at this point and just finished a 9 hour graveyard shift, took a moment to connect the dots. Brun furrowed her brow, and tried as hard as she could to overwrite where she had stored Trouble's name to replace it with Felicity.
 
 "Lovely to hear, Felicity." Brun announced, doing her darnedest to not think the world trouble.
 
