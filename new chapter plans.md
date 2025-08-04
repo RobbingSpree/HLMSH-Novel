@@ -25,8 +25,25 @@ takes fel to her new room
 relaxes while fel eats 
 keeps talking
 promises to keep her safe, notices she really means it
-travel to her apartment
+share names since brun realizes they forgot to mention it
+# Chapter 3
+brun pov
+almost nap
+travel to her apartment for nap
 pov swap to fel
 fel's much warmer and happy perspective after warm food and nice words
 keeps building positive thoughts while touching brun
-chapter ends at brun's place with fel suddenly a bit low in emotion now they're no longer touching          
+at brun's place with fel suddenly a bit low in emotion now they're no longer touching
+linger on the idea of both wanting physical touch and fearing it
+get distracted by brun coming out of the shower naked
+go back to previous thoughts, but they're tinged with lesbianism now
+nap
+wake to brun's alarm
+and brun not getting up
+try to wake brun and fail 
+think about how Frank had woken her up before and how it's literally not something she would be capable of doing even though she has great need
+keep trying normal things 
+POV swap to Brun
+be very lax and sleepy and heavy
+big flop onto fel
+give her more material to be flustered about
