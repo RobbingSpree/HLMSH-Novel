@@ -1,3 +1,5 @@
+[Prev chapter](https://github.com/RobbingSpree/HLMSH-Novel/blob/main/chapters_as_imported/Chapter5.md)
+
 Trouble let themselves be lead back into the hotel, they felt Debug shifting and looking around as the walked but didn't have the capacity to understand why right now. They felt incredibly drained. It felt like one of the things they had been worrying about almost nonstop the past two days had very abruptly been resolved. 
 
 Were their problems really that easy to fix? 
@@ -123,3 +125,5 @@ She didn't know if Debug had a girlfriend though. She had seen her blush at some
 Regardless, she knew being this short on sleep and having had such an action packed day wouldn't help her come to a decision.
 
 They reached her room and opened the door to find Brun curled up in the bed. They hadn't actually used it last time they were here, but actually looking it was quite a big bed.
+
+[Next chapter](https://github.com/RobbingSpree/HLMSH-Novel/blob/main/chapters_as_imported/Chapter7.md)
