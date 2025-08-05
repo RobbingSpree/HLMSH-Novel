@@ -63,3 +63,5 @@ The guest was still out cold, they seemed dangerously pale and cold to the touch
 Brun walked out of the nap room to the office and grabbed the emergency blanket and spent the time walking back working out how to open it and grabbing a roll of hand towels and some single use hand warmers. She patted Trouble down with the hand towels and did her best to dry her hair with the hand towels before draping the crinkly emergency blanket over them and cracking the hand warmers, wrapping them in more towel and setting them under the blanket to keep Trouble warm.
 
 Brun kept checking in on them every half hour and Trouble continued sleeping. Brun didn't know enough about concussions to know if this was something she should be concerned about and planned to wait and see if they woke up in the morning. The blanket and hand warmers did seem to help bring their temperature back up to a safe level. Such that Brun swapped the emergency blanket out for a normal cotton one from the linen cupboard after an hour.
+
+[Next chapter](https://github.com/RobbingSpree/HLMSH-Novel/blob/main/chapters_as_imported/Chapter1.md)
