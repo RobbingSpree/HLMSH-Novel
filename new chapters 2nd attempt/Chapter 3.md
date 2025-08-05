@@ -54,5 +54,11 @@ Soft relaxing warmth.
 
 Trouble didn't think she could have comprehended this unless she experienced it. She had thought their favorite pillow was soft, but that was nothing compared to where she was leaning on Brun. And the warmth was something else, with both of Brun's arms around her and the outside world almost entirely cut off, all she could hear was the soft heartbeat through Brun's shirt. Focusing only on that, she let her mind wander.
 
-Time passed and she felt herself being lifted a little and Brun jostling her. trouble came to her senses when she realized Brun was putting her down on her own feet and the world swayed. Because she had dozed off a bit and not noticed Brunhilde bodily lifting her up to carry her onto the bus. Trouble felt herself flush red with embarrassment and couldn't look at Brunhilde for the entire ride.
+Time passed and she felt herself being lifted a little and Brun jostling her. trouble came to her senses when she realized Brun was putting her down on her own feet and the world swayed. Because she had dozed off a bit and not noticed Brunhilde bodily lifting her up to carry her onto the bus. Trouble felt herself flush red with embarrassment and couldn't look at Brunhilde for the entire ride, instead moving to stand behind her so she could avoid being looked at as well.
+
+She felt conflicted on if she should stop holding Brunhilde's hand also. This entire trip, it seemed like they were taking care to be holding her hand at all times, and while Trouble felt like she didn't deserve to be treated this gently - like a baby bird with bones that would fracture in the wind - she couldn't bare to take her own hand back. To break that connection. As her emotions roiled, she had the urge to tug her hand away and scream, but when she didn't act and the feeling melted away again Trouble was just left with a sense of unease.
+
+She was jolted back to the present when the driver decided to slam on the breaks. Trouble bounced off Brunhilde and almost fell to the floor, letting go of her hand as she braced for injury again. When it didn't come, she opened her eyes to find Brunhilde had snatched her out of the air to save her again. Sounds of a brief argument barely registered as Trouble was overwhelmed with visions of Brunhilde in a knight's armor rescuing her from a monster.
+
+Only realizing the argument must have been between Brunhilde and the driver when Brun lead her off the bus and walked them a short distance to the next bus stop and beyond it to a block nondescript of apartments.
 
