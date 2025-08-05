@@ -1,3 +1,6 @@
+
+[Prev chapter](https://github.com/RobbingSpree/HLMSH-Novel/blob/main/chapters_as_imported/Chapter0.md)
+
 With a lurch Felicity tried to sit up in bed. But the bed was a lot harder than she expected so in an effort to try and brace herself she reached out to lean on the furniture only to find air instead of her bedside table and fell out of the cot.
 
 Now quite confused on the floor and with a sore arm as well as a sore everything else Felicity tried to untangle herself from the blanket she was in. It wasn't one she owned. Nor was this room somewhere she knew. Panic gripped her and memories of last night floated into focus.
@@ -231,3 +234,6 @@ It was just as comfortable as she imagined. She leaned back into it and closed h
 "Feel free to relax here small one. My collection of books are at your disposal." Brunhilde gestured to the several bookcases, jammed full of books and touched Felicity's hand to her forehead in some sign of respect. "I'm going to have a quick shower and nap. You can wake me if anything is wrong." Brunhilde finally let go of Felicity's hand. It hung in the air for a moment as Brunhilde turned around and strode into one of the adjoining rooms.
 
 Felicity hugged her now empty hand and brought up her knees to add more limbs to the hug.
+
+
+[Next chapter](https://github.com/RobbingSpree/HLMSH-Novel/blob/main/chapters_as_imported/Chapter2.md)
