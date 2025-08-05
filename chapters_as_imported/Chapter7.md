@@ -1,3 +1,5 @@
+[prev chapter](https://github.com/RobbingSpree/HLMSH-Novel/blob/main/chapters_as_imported/Chapter6.md)
+
 It had been a very long time since Brun had shared a bed with anyone. And the sounds of Debug making out with someone behind the reception desk haunted her dreams. As she faded into sleep, she was bombarding herself with questions.
 
 Was she a good kisser?
