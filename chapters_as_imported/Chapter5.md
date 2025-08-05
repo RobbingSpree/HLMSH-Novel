@@ -1,3 +1,5 @@
+[prev chapter](https://github.com/RobbingSpree/HLMSH-Novel/blob/main/chapters_as_imported/Chapter4.md)
+
 Princess looked as the completed cast, trying to think of something clever to write on it while Trouble was distracted listening to the nurse explain the care details for the cast. "I said break a leg" she quickly scrawled.
 
 "A quick question." Trouble asked the nurse, Princess paying attention now her mischief was complete. "I draw and do graphic work for a job. This is my dominant hand, I don't think I can hold a stylus properly like this." She gestured at her own arm, now encased in what Princess had learned was fiberglass and not plaster. The cast covered from just past her first knuckle to just before her elbow and was a vivid blue.
@@ -159,3 +161,5 @@ It felt unreal. Like a one of those roller-coasters that seems determined to kil
 She sat in stunned silence for what felt like half an hour, but could have been any amount of time. Her solitude was broken when she felt a hand on her thigh. Blinking away what she was surprised were tears, Trouble turned to see Debug crouching outside the car and leaning on the open door.
 
 "Bee said we'll be making a pillow fort and all piling into your room until you get to sleep." Debug mumbled. "Do you want to stay out here in the car a little longer, or want to come in with me?"
+
+[Next chapter](https://github.com/RobbingSpree/HLMSH-Novel/blob/main/chapters_as_imported/Chapter6.md)
