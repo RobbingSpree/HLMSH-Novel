@@ -20,7 +20,7 @@ Brunhilde had spent the last hour or so since she'd woken up being the fantasy i
 
 Felicity, or as Brunhilde had been calling her (and seemed to suit what she felt like she brought to the table): Trouble, looked up at the tall woman leading her through the long corridors of the hotel. Their skin was a wonderful deep shade that seemed to magically change colour under the different lights of the halls and rooms. Felicity was a little jealous, since her own pallor simply made her look to be afflicted with different harrowing diseases under various artificial light sources.
 
-As she watched the hypnotic swap of Brunhilde's braids, Felicity realized she'd been brought behind the reception desk.
+As she watched the hypnotic swap of Brunhilde's braids, Trouble realized she'd been brought behind the reception desk.
 
 "We're lucky I got some emergency wellies last week when the weather first started to look sus." Brunhilde held out a pair of glitter covered wet weather boots and a pair of thick socks she'd pulled out from behind the desk with an enthusiastic grin.
 
@@ -36,8 +36,23 @@ Donned a second one herself.
 
 Before offering her hand again to lead Felicity further.
 
-Felicity put an arm through and the hood on, but had already taken Brunhilde's hand again so let the holding arm hang out of the coat rather than let go again. Felicity didn't want to dwell on how much she was using Brunhilde's kindness to keep going. The jacket smelt aggressively dry and of olives. 
+Trouble put an arm through and the hood on, but had already taken Brunhilde's hand again so let the holding arm hang out of the coat rather than let go again. Trouble didn't want to dwell on how much she was using Brunhilde's kindness to keep going. The jacket smelt aggressively dry and of olives. 
 
-As her knight lead her towards the reception door, the early morning hint of a sunrise slipping under the edge of the storm and peaking through as the last of the storm moved on. The door opened, only for the wind she'd not been paying attention to tried to blow her back into the reception proper.
+As her knight lead her towards the reception door, the early morning hint of a sunrise slipping under the edge of the storm and peaking through as the clouds moved on. The door opened, only for the wind she'd not been paying attention to tried to blow her back into the reception proper.
 
-Brunhilde stepped back and let the door automatically close again, before pulling Felicity into a spin and lifting their connected left hands over her head. With the move complete she found herself in the crook of Brunhilde's arm. Brunhilde started to walk back to the door and with their arm protectively around her, Felicity was able to walk almost normally out into the car park again.
+Brunhilde stepped back and let the door automatically close again, before pulling Trouble into a spin and lifting their connected left hands over her head. The only thing she saw as she was being spun was a proud little smile on Brunhilde's face. With the move complete she found herself held close in the crook of their arm. They started to walk back to the door and with their arm protectively around her, Trouble was able to walk almost normally out into the car park again.
+
+The wind still pushed and blew like it had last night, but without the rain lashing her skin and a protective layer on and her guardian by her side it was actually pleasant. She looked up at Brunhilde and watched as the loose braid she had been watching sway back and forth earlier flailed in the gale like an angry snake. They seemed to notice her gaze and looked down and tried to say something but the wind was far louder, apparently noticing her confusion they simply pointed instead to a nearby bus stop they were walking towards.
+
+Once they made it to the shelter of the bus stop and the wind simply tugged at the hem of her pants rather than tried to inflate her jacket like a kite. Brunhilde pulled her to sit on their lap in the only dry part of the accompanying bench.
+
+"The wind still wants to knock you down, Trouble. But don't worry, I'll keep you safe." Wrapping their other arm around Trouble and covering them slightly with their own rain jacket. Trouble in turn, feeling like a spoiled kid undeserving of this kindness, nestled closer and rested her head on their soft chest.
+
+Warmth.
+
+Soft relaxing warmth.
+
+Trouble didn't think she could have comprehended this unless she experienced it. She had thought their favorite pillow was soft, but that was nothing compared to where she was leaning on Brun. And the warmth was something else, with both of Brun's arms around her and the outside world almost entirely cut off, all she could hear was the soft heartbeat through Brun's shirt. Focusing only on that, she let her mind wander.
+
+Time passed and she felt herself being lifted a little and Brun jostling her. trouble came to her senses when she realized Brun was putting her down on her own feet and the world swayed. Because she had dozed off a bit and not noticed Brunhilde bodily lifting her up to carry her onto the bus. Trouble felt herself flush red with embarrassment and couldn't look at Brunhilde for the entire ride.
+
