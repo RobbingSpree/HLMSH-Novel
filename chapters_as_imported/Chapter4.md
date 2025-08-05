@@ -1,3 +1,5 @@
+[Prev chapter](https://github.com/RobbingSpree/HLMSH-Novel/blob/main/chapters_as_imported/Chapter3.md)
+
 Brunhilde lead Trouble into the Hospital's Emergency Ward with a plan.
 
 As part of their ongoing effort to not leave any traces of a person Trouble's boyfriend could track down, and since the ID they'd need to use at the hospital didn't have a photo on it, Trouble would pretend to be Brunhilde while she got treated.
@@ -119,3 +121,5 @@ The moment of silence that followed was broken by the automatic door making anot
 Debug hoped that since she'd preemptively shutdown all his attempts to press forward he couldn't get angry and would have to leave. She hoped he wouldn't try to escalate.
 
 But a look he was getting on his face suggested otherwise.
+
+[Next chapter](https://github.com/RobbingSpree/HLMSH-Novel/blob/main/chapters_as_imported/Chapter5.md)
