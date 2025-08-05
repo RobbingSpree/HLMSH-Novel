@@ -1,3 +1,6 @@
+
+[Prev chapter](https://github.com/RobbingSpree/HLMSH-Novel/blob/main/chapters_as_imported/Chapter1.md)
+
 Ten minutes later and Felicity had become quite engrossed in a book Brunhilde had left tucked into the chair. The noise of running water from the shower in the adjacent room was making for wonderful white noise, drowning out all chance of distraction.
 
 The noise of the water cut off.
@@ -173,3 +176,6 @@ Brunhilde's hand was warm and comforting. As they waiting, standing in the eleva
 "I'll keep you safe Trouble, you're in my care now." Brun's words felt like a warm beam of sunlight. Felicity released a breath she didn't know she'd been holding. She didn't like how her boyfriend had treated her like some possession for him to do with what he pleased, but the way Brun's words had sounded like she was claiming Felicity as her own somehow felt different. Kinder. Like a welcome responsibility.
 
 The elevator doors opened behind Brunhilde, giving Felicity her first look at today's sunlight.
+
+
+[Next chapter](https://github.com/RobbingSpree/HLMSH-Novel/blob/main/chapters_as_imported/Chapter3.md)
