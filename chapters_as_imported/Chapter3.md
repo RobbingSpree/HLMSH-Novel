@@ -1,3 +1,5 @@
+[Prev chapter](https://github.com/RobbingSpree/HLMSH-Novel/blob/main/chapters_as_imported/Chapter2.md)
+
 Felicity felt like a balloon tied to Brunhilde's wrist. She bobbed around nearby as they walked the hotel's corridors helping Brun with her shift.
 
 She had tried to stay focused and pay attention when they had entered the lobby and Brun had introduced her to the other staff. They had said kind words and been quite welcoming and accommodating, but the entire incident drifted straight out of her brain as her thoughts veered back over how her and Brunhilde had spent the last half a day together and if she was behaving appropriately and if she was putting her at risk by spending more time together.
@@ -139,3 +141,6 @@ Brunhilde came around the front of the desk as she'd finished doing her job befo
 "Dee, again, thanks so much." Brun said with a smile that tried to buckle Debug's knees. "I'll make this up to you."
 
 "That's unfair." Debug muttered to herself, quiet enough neither of the ladies leaving through the front door could hear.
+
+
+[Next chapter](https://github.com/RobbingSpree/HLMSH-Novel/blob/main/chapters_as_imported/Chapter4.md)
