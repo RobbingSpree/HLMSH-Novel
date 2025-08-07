@@ -60,5 +60,43 @@ She felt conflicted on if she should stop holding Brunhilde's hand also. This en
 
 She was jolted back to the present when the driver decided to slam on the breaks. Trouble bounced off Brunhilde and almost fell to the floor, letting go of her hand as she braced for injury again. When it didn't come, she opened her eyes to find Brunhilde had snatched her out of the air to save her again. Sounds of a brief argument barely registered as Trouble was overwhelmed with visions of Brunhilde in a knight's armor rescuing her from a monster.
 
-Only realizing the argument must have been between Brunhilde and the driver when Brun lead her off the bus and walked them a short distance to the next bus stop and beyond it to a block nondescript of apartments.
+Only realizing the argument must have been between Brunhilde and the driver when they lead her off the bus and walked them a short distance to the next bus stop and beyond it to a block nondescript of apartments.
+
+***
+
+Brun was doing her absolute best to stay awake, fighting a losing battle.
+
+Her legs felt like uncooked dough, her mind felt like it had rusted over, and she was vigorously holding onto Trouble as a ward against sleeping. And her ward simply made her want to sleep more.
+
+In her sleep addled daze, she was thinking more and more that Trouble was just like a cuddly little animal, one she was allowed by her lease to take into her apartment and fluff and pet and hug.
+
+Autopiloting through the entrance to her building and over to the elevator, Brun saw a reflection of the two of them standing together. She realized she had almost entirely absorbed Trouble into her jacket. The smaller lady barely came up to her chest, and probably while they bumbled out of the bus, she had bundled them into her jacket. Their expression was unreadable due to being both half covered by her jacket and swimming in the puffer jacket Brun had put on Trouble when they left.
+
+Brun focused intently on the floor indicator for the lift, attempting to banish thoughts of petting Trouble like some kind of adorable puppy. 
+
+Had she cleaned her apartment recently?
+
+Had she made a mess when she left?
+
+Was she holding Trouble too tight?
+
+Did she have energy to jump in the shower for a quick wash?
+
+Did she smell bad now?
+
+Trouble was right under her armpit and hadn't said anything. 
+
+What did Trouble smell like?
+
+Brun caught herself moving. She had lowered her head down and had been about to sniff her ward. Seized by the knowledge they were standing in front of a large reflective surface they froze in place and struggled to think of a way to extract themselves without being weird or mentioning what she had almost done.
+
+"You smell like rain, Trouble." Brun's mouth said as it betrayed her. She closed her eyes, stood back up straight and screamed internally.
+
+She heard the ding of the lift arriving, the trundle of the doors opening, and blindly walked both of them into the lift, punching her floor button with practiced ease. Her external tranquility a mask over the non-verbal berating she was giving herself.
+
+An familiar noise returned her to the present. It came from near her hip. Looking down, Brun's brain kicked back into gear and realized Trouble must have said something and she was too wrapped up in herself to hear.
+
+"Pardon, Love?"
+
+"I said, you smell nice too. Like fruits and..." Their voice trailing off toward the end, but Brun empathized with how embarrassing it would be to have to say that twice so she assumed she had the gist.
 
