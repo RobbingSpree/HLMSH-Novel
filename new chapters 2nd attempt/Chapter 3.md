@@ -64,15 +64,15 @@ Only realizing the argument must have been between Brunhilde and the driver when
 
 ***
 
-Brun was doing her absolute best to stay awake, fighting a losing battle.
+Brun was doing her absolute best to stay awake, steadily losing ground in that battle.
 
 Her legs felt like uncooked dough, her mind felt like it had rusted over, and she was vigorously holding onto Trouble as a ward against sleeping. And her ward simply made her want to sleep more.
 
 In her sleep addled daze, she was thinking more and more that Trouble was just like a cuddly little animal, one she was allowed by her lease to take into her apartment and fluff and pet and hug.
 
-Autopiloting through the entrance to her building and over to the elevator, Brun saw a reflection of the two of them standing together. She realized she had almost entirely absorbed Trouble into her jacket. The smaller lady barely came up to her chest, and probably while they bumbled out of the bus, she had bundled them into her jacket. Their expression was unreadable due to being both half covered by her jacket and swimming in the puffer jacket Brun had put on Trouble when they left.
+Autopiloting through the entrance to her building and over to the elevator, Brun saw the reflection of the two of them standing together. She realized she had almost entirely absorbed Trouble into her jacket. The smaller lady barely came up to her chest, and probably while they bumbled out of the bus, she had bundled them inside her jacket. Their expression was unreadable due to being both half covered by her jacket and swimming in the puffer jacket Brun had put on Trouble when they left.
 
-Brun focused intently on the floor indicator for the lift, attempting to banish thoughts of petting Trouble like some kind of adorable puppy. 
+Brun focused intently on the floor indicator for the lift, attempting to banish thoughts of petting Trouble like some kind of puppy in need of affection. 
 
 Had she cleaned her apartment recently?
 
@@ -94,9 +94,10 @@ Brun caught herself moving. She had lowered her head down and had been about to 
 
 She heard the ding of the lift arriving, the trundle of the doors opening, and blindly walked both of them into the lift, punching her floor button with practiced ease. Her external tranquility a mask over the non-verbal berating she was giving herself.
 
-An familiar noise returned her to the present. It came from near her hip. Looking down, Brun's brain kicked back into gear and realized Trouble must have said something and she was too wrapped up in herself to hear.
+A familiar noise returned her to the present. It came from near her hip. Looking down, Brun's brain kicked back into gear and realized Trouble must have said something and she was too wrapped up in herself to hear.
 
 "Pardon, Love?"
 
 "I said, you smell nice too. Like fruits and..." Their voice trailing off toward the end, but Brun empathized with how embarrassing it would be to have to say that twice so she assumed she had the gist.
 
+Spared the horrors of further socialising by the lift reaching her floor and giving her something else to do. She lead Trouble to her door, finally releasing their hand and stepping back so they could breath air not fresh from an armpit.
