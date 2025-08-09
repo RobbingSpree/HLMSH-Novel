@@ -86,7 +86,7 @@ She hip checked the door to bop the handle down and door open in one move, befor
 
 She placed them on the floor in a siting pose and peeled their shirt off. She furrowed her brow upon seeing their bare, mostly flat chest.
 
-"Are you a woman, troubled one?" She asked, expecting no answer and expecting she'd get an answer in a moment when she removed their pants.
+"Are you a woman, troubled one?" She asked, expecting no answer and sure she'd get an answer in a moment when she removed their pants.
 
 The drawstring had been doing the majority of the work keeping their pants up, because as soon as the knot was undone and they were lifted back into Brun's arms their pants stayed exactly where they sat moments earlier sliding cleanly off them. Brun nodded at their plain looking women's underwear.
 
