@@ -106,7 +106,7 @@ Now she could have an unimpeded view of Trouble they seemed less cheerful than t
 
 Fumbling with the half broken umbrella to close it, resorting to taking off her rain jacket and jamming the umbrella inside the sleeve to keep it closed. She turned back to Trouble, who's face was an unreadable mask, and guestured for them to come inside. Once they got in front of her, Brun placed a hand on the middle of their back to lead them into the main room.
 
-"This is the combination kitchen, dining, lounge and book nook room." She pointed to each section in turn, but it was mostly just an island bench seperating the kitchen from the lounge and comfortable chair that sat at the other end of the room. "And those doors lead to the laundry, that to the combination shower and toilet, and that one to my bed."
+"This is the combination kitchen, dining, lounge and book nook room." She pointed to each section in turn, but it was mostly just an island bench seperating the kitchen from the lounge and comfortable chair that sat at the other end of the room. "And those doors lead to the laundry, that to the combination shower and toilet, and that one to my bed." She pointed each of to the three doors that lead out of the main room in turn.
 
 Finished with the tour, Brun lead Trouble to the chair flanked by floor to ceiling bookshelves. 
 
@@ -119,4 +119,42 @@ As she undressed the thought crossed her mind that she should close the door bet
 ***
 
 
+Trouble thought they might have slipped into a dream. 
 
+The apartment was small, but cosy. She could hear the sound of the shower running in the next room and see the steam trying to sneak out. The warmth of the room and the same smell of coconut and olives reassured her immensely.
+
+She was now well settled in the book nook chair, had found a book stuck down the side of the cushion about how to not burn down your house with a pressure cooker. Still wearing the puffy coat Brunhilde had put on her an hour ago, and now sitting in their favorite spot. Trouble felt herself yearning for Brun to think of her as warmly as she seemed to when talking about her house.
+
+She imagined the reassuring feeling of arms around her and the gentle warmth of someone else's body she'd felt on the trip here. And was suddenly flooded with a wave of panic.
+
+Of kind arms turning cruel. 
+
+Of gentle touches leaving bruises and knocking her down. 
+
+Of hands reaching out, but not for her hand, hands grasping her neck. 
+
+Of her hair when it was longer, being grabbed and yanked, of it being brazenly cut with a knife.
+
+Felicity forced the thoughts from her mind. Her body aching as she tried to relax and let herself unclench. Pain lingered in her arm and her recent grazes.
+
+Aiding in her fight to banish her intrusive terrors, the sounds from the bathroom suddenly stopped. The regular sounds of the shower cut off. Her focus was brought back to the present and to something outside of her own body. 
+
+Peering out from the hood, she saw the flow of steam running out and the doorway stop. After a few moments of quiet noises of movement, she saw a shower cap peek out of the doorway followed by the rest of Brunhilde's head. They were looking right at Trouble. 
+
+Several moments passed with Trouble unaware why they were being looked at before an answer appeared. Brunhilde tiptoed out of the bathroom wearing nothing and using a very small hair towel to cover her impressive bust and a silk wrap tied around her hips.
+
+Trouble froze looking at the her host's toned body with sparkling droplets of water running down with every movement she made. The towel was doing either a very bad job or a good one depending on what it's job was. The silk wrap could only have one job as it clung to Brun's body leaving noting to the imagination.
+
+A noise Trouble could not explain escaped, and Brunhilde froze whipping her head around. Her shower cap came off in the dramatic movement and the braids contained within tumbled down framing her face. 
+
+Both of them held their breath of a moment.
+
+And seemingly without wind up, Brunhilde lept clean into the room she had said was her bedroom.
+
+"I forgot to leave myself a change of clothes and my full sized towel is in here." Brun's voice announced from the next room.
+
+"That was an amazing jump." Trouble exclaimed wondering if that level of athletics and physique was required for hotel work.
+
+"That's got to be the loudest I've heard you speak so far." Brun's voice answered. "I hope the welcoming atmosphere and supply of books was the reason. Cause if so I'm happy to feed you more books." Their words were followed immediately by the sound of a slap and moment's later they came back out this time wearing clothes.
+
+""
