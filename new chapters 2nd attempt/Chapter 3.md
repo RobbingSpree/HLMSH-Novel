@@ -1,6 +1,6 @@
 Brun snorted and her whole body twitched as she jerked back awake.
 
-"Not yet!" She announced as she pulled herself back from sleep, adrenalin pumping as she panicked and her mind tried to remember what she had been doing before she let herself relax. Trouble turned to look at her with concern, holding what appeared to be the remains of an avocado they'd eaten with nothing but a fork.
+"Not yet!" She announced as she pulled herself back from sleep, adrenalin pumping through her panicked mind as she tried to remember what she had been doing before she let herself relax. Trouble turned to look at her with concern, holding what appeared to be the remains of an avocado they'd eaten with nothing but a fork.
 
 "I have to..." Brun almost finished her sentence announcing her need to leave, before her previous words haunted her. She could just tell Trouble she wouldn't leave her alone only to do exactly that. She decided to simply work out what she needed aloud, since her mind was still delirious with lust for sleep.
 
@@ -100,4 +100,23 @@ A familiar noise returned her to the present. It came from near her hip. Looking
 
 "I said, you smell nice too. Like fruits and..." Their voice trailing off toward the end, but Brun empathized with how embarrassing it would be to have to say that twice so she assumed she had the gist.
 
-Spared the horrors of further socialising by the lift reaching her floor and giving her something else to do. She lead Trouble to her door, finally releasing their hand and stepping back so they could breath air not fresh from an armpit.
+Spared the horrors of making a further ass of herself by the lift reaching her floor and giving her something else to do. She lead Trouble to her door, finally releasing their hand and stepping back so they could breath air not fresh from an armpit.
+
+Now she could have an unimpeded view of Trouble they seemed less cheerful than their voice implied moments ago. So Brun rushed unlocking the door and opened it to reveal the hallway into her apartment and the mess she had made this morning when the hooks holding umbrella had broke and when the umbrella hit the ground it had popped open and created a barricade preventing entry to her abode.
+
+Fumbling with the half broken umbrella to close it, resorting to taking off her rain jacket and jamming the umbrella inside the sleeve to keep it closed. She turned back to Trouble, who's face was an unreadable mask, and guestured for them to come inside. Once they got in front of her, Brun placed a hand on the middle of their back to lead them into the main room.
+
+"This is the combination kitchen, dining, lounge and book nook room." She pointed to each section in turn, but it was mostly just an island bench seperating the kitchen from the lounge and comfortable chair that sat at the other end of the room. "And those doors lead to the laundry, that to the combination shower and toilet, and that one to my bed."
+
+Finished with the tour, Brun lead Trouble to the chair flanked by floor to ceiling bookshelves. 
+
+"And this is where I spend most of my non-sleeping time. The best seat in the house. The Book Nook." Trouble turned and gave her another unreadable expression, a mix of what looked like disappointment and exhaustion.
+
+"I'm going to jump in the shower first, so make yourself comfortable. You're welcome to any food you find if you get hungry, but if you ask I can cook you something." Brun ran entirely out of ideas about what a good host should say and strode into the bathroom aware she only had so much energy in the tank before she'd have issues sleeping.
+
+As she undressed the thought crossed her mind that she should close the door between the shower and the main room more, but she didn't want Trouble thinking she would forget her and a voice tainted by the past told her no one would want to look at her naked so there wasn't a point.
+
+***
+
+
+
