@@ -8,6 +8,8 @@ flaws:
 
 starting point of the story: Like a puppy, wondering around and following whoever has her, develops a bad relationship with physical affection
 
+Name: flipflops between using Felicity and Trouble depending on mood once Brun has dubbed her so.
+
 appearance: 
 pale skin, splotched with bruises (at the start of the story, eventually the bruises fade)
 short silvery blond hair, about neck length, a bit uneven from a inproptu haircut frank gave her a month ago

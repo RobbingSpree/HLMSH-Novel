@@ -157,4 +157,10 @@ And seemingly without wind up, Brunhilde lept clean into the room she had said w
 
 "That's got to be the loudest I've heard you speak so far." Brun's voice answered. "I hope the welcoming atmosphere and supply of books was the reason. Cause if so I'm happy to feed you more books." Their words were followed immediately by the sound of a slap and moment's later they came back out this time wearing clothes.
 
-""
+"The book helped." Trouble lied, trying to not think about the slick, wet, and powerful legs Brun had lept across the room with moments earlier that were now covered by their pajamas. She looked instead at Brun's face and was stuck by how different she looked with her braids down.
+
+"Okay, well I'm going to have a nap in the other room. You're free to any food you might find. And if you get lonely there's a beanbag I keep clean but unfolded clothes on in the bedroom you can hang about on." Trouble was sure she would be fine in the chair, and nodded in response. 
+
+Brun disappeared back into the bedroom and by the sounds of it collapsed onto her bed, sleep finally taking her prisoner.
+
+Trouble stayed where she was, pulling her knees up and fighting to stay awake and keep unpleasant dreams at bay.

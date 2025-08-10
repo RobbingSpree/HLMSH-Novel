@@ -55,7 +55,17 @@ at brun's place with fel suddenly a bit low in emotion now they're no longer tou
 linger on the idea of both wanting physical touch and fearing it
 get distracted by brun coming out of the shower naked
 go back to previous thoughts, but they're tinged with lesbianism now
-nap
+
+
+##### X's opinion of Y in Ch3
+
+|       | Brun           | Fel                                     | Debug          |
+| ----- | -------------- | --------------------------------------- | -------------- |
+| Brun  | Tired          | Needs protecting                        | N/a            |
+| Fel   | Gallant knight | Broken and worthless                    | N/a            |
+| Debug | At work        | We finally get to use the DV prototcols | Work work work |
+
+# Chapter 4
 wake to brun's alarm
 and brun not getting up
 try to wake brun and fail 
@@ -68,10 +78,14 @@ give her more material to be flustered about
 TBC
 
 
-##### X's opinion of Y in Ch3
 
-|       | Brun           | Fel                                     | Debug          |
-| ----- | -------------- | --------------------------------------- | -------------- |
-| Brun  | Tired          | Needs protecting                        | N/a            |
-| Fel   | Gallant knight | Broken and worthless                    | N/a            |
-| Debug | At work        | We finally get to use the DV prototcols | Work work work |
+# Major plot points to hit not covered in work yet
+Frank visits hotel asking after Fel debug is behind the counter 
+Fel and Brun go to hospital for suspected broken bone
+Fel and Brun ask debug if it is a break
+Debug lusts after Brun
+Fel starts having explicitly gay thoughts
+Fel and Brun go to hospital and get Fel some treatment under Brun's name
+Fel gives Brun the pseudonym Princess while borrowing her name
+Debug kisses Fel due to miscommunication but they both very enjoy
+Debug, Fel and Brun share a bed platonically, Fel in the middle gets mildly assaulted by sleeping friends, likes it
