@@ -13,3 +13,8 @@ tall and built like a brick (2.1m)
 not ripped, but has toned arms from work
 breasts look smaller due to wide chest
 wears uniform in a form fitting fashion, wears loose clothing when casual
+
+demonstrated behaviors:
+self flagellate urges (slaps self over mistakes)
+holds self back from asking questions, still thinks them
+likes looking people in the eye when talking to them

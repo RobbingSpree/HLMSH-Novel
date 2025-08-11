@@ -1,7 +1,7 @@
 
 
-|       | Brun | Fel | Debug |
-| ----- | ---- | --- | ----- |
-| Brun  |      |     |       |
-| Fel   |      |     |       |
-| Debug |      |     |       |
+|              | Brun is | Fel is | Debug is |
+| ------------ | ------- | ------ | -------- |
+| Brun thinks  |         |        |          |
+| Fel thinks   |         |        |          |
+| Debug thinks |         |        |          |

@@ -1,34 +1,42 @@
 {
   "main": {
-    "id": "e1e6735cb511df73",
+    "id": "15083a4056c6cb7a",
     "type": "split",
     "children": [
       {
-        "id": "60dee9004184bfcd",
+        "id": "81bc01b1f7e170c5",
         "type": "tabs",
         "children": [
           {
-            "id": "db7010dc8961567f",
+            "id": "5bdbf91656c447b9",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "new chapters 2nd attempt/Chapter 2.md",
+                "file": "new chapters 2nd attempt/Chapter 4.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Chapter 2"
+              "title": "Chapter 4"
             }
-          }
-        ]
-      },
-      {
-        "id": "7efc948de64b8412",
-        "type": "tabs",
-        "children": [
+          },
           {
-            "id": "f8ca1d8561697798",
+            "id": "1af1fbf14aad56bd",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "OG plans and notes/story plot outline OG.md",
+                "mode": "source",
+                "source": false
+              },
+              "icon": "lucide-file",
+              "title": "story plot outline OG"
+            }
+          },
+          {
+            "id": "d4821fb577f1fc73",
             "type": "leaf",
             "state": {
               "type": "markdown",
@@ -42,49 +50,35 @@
             }
           },
           {
-            "id": "cb8c53f3403d09b4",
+            "id": "b8d89009c80b4f83",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "chapters as imported/Chapter 1.md",
+                "file": "new chapters 2nd attempt/Chapter 3.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Chapter 1"
-            }
-          },
-          {
-            "id": "15ead0cdc86edb74",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "new chapters 2nd attempt/Chapter 1.md",
-                "mode": "source",
-                "source": false
-              },
-              "icon": "lucide-file",
-              "title": "Chapter 1"
+              "title": "Chapter 3"
             }
           }
         ],
-        "currentTab": 1
+        "currentTab": 3
       }
     ],
     "direction": "vertical"
   },
   "left": {
-    "id": "b3158b4bdf4a886e",
+    "id": "da87df00866ac7be",
     "type": "split",
     "children": [
       {
-        "id": "5af2a100d189644f",
+        "id": "f57bfdf2d2b6d6f8",
         "type": "tabs",
         "children": [
           {
-            "id": "8b660e2d6a8d79d9",
+            "id": "3e6744153d59d936",
             "type": "leaf",
             "state": {
               "type": "file-explorer",
@@ -97,7 +91,7 @@
             }
           },
           {
-            "id": "2ea073cc9c96bc14",
+            "id": "d8ed99145e62512c",
             "type": "leaf",
             "state": {
               "type": "search",
@@ -114,7 +108,7 @@
             }
           },
           {
-            "id": "89923cb65bd17668",
+            "id": "cd6df3b8b86c5ead",
             "type": "leaf",
             "state": {
               "type": "bookmarks",
@@ -130,20 +124,20 @@
     "width": 300
   },
   "right": {
-    "id": "f8dd4ad6644bc0c3",
+    "id": "1a626e6ba6466a0e",
     "type": "split",
     "children": [
       {
-        "id": "b22db47e723eccd8",
+        "id": "4b27f8b580e342a7",
         "type": "tabs",
         "children": [
           {
-            "id": "9b4dbb443e1215dc",
+            "id": "3c440e4fd4ff62af",
             "type": "leaf",
             "state": {
               "type": "backlink",
               "state": {
-                "file": "chapters as imported/Chapter 1.md",
+                "file": "new chapters 2nd attempt/Chapter 3.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -153,25 +147,25 @@
                 "unlinkedCollapsed": true
               },
               "icon": "links-coming-in",
-              "title": "Backlinks for Chapter 1"
+              "title": "Backlinks for Chapter 3"
             }
           },
           {
-            "id": "8453498740a832e4",
+            "id": "9494944defda6824",
             "type": "leaf",
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "chapters as imported/Chapter 1.md",
+                "file": "new chapters 2nd attempt/Chapter 3.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               },
               "icon": "links-going-out",
-              "title": "Outgoing links from Chapter 1"
+              "title": "Outgoing links from Chapter 3"
             }
           },
           {
-            "id": "c1b90f4d1d9c34a3",
+            "id": "5b238cf80ada3f97",
             "type": "leaf",
             "state": {
               "type": "tag",
@@ -186,18 +180,18 @@
             }
           },
           {
-            "id": "377454372926beec",
+            "id": "0056a8f632cf80f0",
             "type": "leaf",
             "state": {
               "type": "outline",
               "state": {
-                "file": "chapters as imported/Chapter 1.md",
+                "file": "new chapters 2nd attempt/Chapter 3.md",
                 "followCursor": false,
                 "showSearch": false,
                 "searchQuery": ""
               },
               "icon": "lucide-list",
-              "title": "Outline of Chapter 1"
+              "title": "Outline of Chapter 3"
             }
           }
         ]
@@ -214,41 +208,44 @@
       "canvas:Create new canvas": false,
       "daily-notes:Open today's daily note": false,
       "templates:Insert template": false,
-      "command-palette:Open command palette": false
+      "command-palette:Open command palette": false,
+      "github-gitless-sync:Open sync conflicts view": false,
+      "github-gitless-sync:Sync with GitHub": false
     }
   },
-  "active": "db7010dc8961567f",
+  "active": "b8d89009c80b4f83",
   "lastOpenFiles": [
-    "chapters as imported/Chapter 1.md",
-    "new chapters 2nd attempt/Chapter 1.md",
+    "New Text Document.txt",
     "new chapters 2nd attempt/Chapter 2.md",
+    "character details/Felicity Harbor.md",
+    "new chapters 2nd attempt/Chapter 3.md",
+    "character details/Brunhilde Brown.md",
+    "new chapters 2nd attempt/Chapter 1.md",
     "new chapter plans.md",
-    "Read request post.md",
-    "chapters as imported/Chapter 0.md",
-    "chapters as imported/Chapter 2.md",
-    "chapter synopsis according to import copy.md",
+    "Chapter POV metaphores.md",
+    "new chapters 2nd attempt/Chapter 4.md",
+    "obsidian templates/Character opinion matrix.md",
+    "OG plans and notes/story plot outline OG.md",
+    "chapters_as_imported/Chapter4.md",
     "obsidian templates/chapter summary.md",
     "obsidian templates",
-    "New folder",
-    "character details/Felicity Harbor.md",
+    "new chapters 2nd attempt",
     "character details/Side characters.md",
     "character details/Debug Nolastnam.md",
-    "character details/Brunhilde Brown.md",
-    "README.md",
-    "OG plans and notes/character profiles OG.md",
-    "assumed and confirmed faults with writing.md",
-    "OG plans and notes",
-    "OG plans and notes/story plot outline OG.md",
-    "chapters as imported/Chapter 7.md",
-    "chapters as imported/Chapter 5.md",
-    "chapters as imported/Chapter 4.md",
-    "chapters as imported/Chapter 3.md",
-    "new chapters 2nd attempt",
-    "chapters",
-    "chapters as imported/Chapter 6.md",
     "character details",
-    "Welcome.md",
-    "chapters as imported",
-    "create a link.md"
+    "chapters_as_imported/Chapter7.md",
+    "chapters_as_imported/Chapter6.md",
+    "chapters_as_imported/Chapter5.md",
+    "chapters_as_imported/Chapter3.md",
+    "chapters_as_imported/Chapter2.md",
+    "chapters_as_imported/Chapter1.md",
+    "chapters_as_imported/Chapter0.md",
+    "chapters_as_imported",
+    "chapter synopsis according to import copy.md",
+    "assumed and confirmed faults with writing.md",
+    "Situations to put blorbos in.md",
+    "Read request post.md",
+    "OG plans and notes",
+    "chapters as imported"
   ]
 }

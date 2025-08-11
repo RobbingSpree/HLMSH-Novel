@@ -17,3 +17,8 @@ unhealthily skinny, bones easily visible
 no visible muscles cause she stays hydrated
 almost no boob
 has been a home body and remote worker for years so wears comphy clothes more than anything else
+
+demonstrated behaviors:
+thinks brun is sexy
+uses physical contact with others to ground self
+expects the worst is possible doesn't plan any escape for it

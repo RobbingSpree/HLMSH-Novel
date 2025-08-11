@@ -1,17 +1,17 @@
 #  chapter 1
 start on fel's escape
-can make a note on some people's more calous responses to their plight and their existing injuries do the hospital visit later doesn't seem to come from nowhere
+can make a note on their existing injuries do the hospital visit later doesn't seem to come from nowhere
 pov swap when she spots the hotel's lights
 pov swap to brun to introduce and watch fel arrive and collapse
-chapter cut once Brun has set fel down and called her boss
+chapter cut once Brun has set fel down
 
 ##### X's opinion of Y in Ch1
 
-|       | Brun     | Fel       | Debug         |
-| ----- | -------- | --------- | ------------- |
-| Brun  | Bored    | Concerned | Wants to chat |
-| Fel   | Scared   | Scared    | N/a           |
-| Debug | Dreaming | N/a       | Dreaming      |
+|       | Brun  | Fel        | Debug         |
+| ----- | ----- | ---------- | ------------- |
+| Brun  | Bored | Concerning | Wants to chat |
+| Fel   | Scary | Scared     | N/a           |
+| Debug | n/a   | N/a        | Dreaming      |
 
 # Chapter 2
 fel pov
@@ -21,13 +21,13 @@ fel falls out of bed and discoverers she's naked
 fear about the stories frank told about his police friends abducting women from shelters
 jams legs in pants, grabs shirt, notices pants are warm
 clothes feel like they're fresh out of the tumble dryer
-brun returns, fel recognizes the uniform as concierge staff and remembers they tried to get to the hotel and is relieved they are safe for now
+brun returns, fel recognizes the uniform as concierge staff and remembers they tried to get to the hotel
 brun asks if they want to take a sancturay stay, and explains it a bit
 brun takes her leave to organize that
 fel gets to muse on her circumstance and renew her hope that things are finally turning around
 pov shift to brun
 brun walks to reception and calls manager beth
-chat with beth, get reprimanded for calling fel trouble
+chat with beth, get reprimanded for calling fel Trouble
 brun goes to make food
 takes fel to her new room
 relaxes while fel eats 
@@ -37,11 +37,11 @@ share names since brun realizes they forgot to mention it
 
 ##### X's opinion of Y in Ch2
 
-|       | Brun                 | Fel        | Debug    |
-| ----- | -------------------- | ---------- | -------- |
-| Brun  | A bit of a failure   | Protective | Helpful  |
-| Fel   | Scared but improving | Battered   | N/a      |
-| Debug | Dreaming             | N/a        | Dreaming |
+|       | Brun                 | Fel              | Debug    |
+| ----- | -------------------- | ---------------- | -------- |
+| Brun  | A bit of a failure   | needs protecting | Helpful  |
+| Fel   | Scared but improving | Battered         | N/a      |
+| Debug | Dreaming             | N/a              | Dreaming |
 
 
 # Chapter 3
@@ -59,13 +59,20 @@ go back to previous thoughts, but they're tinged with lesbianism now
 
 ##### X's opinion of Y in Ch3
 
-|       | Brun           | Fel                                     | Debug          |
-| ----- | -------------- | --------------------------------------- | -------------- |
-| Brun  | Tired          | Needs protecting                        | N/a            |
-| Fel   | Gallant knight | Broken and worthless                    | N/a            |
-| Debug | At work        | We finally get to use the DV prototcols | Work work work |
+|              | Brun is        | Fel is                                  | Debug is       |
+| ------------ | -------------- | --------------------------------------- | -------------- |
+| Brun thinks  | Tired          | Needs protecting                        | N/a            |
+| Fel thinks   | Gallant knight | Broken and worthless                    | N/a            |
+| Debug thinks | didn't say hi  | We finally get to use the DV prototcols | Work work work |
+
 
 # Chapter 4
+
+Debug POV
+chilling at work, miffed brun didn't wait around to hand off as they normally do
+get some introduction to Debug
+show self preservation instincts when reading the case about Trouble
+Fel POV
 wake to brun's alarm
 and brun not getting up
 try to wake brun and fail 
@@ -75,8 +82,12 @@ POV swap to Brun
 be very lax and sleepy and heavy
 big flop onto fel
 give her more material to be flustered about
-TBC
-
+get up and make food while tired
+accidentally smash glass
+see Fel's poor reaction
+give fel a hug
+both nap again
+wake up and head back to hotel for work
 
 
 # Major plot points to hit not covered in work yet
