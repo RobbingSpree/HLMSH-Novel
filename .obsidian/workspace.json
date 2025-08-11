@@ -55,12 +55,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "new chapters 2nd attempt/Chapter 3.md",
+                "file": "new chapters 2nd attempt/Chapter 2.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Chapter 3"
+              "title": "Chapter 2"
             }
           }
         ],
@@ -215,10 +215,10 @@
   },
   "active": "b8d89009c80b4f83",
   "lastOpenFiles": [
-    "New Text Document.txt",
-    "new chapters 2nd attempt/Chapter 2.md",
-    "character details/Felicity Harbor.md",
     "new chapters 2nd attempt/Chapter 3.md",
+    "new chapters 2nd attempt/Chapter 2.md",
+    "New Text Document.txt",
+    "character details/Felicity Harbor.md",
     "character details/Brunhilde Brown.md",
     "new chapters 2nd attempt/Chapter 1.md",
     "new chapter plans.md",
