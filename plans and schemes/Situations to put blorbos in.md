@@ -1,7 +1,3 @@
----
-created: 2025-07-25T14:26:36+10:00
-modified: 2025-07-25T15:02:25+10:00
----
 
 # Situations to put blorbos in
 

@@ -2,4 +2,4 @@ reliance on she/her/name when describing actions
 speeds through events
 spelling inconsistencies (between english and american)
 minor spelling mistakes
-weird 2nd/3rd narration with weird rules
+weird 2nd/3rd person narration with weird rules

@@ -9,9 +9,9 @@ So I've started fresh, [writing from chapter 1](https://github.com/RobbingSpree/
 
 Current length of rehash:
 9000-ish words
-2 chapter(s) complete
-1 chapter in editing hell
-1 in production chapter being written
+- 2 chapter(s) complete
+- 1 chapter in editing hell
+- 1 in production chapter being written
 
 Latest posted chapter:
 None, still haven't started posting these online yet
