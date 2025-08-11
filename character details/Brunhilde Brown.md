@@ -18,3 +18,6 @@ demonstrated behaviors:
 self flagellate urges (slaps self over mistakes)
 holds self back from asking questions, still thinks them
 likes looking people in the eye when talking to them
+thinks she's cool, doesn't think she's allowed to be proud of it
+struggles to wake up
+wants to pet people like animals

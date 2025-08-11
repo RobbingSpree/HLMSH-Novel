@@ -136,7 +136,7 @@ Watching Trouble eating gave Brun the exact type of emotion she was expecting, b
 
 "Actually safe, I'm the only person who knows you came here, and we've checked you in under a pseudonym so no one can ask after you." Brun then realized this might sound like she had planned the perfect kidnapping and her internal count of crimes and failures increased once more. "My shift's over in ten minutes so I'm fine to just sit with you and do whatever you need to feel content. I'll stay by your side until you feel safe." As the words tumbled out of her mouth Brun realized she actually meant it, this was put on her mental pile of stuff to consider later. She took the room key from her pocket and placed it on Trouble's thigh.
 
-"Ohh, by the way I'm Brunhilde. You can just call me Brun." Brun interjected once more into the silence. Realizing while she still didn't know Trouble's name, they also didn't know hers. She was curious if Trouble had given her a name as she had, but held the question back.
+"Ohh, by the way I'm Brunhilde. You can just call me Brun." Brun interjected once more into the silence. Realizing while she still didn't know Trouble's name, they also didn't know hers. She was curious if Trouble had given her a name as she had for them, but held the question back.
 
 Trouble said something, but it was too quiet for Brun to hear. She sat up and shuffled closer to her and leaned in.
 

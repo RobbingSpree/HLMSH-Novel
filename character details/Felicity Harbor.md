@@ -22,3 +22,8 @@ demonstrated behaviors:
 thinks brun is sexy
 uses physical contact with others to ground self
 expects the worst is possible doesn't plan any escape for it
+mood dependent on feeling of safety and comfort
+changes name used to refer to self based on how much harm they think they're in
+easy to cry
+doesn't understand how CPTSD would make her sad
+
