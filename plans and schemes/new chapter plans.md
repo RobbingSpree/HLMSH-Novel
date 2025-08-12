@@ -83,11 +83,15 @@ be very lax and sleepy and heavy
 big flop onto fel
 give her more material to be flustered about
 get up and make food while tired
-accidentally smash glass
+accidentally drop fork
 see Fel's poor reaction
 give fel a hug
-both nap again
-wake up and head back to hotel for work
+both eat
+POV swap back to Debug
+Debug has internal thoughts about meeting Trouble
+Debug has some thoughts about Brun
+Manager Beth says some stuff to Trouble away from the game
+Debug takes the opportunity to chat to Brun
 
 
 # Major plot points to hit not covered in work yet

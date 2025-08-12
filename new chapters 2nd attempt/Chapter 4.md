@@ -66,5 +66,15 @@ That could, in a moment, strike at her heart.
 
 That fear wasn't gone.
 
-Brun found herself already at Trouble's side. Sitting on the arm of the chair they were trying to hide in, silent tears running down their face. One arm clasped around their chest protectively and the other gingerly reaching out to Brun. Sliding into the chair next to Trouble and wrapping them in a hug.
+Brun found herself already at Trouble's side. Sitting on the arm of the chair they were trying to hide in, silent tears running down their face. One arm clasped around their chest protectively and the other gingerly reaching out to Brun almost fearful to actually touch her. Brun slid into the chair next to Trouble and wrapped them in a hug. 
+
+"Love, I assure you you're safe. Don't worry that you got spooked, it's normal. Just do what you can to relax and we'll go from there." Brun felt this was the first time she'd not put her foot in her mouth reassuring Trouble. It felt unnatural so not be able to see their face, or feel them crying, but know they were incredibly distraught. Rather than actually ask or to to look, Brun would occasionally wipe tears away from their cheek and wait a moment to see if more tears would reappear. 
+
+After a while, which Brun did have to adjust herself a few times during to avoid going back to sleep, Trouble squeezed her hand and Brun too that to mean she was good to not need her snuggling quite as close.
+
+Brun got up and walked back over to the kitchen island, stopping along the way to pick up the dropped fork, and grabbed plates of now cold food for the two of them.
+
+"One of these days I'll give you freshly cooked food." Brun said as she sat down and let the silence of the room then only be broken by the sounds of eating.
+
+***
 
