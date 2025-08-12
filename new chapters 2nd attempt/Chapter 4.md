@@ -52,14 +52,19 @@ Brun noticed the piece of toast she was supposed to be buttering had been destro
 
 Focusing more on playing everything up, she put toast on one plate, egg on both, bacon on both, giving herself the bits she liked as benefit of being chef, potato rosti on both plates too, reached for the fork. And managed to, instead of pick it up, launch it like a child with no manner might. Brun watch it sail through the air and land on the tiled floor, sparing her needing to actually clean the carpet since she'd used that fork to do some of the pan cooking.
 
-The clatter of metal on tile rang through the room. Brun turned to Trouble to apologise for the noise, only to see the shadow of fear darken their face. 
+The clatter of metal on tile rang through the room. Brun turned to Trouble to apologize for the noise, only to see the shadow of fear darken their face. Brun's heart fell out of the bottom of her chest. 
 
 The fear that would drive her to risk her life in that storm.
 
-That would make her check for exits and speak as quiet as possible.
+That would make her check for exits in every room and speak as quiet as possible.
 
 That would force her to live without making a sound or leaving a trace.
 
+That had left all those cruel blemishes on her skin.
+
 That could, in a moment, strike at her heart.
 
-Brun found herself already at Trouble's side. Sitting on the arm of the chair they were trying to hide in, silent tears running down their face. One arm clasped around their
+That fear wasn't gone.
+
+Brun found herself already at Trouble's side. Sitting on the arm of the chair they were trying to hide in, silent tears running down their face. One arm clasped around their chest protectively and the other gingerly reaching out to Brun. Sliding into the chair next to Trouble and wrapping them in a hug.
+
