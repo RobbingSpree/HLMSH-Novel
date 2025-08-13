@@ -38,7 +38,7 @@ Without warning, Brunhilde shifted in her sleep and moved towards the small dent
 
 *** 
 
-Brun awoke frustrated, in her dream a delightful critter had escaped her grasp for a cuddle and she'd been so offended she had woke up.
+Brun awoke frustrated, in her dream a delightful critter had escaped her grasp for a cuddle and she'd been so offended she woke up.
 
 A tearful Trouble was trying to jostle her further awake. Brun didn't want the small thing to worry, so she pulled her into a bear hug. Almost dozing back off, she stroked Trouble's fuzzy short hair and mumbled compliments. She did wonder why Trouble was here and not at their room at the hotel as her memories of yesterday unfurled.
 
@@ -50,13 +50,13 @@ The whole time Brun cooked Trouble had her namesake as an expression. Brun pause
 
 Brun noticed the piece of toast she was supposed to be buttering had been destroyed by her absent mind and anxious hands and decided she wasn't hungry for toast. 
 
-Focusing more on plating everything up, she put toast on one plate, egg on both, bacon on both, giving herself the bits she liked as benefit of being chef, potato rosti on both plates too, reached for the fork. And managed to, instead of pick it up, launch it like a child with no manners might. Brun watch it sail through the air and land on the tiled floor.
+Focusing more on playing everything up, she put toast on one plate, egg on both, bacon on both, giving herself the bits she liked as benefit of being chef, potato rosti on both plates too, reached for the fork. And managed to, instead of pick it up, launch it like a child with no manner might. Brun watch it sail through the air and land on the tiled floor, sparing her needing to actually clean the carpet since she'd used that fork to do some of the pan cooking.
 
 The clatter of metal on tile rang through the room. Brun turned to Trouble to apologize for the noise, only to see the shadow of fear darken their face. Brun's heart fell out of the bottom of her chest. 
 
 The fear that would drive her to risk her life in that storm.
 
-That made her check for exits in every room and speak as quiet as possible.
+That would make her check for exits in every room and speak as quiet as possible.
 
 That would force her to live without making a sound or leaving a trace.
 
@@ -68,13 +68,70 @@ That fear wasn't gone.
 
 Brun found herself already at Trouble's side. Sitting on the arm of the chair they were trying to hide in, silent tears running down their face. One arm clasped around their chest protectively and the other gingerly reaching out to Brun almost fearful to actually touch her. Brun slid into the chair next to Trouble and wrapped them in a hug. 
 
-"Love, I assure you you're safe. Don't worry that you got spooked, it's normal. Just do what you can to relax and we'll go from there." Brun felt this was the first time she'd not put her foot in her mouth reassuring Trouble. It felt unnatural to not be able to see their face, or feel them crying, but know they were incredibly distraught. Rather than actually ask or try to look, Brun would occasionally wipe tears away from their cheek and wait a moment to see if more tears would reappear. 
+"Love, I assure you you're safe. Don't worry that you got spooked, it's normal. Just do what you can to relax and we'll go from there." Brun felt this was the first time she'd not put her foot in her mouth reassuring Trouble. It felt unnatural so not be able to see their face, or feel them crying, but know they were incredibly distraught. Rather than actually ask or to to look, Brun would occasionally wipe tears away from their cheek and wait a moment to see if more tears would reappear. 
 
-After a while, which Brun did have to adjust herself a few times during to avoid going back to sleep, Trouble squeezed her hand and Brun thought that to mean she was good to not need her snuggling quite as close.
+After a while, which Brun did have to adjust herself a few times during to avoid going back to sleep, Trouble squeezed her hand and Brun too that to mean she was good to not need her snuggling quite as close.
 
 Brun got up and walked back over to the kitchen island, stopping along the way to pick up the dropped fork, and grabbed plates of now cold food for the two of them.
 
-"One of these days I'll get you my cooking while it's still warm." Brun said as she sat down and let the silence of the room then only be broken by the sounds of eating.
+"One of these days I'll give you freshly cooked food." Brun said as she sat down and let the silence of the room then only be broken by the sounds of eating.
 
 ***
 
+"Don't look now." Manager Beth said as she burst into the room behind the reception where Debug was working. "But the Mama Bear is back with her cub in toe."
+
+Debug's only reply was a confused look, her mind was still on their terrible computer system that ran the hotel's security system.
+
+"Did you spend your break reading tawdry romance novels again? You sound like you ate a crossword book and gained it's powers of being utterly unfathomable." Debug gave up trying to understand what Manager Beth had meant and followed her gesturing hand back to the front desk.
+
+"I just saw Brunhilde rock up with naught but Trouble...yeah why do I talk like that after reading?" Beth was pointing out the front doors at the figures walking through the mostly empty car park.
+
+"And they're holding hands...I'm so jealous. I don't remember Bee ever being that physical. Is this the benefit to telling people your tragic backstory?" 
+
+"That was it!" Beth screamed, causing Debug to recoil away from her. "That's what got me on these books in the first place. You being a dork and implying something tragic happening to you and I said I could guess." Beth slapped her hand on the desk for emphasis.
+
+"Yeah, and you made the bold choice of reading smut. And I think you forgot the point pretty quick." Debug retreated to the main open space in the reception both in case Beth yelled again, and also cause she wasn't in a good headspace for talking about herself honestly.
+
+"I still have at least three guesses left. You said I could have five." Beth gripped the top of the reception desk eagerly.
+
+"Five was a mistake, I should have said one and shut this nonsense down years ago."
+
+"Okay, let me think, I can get this. Based on what I know about you now..." While Beth made every thinking noise imaginable, Debug turned away and tried to relax.
+
+Being anxious, even if she said nothing, could imply a correct guess.
+
+This was why she had regretted letting Beth smooth talk her into this game. A flinch or a bad memory could make work unsafe if she couldn't give a good enough excuse fast enough.
+
+Beth stopped making thinking noises.
+
+Debug bit her lip and closed her eyes. Steeling herself.
+
+"Kidnapping?"
+
+"Who's kidnapping? I didn't kidnap Trouble." Bee's voice broke the tension.
+
+Swapping one set of metaphorical armour for another, Debug turned to see Bee with a scrawny lady behind her about the same height as she was. The person, who must be Trouble, was looking in corners and seemed uncomfortable standing in the doorway. 
+
+"Like recognises like." Debug muttered to themself. "Time to hide." 
+
+Debug walked back over to the reception desk, confident Beth would fall into her work persona and wouldn't get loud anymore. 
+
+"Afternoon Brunhilde." Manager Beth said in her work voice. "And I take it this is our new Sanctuary guest you checked in last night?" Debug could feel Beth fighting to not make a pun about the pseudonym Bee had chosen.
+
+"Hi." The smallest voice Debug had ever heard answered. They must have been really going through it to sound like that, and their aggressively complete set of bruises and injuries made the same point but louder to Debug's senses. She understood why standing in Bee's shadow would help them.
+
+"Come over here to the desk, I'm the manager Beth Ahles I'll be happy to run you through the facilities you can use here and our protocols you can ask for from our helpful staff." 
+
+Debug watched them hesitate to let go of Bee's hand before going to get the lowdown from Manager Beth. With Bee's hands free, Debug swooped in to get a better read on what was going on.
+
+"Taking a lady home before the first date now? Didn't know you had such powerful charisma." Debug lied, not seeing a better way to get a straight answer from someone as honest as Bee than insulting them.
+
+"Don't. I couldn't not do something. They looked so in need of help. And I can help, I know people find someone as tall as me off putting, so if I can ward of some abusive jerk, I'll keep them near as long as they need." Bee looked hurt, like they had been hounding themself on the same topic and still had no better answer. Their words hurt Debug too, being vulnerable and asking for help was impossible, and if that was what would take to get Bee's attention then all her flirting and efforts until now and from now on would be pointless.
+
+Setting that problem aside forever, Debug swapped modes and started complaining about work.
+
+"Bad jokes aside, Beth says she's essentially never putting us on the same shift again. Says she's gonna train us to be day and night manager or something bogus." Debug pushed Bee's attention back over to her puppy and Manager Beth to give herself a moment to refocus and stay calm. 
+
+"Ohh, is that what she meant when she kept making cryptic comments about future plans. She can just tell us stuff, ya know? Did she get like this from reading those dramatic books of hers?" Brunhilde didn't turn back to face Debug, they simply kept watch as Manager Beth and Trouble spoke.
+
+Debug felt another wall raise up between them.

@@ -92,7 +92,9 @@ Debug has internal thoughts about meeting Trouble
 Debug has some thoughts about Brun
 Manager Beth says some stuff to Trouble away from the game
 Debug takes the opportunity to chat to Brun
-
+Tries to probe about Trouble
+Complains she didn't come say hi at the start of her shift
+Has mixed feelings about Trouble due to her own past
 
 # Major plot points to hit not covered in work yet
 Frank visits hotel asking after Fel debug is behind the counter 

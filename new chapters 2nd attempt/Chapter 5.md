@@ -1,0 +1,1 @@
+Trouble felt like a balloon on a string tied to Brunhilde's wrist.
