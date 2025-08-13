@@ -38,7 +38,7 @@ Without warning, Brunhilde shifted in her sleep and moved towards the small dent
 
 *** 
 
-Brun awoke frustrated, in her dream a delightful critter had escaped her grasp for a cuddle and she'd been so offended she woke up.
+Brun awoke frustrated, in her dream a delightful critter had escaped her grasp for a cuddle and she'd been so offended she had woke up.
 
 A tearful Trouble was trying to jostle her further awake. Brun didn't want the small thing to worry, so she pulled her into a bear hug. Almost dozing back off, she stroked Trouble's fuzzy short hair and mumbled compliments. She did wonder why Trouble was here and not at their room at the hotel as her memories of yesterday unfurled.
 
@@ -50,13 +50,13 @@ The whole time Brun cooked Trouble had her namesake as an expression. Brun pause
 
 Brun noticed the piece of toast she was supposed to be buttering had been destroyed by her absent mind and anxious hands and decided she wasn't hungry for toast. 
 
-Focusing more on playing everything up, she put toast on one plate, egg on both, bacon on both, giving herself the bits she liked as benefit of being chef, potato rosti on both plates too, reached for the fork. And managed to, instead of pick it up, launch it like a child with no manner might. Brun watch it sail through the air and land on the tiled floor, sparing her needing to actually clean the carpet since she'd used that fork to do some of the pan cooking.
+Focusing more on plating everything up, she put toast on one plate, egg on both, bacon on both, giving herself the bits she liked as benefit of being chef, potato rosti on both plates too, reached for the fork. And managed to, instead of pick it up, launch it like a child with no manners might. Brun watch it sail through the air and land on the tiled floor.
 
 The clatter of metal on tile rang through the room. Brun turned to Trouble to apologize for the noise, only to see the shadow of fear darken their face. Brun's heart fell out of the bottom of her chest. 
 
 The fear that would drive her to risk her life in that storm.
 
-That would make her check for exits in every room and speak as quiet as possible.
+That made her check for exits in every room and speak as quiet as possible.
 
 That would force her to live without making a sound or leaving a trace.
 
@@ -68,13 +68,13 @@ That fear wasn't gone.
 
 Brun found herself already at Trouble's side. Sitting on the arm of the chair they were trying to hide in, silent tears running down their face. One arm clasped around their chest protectively and the other gingerly reaching out to Brun almost fearful to actually touch her. Brun slid into the chair next to Trouble and wrapped them in a hug. 
 
-"Love, I assure you you're safe. Don't worry that you got spooked, it's normal. Just do what you can to relax and we'll go from there." Brun felt this was the first time she'd not put her foot in her mouth reassuring Trouble. It felt unnatural so not be able to see their face, or feel them crying, but know they were incredibly distraught. Rather than actually ask or to to look, Brun would occasionally wipe tears away from their cheek and wait a moment to see if more tears would reappear. 
+"Love, I assure you you're safe. Don't worry that you got spooked, it's normal. Just do what you can to relax and we'll go from there." Brun felt this was the first time she'd not put her foot in her mouth reassuring Trouble. It felt unnatural to not be able to see their face, or feel them crying, but know they were incredibly distraught. Rather than actually ask or try to look, Brun would occasionally wipe tears away from their cheek and wait a moment to see if more tears would reappear. 
 
-After a while, which Brun did have to adjust herself a few times during to avoid going back to sleep, Trouble squeezed her hand and Brun too that to mean she was good to not need her snuggling quite as close.
+After a while, which Brun did have to adjust herself a few times during to avoid going back to sleep, Trouble squeezed her hand and Brun thought that to mean she was good to not need her snuggling quite as close.
 
 Brun got up and walked back over to the kitchen island, stopping along the way to pick up the dropped fork, and grabbed plates of now cold food for the two of them.
 
-"One of these days I'll give you freshly cooked food." Brun said as she sat down and let the silence of the room then only be broken by the sounds of eating.
+"One of these days I'll get you my cooking while it's still warm." Brun said as she sat down and let the silence of the room then only be broken by the sounds of eating.
 
 ***
 
