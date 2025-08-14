@@ -96,6 +96,27 @@ Tries to probe about Trouble
 Complains she didn't come say hi at the start of her shift
 Has mixed feelings about Trouble due to her own past
 
+# chapter 5
+Open on trouble feeling conflicted and not feeling comfortable in her hotel room
+Hanging out in Brun's vicinity while she works
+Has a bit of a panic attack by feeling a positive emotion too hard
+POV swap to Brun 
+Brun gets food
+Brings to trouble
+Asks about their injuries and if they have anything serious
+Asks about dominant hand
+Tries to hold both hands at once
+Accidental makes broken arm pain real bad
+Gets to watch them go pale and doesn't know why
+POV swap back to Trouble 
+Describe the terrible pain and side effects 
+POV swap to debug
+Get a call from Brun about injury
+ID it as likely fracture and tell them to go to hospital 
+Keep following up with Brun on strategy of how to go to hospital and avoid trouble leaving a paper trail
+Have bad thoughts about how Brun will think of her now she knows they are skilled in identity theft and injury treatment 
+Chapter end?
+
 # Major plot points to hit not covered in work yet
 Frank visits hotel asking after Fel debug is behind the counter 
 Fel and Brun go to hospital for suspected broken bone
