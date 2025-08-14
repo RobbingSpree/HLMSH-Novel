@@ -3,6 +3,9 @@ blurb: workaholic with issues focusing on the immediate future, likes to care fo
 flaws: 
 - poor self worth
 - oblivious to the opinions of others
+- demeans herself over perceived failures
+- holds self to a very high standard she applies to no one else
+- heavy and active sleeper
 
 starting point of the story: neglectful of herself and overly focused on the wellbeing of others
 

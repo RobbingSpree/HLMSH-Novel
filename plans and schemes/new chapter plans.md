@@ -103,6 +103,24 @@ Fel and Brun ask debug if it is a break
 Debug lusts after Brun
 Fel starts having explicitly gay thoughts
 Fel and Brun go to hospital and get Fel some treatment under Brun's name
+Debug covers Brun's half a shift 
 Fel gives Brun the pseudonym Princess while borrowing her name
+Upon returning to the hotel Fel realises it's Sunday and her work needs stuff from home, laptop, phone and such 
+Debug finds them worrying in the parking lot (looks like a cuddle)
+Suggests they do crime
+Everyone jumps in the hotel car and drives to Fel's house
+Debug picks the lock and they sweep the house for stuff Fel needs
+Drive back to hotel and Fel is very overwhelmed by her day at the hospital and home
 Debug kisses Fel due to miscommunication but they both very enjoy
+Brun almost catches then kissing and only notices debug
+Brun is confused and didn't know debug was such a powerful player to bring a friend to work just to make out
 Debug, Fel and Brun share a bed platonically, Fel in the middle gets mildly assaulted by sleeping friends, likes it
+Fel asks debug if she can get another kiss from them when she's particularly anxious, gets a yes
+Beth sees debug and Fel kiss on the security camera
+Asks debug if Fel has blackmail on her, cause Beth suspects Fel of also being abusive
+Beth tries to reassure debug, who relaxes for a moment and then when Beth finally gets debug to let her touch her asks if that was how Fel to got her too
+Debug flees from emotional damage
+Beth doesn't understand her mistake 
+Brun sees debug leave through a window and is confused 
+With debug gone Fel has to ask Brun for a kiss when they get too anxious
+Brun puts two and two together and feels a lot of emotions knowing the person she saw debug with was fel

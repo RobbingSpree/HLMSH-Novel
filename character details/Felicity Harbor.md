@@ -9,6 +9,8 @@ flaws:
 starting point of the story: Like a puppy, wondering around and following whoever has her, develops a bad relationship with physical affection
 
 Name: flipflops between using Felicity and Trouble depending on mood once Brun has dubbed her so.
+Uses Felicity when scared, worried, anxious or actively suffering
+Uses Trouble when happy, safe, in an embrace, holding someone's hand
 
 appearance: 
 pale skin, splotched with bruises (at the start of the story, eventually the bruises fade)

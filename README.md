@@ -8,9 +8,9 @@ But I found issues with forgetting to keep track of what time of day it was and 
 So I've started fresh, [writing from chapter 1](https://github.com/RobbingSpree/HLMSH-Novel/blob/main/new%20chapters%202nd%20attempt/Chapter%201.md) again.
 
 Current length of rehash:
-9000-ish words
+12000-ish words
 - 2 chapter(s) complete
-- 1 chapter in editing hell
+- 2 chapter in editing hell
 - 1 in production chapter being written
 
 Latest posted chapter:

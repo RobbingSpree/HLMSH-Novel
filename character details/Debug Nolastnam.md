@@ -1,8 +1,11 @@
 blurb: kidnap and abuse survivor trying to ignore her own past and herself
 
 flaws: 
-- torments self with perceived slights and failures
+- jealous of the success others have that she could have if she put herself at risk
 - forgets long term plans when they stop actively working on them
+- agrees to things in the heat of the moment
+- ends up trapping herself when her past is discussed as she both wants to share and is scared to
+- is very aware of the personas she puts on with people and that almost every encounter is fake due to not barong her true self
 
 starting point of the story: crushing on coworker, frivolously spending time learning new skills they don't need
 
