@@ -114,8 +114,69 @@ POV swap to debug
 Get a call from Brun about injury
 ID it as likely fracture and tell them to go to hospital 
 Keep following up with Brun on strategy of how to go to hospital and avoid trouble leaving a paper trail
-Have bad thoughts about how Brun will think of her now she knows they are skilled in identity theft and injury treatment 
-Chapter end?
+Mistake about caller ID, think beth is calling
+Brun asks them to cover the end of her shift so she can take trouble to hospital
+
+## Chapter 6
+
+POV Trouble
+Reflect on leaving the hotel with Debug taking back over shift and introducing themself as the crime commissioner 
+Brun and trouble discuss pseudonym for Brun to use while at hospital 
+Debug's comment of not being a known associate yet means they can't simply swap names
+Trouble learns Brun's surname
+Brun asks what Fel's full name is (neglects to say she forgot her first name)
+Get triaged and sit down
+POV swap to Debug
+Debug is trying to avoid Beth
+Gets suspect about door not staying closed
+On high alert cause of Beth concerns
+Finds suspect car outside
+Calls Beth
+Gets her to go take a suripticious photo from cafe across the street
+Beth asks why she knows this stuff
+POV swap back to Brun
+Gets rumbled for faking identity
+Says its about a domestic abuse victim who can't leave a trace the police might find
+Nurse reminds Brun that a different jurisdiction of police outside their influence will need to find something so they can make a DV charge stick
+Brun gives up Fel's name but doesn't tell her
+POV swap to trouble
+Walking back to hotel
+Starts to worry about tomorrow with no good way to contact work
+Gets to hotel car park and gets frustrated 
+Doesn't know what to do and neither does Brun
+Brun isn't saying anything and just trying to console 
+POV swap to Debug
+Trying to not have chat with Beth
+Sees Brun and Fel approach
+Goes out to ask them about suspicious guy 
+Sees them hugging
+Assumes they're having a good time while she's suffering
+Gets close, and realises mistake
+Debug announces herself as the crime commissioner to remind trouble they've already spoken
+Trouble asks for crime of breaking and entering
+Debug corrects her that it's neither since it's her house
+But agrees
+Asks why they're doing it though
+Talks about the car the hotel accidentally stole
+Commit to doing fake crime
+
+
+## chapter 7
+Do B&E
+Go back to hotel
+Leave trouble in car since she's kinda out of it
+Debug sent back out while Brun makes a nest in troubles room
+Debug asks trouble about suspicious man from earlier 
+Trouble breaks down scared
+Debug and trouble end up making out
+Brun comes back and finds someone making out behind reception desk
+Tries to leave, recognises debug as one of the people
+Leaves
+Debug and trouble go to troubles room 
+All sleep in bed together 
+Trouble gets a lot of physical attention from the others 
+Enjoys it
+
 
 # Major plot points to hit not covered in work yet
 Frank visits hotel asking after Fel debug is behind the counter 
