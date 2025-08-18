@@ -96,6 +96,14 @@ Tries to probe about Trouble
 Complains she didn't come say hi at the start of her shift
 Has mixed feelings about Trouble due to her own past
 
+
+|              | Brun is    | Fel is   | Debug is     |
+| ------------ | ---------- | -------- | ------------ |
+| Brun thinks  | a mess     | precious | cranky       |
+| Fel thinks   | god's gift | broken   | normal       |
+| Debug thinks | rude       | normal   | off her game |
+
+
 # chapter 5
 Open on trouble feeling conflicted and not feeling comfortable in her hotel room
 Hanging out in Brun's vicinity while she works
@@ -116,6 +124,13 @@ ID it as likely fracture and tell them to go to hospital
 Keep following up with Brun on strategy of how to go to hospital and avoid trouble leaving a paper trail
 Mistake about caller ID, think beth is calling
 Brun asks them to cover the end of her shift so she can take trouble to hospital
+
+
+|              | Brun is         | Fel is      | Debug is |
+| ------------ | --------------- | ----------- | -------- |
+| Brun thinks  | bruteish        | delicate    | helpful  |
+| Fel thinks   | protective      | very broken | curious  |
+| Debug thinks | making mistakes | like her    | at risk  |
 
 ## Chapter 6
 
@@ -161,6 +176,13 @@ Talks about the car the hotel accidentally stole
 Commit to doing fake crime
 
 
+|              | Brun is | Fel is | Debug is |
+| ------------ | ------- | ------ | -------- |
+| Brun thinks  |         |        |          |
+| Fel thinks   |         |        |          |
+| Debug thinks |         |        |          |
+
+
 ## chapter 7
 Do B&E
 Go back to hotel
@@ -178,25 +200,16 @@ Trouble gets a lot of physical attention from the others
 Enjoys it
 
 
+|              | Brun is | Fel is | Debug is |
+| ------------ | ------- | ------ | -------- |
+| Brun thinks  |         |        |          |
+| Fel thinks   |         |        |          |
+| Debug thinks |         |        |          |
+
+
 # Major plot points to hit not covered in work yet
-Frank visits hotel asking after Fel debug is behind the counter 
-Fel and Brun go to hospital for suspected broken bone
-Fel and Brun ask debug if it is a break
-Debug lusts after Brun
-Fel starts having explicitly gay thoughts
-Fel and Brun go to hospital and get Fel some treatment under Brun's name
-Debug covers Brun's half a shift 
-Fel gives Brun the pseudonym Princess while borrowing her name
-Upon returning to the hotel Fel realises it's Sunday and her work needs stuff from home, laptop, phone and such 
-Debug finds them worrying in the parking lot (looks like a cuddle)
-Suggests they do crime
-Everyone jumps in the hotel car and drives to Fel's house
-Debug picks the lock and they sweep the house for stuff Fel needs
-Drive back to hotel and Fel is very overwhelmed by her day at the hospital and home
-Debug kisses Fel due to miscommunication but they both very enjoy
-Brun almost catches then kissing and only notices debug
-Brun is confused and didn't know debug was such a powerful player to bring a friend to work just to make out
-Debug, Fel and Brun share a bed platonically, Fel in the middle gets mildly assaulted by sleeping friends, likes it
+Frank visits hotel asking after Fel debug is behind the counter (not sure about this)
+**for chapter 8+**
 Fel asks debug if she can get another kiss from them when she's particularly anxious, gets a yes
 Beth sees debug and Fel kiss on the security camera
 Asks debug if Fel has blackmail on her, cause Beth suspects Fel of also being abusive

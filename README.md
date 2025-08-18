@@ -13,5 +13,17 @@ Current length of rehash:
 - 3 chapter in editing hell
 - 1 in production chapter being written
 
+
+| Chapter | approx length | chapter summary |
+| ------- | ------------- | --------------- |
+| 1       | 2700          | inaccurate      |
+| 2       | 2900          | inaccurate      |
+| 3       | 3000          | inaccurate      |
+| 4       | 2200          | inaccurate      |
+| 5       | 3100          | done            |
+| 6       |               | written         |
+| 7       |               | written         |
+
+
 Latest posted chapter:
 None, still haven't started posting these online yet
