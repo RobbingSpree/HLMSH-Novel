@@ -2,9 +2,9 @@ The front door stood imposing and closed at the far end of the room. Felicity wa
 
 Frank had just come home through that door, and as usual he smelled of alcohol and self-righteous anger. He had blown through the room like a megaphone attached to a vacuum, but Felicity didn't trust him to stay loud and harmless for long. He was sure to find something that upset him and lash out, and the last few days he'd been getting more and more aggressive with how he let that frustration spill out.
 
-Felicity also worried that she wouldn't get very far. Frank had been deadbolting the door when he left for work, functionally locking her in her own home. All the windows had bars and didn't open, and she was too scared of what Frank might do if she tried breaking one to escape, and due to all that she hadn't stepped foot outside in over a week.
+Felicity also worried that she wouldn't get very far. Frank had been dead-bolting the door when he left for work, functionally locking her in her own home. All the windows had bars and didn't open, and she was too scared of what Frank might do if she tried breaking one to escape, and due to all that she hadn't stepped foot outside in over a week.
 
-The time had come, and a whole day of trying to think about escape plans wasn't helping now the moment to act was upon her. The best she had come up with, was claiming to need to walk to the nearby grocer to grab a loaf of bread since the unexpected humidity had caused theirs to turn. When Frank had come in blustering, ranting about something Felicity knew he didn't care about, he hadn't deadbolted the door. Felicity realized this might be her only chance for a long while.
+The time had come, and a whole day of trying to think about escape plans wasn't helping now the moment to act was upon her. The best she had come up with, was claiming to need to walk to the nearby grocer to grab a loaf of bread since the unexpected humidity had caused theirs to turn. When Frank had come in blustering, ranting about something Felicity knew he didn't care about, he hadn't dead-bolted the door. Felicity realized this might be her only chance for a long while.
 
 "Actually, that reminds me..." Her timid voice doing it's best to carry to the other end of the house. "The bread turned moldy and I wanted to have some egg on toast for breakfast..." A pause built, Felicity straining her ears to glean anything from the noises of the house and ignore any sounds that came through their thin walls. "So I'm just going to pop to the shop and get some!" Not wanting to give either Frank enough time to think about it or herself more time to panic and catastrophize, Felicity got up from her desk and turned to leave.
 
@@ -20,7 +20,7 @@ Felicity started running.
 
 The weather outside was oppressive, thunderhead clouds loomed ominously and the humidity made it feel you could cut the air with a knife. The low ceiling of clouds seemed to make all sounds muffled, and the lack of anyone else out at this time of day made the world seem empty. It was a bit early for spring storms, but they arrived regardless. The fading light of the sunset being smothered by the overhead ceiling of clouds caused the streetlights to turn on early.
 
-She wanted to scream, with exuberance, with panic, with frustration, but that would be for when she was properly free, not just on the run. her lungs heaved and her feet pounding bare on the pavement, she had entirely forgotten to put on any shoes, but as long as the storm didn't break she wouldn't have any trouble.
+She wanted to scream, with exuberance, with panic, with frustration, but that would be for when she was properly free, not just on the run. Her lungs heaved and her feet pounding bare on the pavement, she had entirely forgotten to put on any shoes, but as long as the storm didn't break she wouldn't have any trouble.
 
 The storm broke minutes later and began dumping bucket after bucket of rain down on the city, and shortly after winds began to blow. Felicity was sure no one would be foolish enough to follow out in this weather, which should give her a solid head start, now she just needed to capitalize on it. The rain was warm and sun kissed and helped relieve her complaining muscles as she ran.
 
@@ -50,7 +50,7 @@ This evening's storm had been a complete surprise to Brun. What little sky she c
 
 An hour ago, when her coworker had left after their shift, they'd come straight back inside cursing the world and announcing their intent to steal some of the bottled water they kept in the supply closet. Brun had simply thought they'd been theatrical and exaggerated for fun, but this storm told another story.
 
-In the present the wind howled, and rain lashed the ground right up to the decorative tiles at the front door of the hotel. It came in sheets, wave after wave of rain, only visible in the darkness when it struck the ground and caught the street lights, sweeping across the carpark. Sometimes the wind would abruptly shift and the waves would break and scatter in various directions. It was mesmerizing to watch.
+In the present the wind howled, and rain lashed the ground right up to the decorative tiles at the front door of the hotel. It came in sheets, wave after wave of rain, only visible in the darkness when it struck the ground and caught the street lights, sweeping across the car park. Sometimes the wind would abruptly shift and the waves would break and scatter in various directions. It was mesmerizing to watch.
 
 So far, two groups of rain soaked guests and a tumbling bucket had deigned to come in, bringing an entourage of puddles and extra work for Brun. As such, she now stood vigil waiting for the next person or debris unfortunate enough to come in and force her to do her job.
 
@@ -58,9 +58,9 @@ Brun enjoyed the evening shifts, normally quiet and people free. She could roam 
 
 She had a real weakness for injured or maligned animals. Their delicate tiny bodies that she could fit into her lap and experience their fluffiness. She'd considered asking her coworker if she could fluff their hair since they'd got an undercut and it looked especially soft, but with her own long braids that everyone knew weren't to be touched freely, she felt a bit socially trapped and simply didn't mention it.
 
-Movement outside caught Brun's attention. At the edge of the carpark she could see something moving. She would cry if it was some sad, wet animal that had been caught out in the storm.
+Movement outside caught Brun's attention. At the edge of the car park she could see something moving. She would cry if it was some sad, wet animal that had been caught out in the storm.
 
-Instead, as the figure grew closer and the lights in the carpark finally showed their full height, Brun had to admit it was a human.  She was unsure what to do about them, they had no bags and appeared to not be wearing much clothes, making it unclear if they were a guest.
+Instead, as the figure grew closer and the lights in the car park finally showed their full height, Brun had to admit it was a human.  She was unsure what to do about them, they had no bags and appeared to not be wearing much clothes, making it unclear if they were a guest.
 
 Brun walked back behind the reception desk to check for any expected arrivals left for tonight and found nothing. She watched them trudge closer and closer, swaying dangerously as the wind buffeted them. As they got closer still, she was able to make out tattoos on their arms and face. Were they just a person who lived nearby and had gotten locked out? The neighborhood near the hotel was mostly upper class houses, and when she had a day shift she had noted that the cafes nearby were filled with artistic looking people.
 
@@ -82,13 +82,13 @@ As Brun carried their armful of person, trying her best to walk in such a way th
 
 She hip checked the door to bop the handle down and door open in one practiced move, before cautiously sidling into the cramped room and regretting her choice of destination.
 
-"...You take... you take clothes off a wet and cold person, right?" Brun asked herself, unsure if there would be much difference in what she could see of this person weather clothed or not with how poor a job their wet clothes were doing.
+"...You take... you take clothes off a wet and cold person, right?" Brun asked herself, unsure if there would be much difference in what she could see of this person whether clothed or not with how poor a job their wet clothes were doing.
 
 She placed them on the floor in a siting pose and peeled their shirt off. She furrowed her brow upon seeing their bare, mostly flat chest.
 
 "Are you a woman, troubled one?" She asked, expecting no answer and sure she'd get an answer in a moment when she removed their pants.
 
-The drawstring had been doing the majority of the work keeping their pants up, because as soon as the knot was undone and they were lifted back into Brun's arms their pants stayed exactly where they sat moments earlier sliding cleanly off them. Brun nodded at their plain looking women's underwear.
+The drawstring had been doing the majority of the work keeping their pants up, because as soon as the knot was undone and they were lifted back into Brun's arms their pants stayed exactly where they sat moments earlier sliding cleanly off. Brun nodded at their plain looking women's underwear.
 
 "OK then, Trouble, let's get you in bed and then I'll get all the crinkly fire blankets to help keep you warm." She said as she placed the unconscious woman in the cot. "And I'll get you a warm wheat bag thing Manager Beth keeps around for period pain."
 

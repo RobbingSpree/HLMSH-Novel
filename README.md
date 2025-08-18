@@ -27,3 +27,9 @@ Current length of rehash:
 
 Latest posted chapter:
 None, still haven't started posting these online yet
+
+Synopsis:
+
+Brunhilde loves small and delicate critters, when a domestic violence victim falls over in front of her, her desire to protect the small and weak takes over and she hides them at the hotel she works at.
+Felicity assumes it's only natural that everyone seems to mistreat her until she meets a tall, brooding woman who takes care of her like a knight in shining armor.
+Debug has been trying to keep her colleagues at arms length assuming the worst, she harmlessly flirts with her work friend Bee and diverts her manager from probing her past, but meeting a fellow survivor in Trouble opens her to the desire to wanting to try letting people in.
