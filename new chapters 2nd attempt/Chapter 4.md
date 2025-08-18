@@ -84,7 +84,7 @@ She'd been using her nail to pry open the key rings that held the hotel security
 
 "Don't look now." Manager Beth said as she burst into the room behind the reception where Debug was working. "But the Mama Bear is back with her cub in toe."
 
-Debug's only reply was a confused look, her mind was still on the nonsense Manager Beth had asked her to get started on. 
+Debug's only reply was a confused look, her mind was still on the previous nonsense Manager Beth had asked her to get started on. 
 
 "Did you spend your break reading tawdry romance novels again? You sound like you ate a crossword book and gained it's powers of being utterly unfathomable." Debug gave up trying to understand what Manager Beth had meant and followed her gesturing hand back to the front desk.
 
@@ -102,9 +102,7 @@ Debug's only reply was a confused look, her mind was still on the nonsense Manag
 
 "Okay, let me think, I can get this. Based on what I know about you now..." While Beth made every thinking noise imaginable, Debug turned away and tried to relax.
 
-Being anxious, even if she said nothing, could imply a correct guess.
-
-This was why she had regretted letting Beth smooth talk her into this game. A flinch or a bad memory could make work unsafe if she couldn't give a good enough excuse fast enough.
+Being anxious, even if she said nothing, could imply a correct guess. And then even if she denied Beth's enthusiasm she'd never hear the end of it. This was why she had regretted letting Beth smooth talk her into this game. A flinch or a bad memory could make work unsafe if she couldn't give a good enough excuse fast enough.
 
 Beth stopped making thinking noises.
 
@@ -114,15 +112,15 @@ Debug bit her lip and closed her eyes. Steeling herself.
 
 "Who's kidnapping? I didn't kidnap Trouble." Bee's voice broke the tension.
 
-Swapping one set of metaphorical armour for another, Debug turned to see Bee with a scrawny lady behind her about the same height as she was. The person, who must be Trouble, was looking in corners and seemed uncomfortable standing in the doorway. 
+Swapping one set of metaphorical armour for another, Debug turned to see Bee with a scrawny lady behind them about the same height as she was. The person, who must be Trouble, was looking in corners and seemed uncomfortable standing in the doorway. 
 
-"Like recognises like." Debug muttered to themself. "Time to hide." 
+"Like recognizes like." Debug muttered to themself. "Time to hide." 
 
 Debug walked back over to the reception desk, confident Beth would fall into her work persona and wouldn't get loud anymore. 
 
-"Afternoon Brunhilde." Manager Beth said in her work voice. "And I take it this is our new Sanctuary guest you checked in last night?" Debug could feel Beth fighting to not make a pun about the pseudonym Bee had chosen.
+"Afternoon Brunhilde." Manager Beth said in her work voice. "And I take it this is our new sanctuary guest you checked in last night?" Debug could feel Beth fighting to not make a pun about the pseudonym Bee had chosen the air practically vibrated with their thoughts.
 
-"Hi." The smallest voice Debug had ever heard answered. They must have been really going through it to sound like that, and their aggressively complete set of bruises and injuries made the same point but louder to Debug's senses. She understood why standing in Bee's shadow would help them.
+"Hi." The smallest voice Debug had ever heard answered. They must have been really going through it to sound like that, and their aggressively complete set of bruises and injuries made the same point but louder to Debug's reckoning. She understood why standing in Bee's shadow would help them.
 
 "Come over here to the desk, I'm the manager Beth Ahles I'll be happy to run you through the facilities you can use here and our protocols you can ask for from our helpful staff." 
 
@@ -130,7 +128,7 @@ Debug watched them hesitate to let go of Bee's hand before going to get the lowd
 
 "Taking a lady home before the first date now? Didn't know you had such powerful charisma." Debug lied, not seeing a better way to get a straight answer from someone as honest as Bee than insulting them.
 
-"Don't. I couldn't not do something. They looked so in need of help. And I can help, I know people find someone as tall as me off putting, so if I can ward of some abusive jerk, I'll keep them near as long as they need." Bee looked hurt, like they had been hounding themself on the same topic and still had no better answer. Their words hurt Debug too, being vulnerable and asking for help was impossible, and if that was what would take to get Bee's attention then all her flirting and efforts until now and from now on would be pointless.
+"Don't. I couldn't not do something. They looked so in need of help. And I can help, I know people find someone as tall as me off putting, so if I can ward of some abusive jerk, I'll keep them near as long as they need." Bee looked hurt, like they had been hounding themself on the same topic and still had no better answer. Their words hurt Debug too, being vulnerable and asking for help was impossible in her mind, and if that was what would take to get Bee's attention...then all her flirting and efforts until now and since would be pointless.
 
 Setting that problem aside forever, Debug swapped modes and started complaining about work.
 
@@ -139,3 +137,6 @@ Setting that problem aside forever, Debug swapped modes and started complaining 
 "Ohh, is that what she meant when she kept making cryptic comments about future plans. She can just tell us stuff, ya know? Did she get like this from reading those dramatic books of hers?" Brunhilde didn't turn back to face Debug, they simply kept watch as Manager Beth and Trouble spoke.
 
 Debug felt another wall raise up between them.
+
+{scene continues here}
+{include handover between brun and debug}

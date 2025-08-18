@@ -12,6 +12,7 @@ Current length of rehash:
 - 2 chapter(s) complete
 - 3 chapter in editing hell
 - 1 in production chapter being written
+- 1 in pre-production planning
 
 
 | Chapter | approx length | chapter summary |
@@ -19,14 +20,18 @@ Current length of rehash:
 | 1       | 2700          | inaccurate      |
 | 2       | 2900          | inaccurate      |
 | 3       | 3000          | inaccurate      |
-| 4       | 2200          | inaccurate      |
+| 4       | 2300          | inaccurate      |
 | 5       | 3100          | done            |
 | 6       |               | written         |
 | 7       |               | written         |
 
 
 Latest posted chapter:
-None, still haven't started posting these online yet
+1
+to:
+Royal Road: https://www.royalroad.com/author-dashboard
+Wattpad: https://www.wattpad.com/myworks/395478580-her-love-makes-safe-harbors
+ScribbleHub: https://www.scribblehub.com/series/1708024/her-love-makes-safe-harbors/
 
 Synopsis:
 
