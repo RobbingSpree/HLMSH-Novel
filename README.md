@@ -12,6 +12,7 @@ Current length of rehash:
 - 2 chapter(s) complete
 - 3 chapter in editing hell
 - 1 in production chapter being written
+- 1 chapt in pre-prod planning
 
 
 | Chapter | approx length | chapter summary |
@@ -30,6 +31,6 @@ None, still haven't started posting these online yet
 
 Synopsis:
 
-Brunhilde loves small and delicate critters, when a domestic violence victim falls over in front of her, her desire to protect the small and weak takes over and she hides them at the hotel she works at.
+Brunhilde loves small and delicate creatures, when she meets a lady on a cold and rainy night she can only describe as a small creature in need she finds herself drawn to go out on a limb and help her too. 
 Felicity assumes it's only natural that everyone seems to mistreat her until she meets a tall, brooding woman who takes care of her like a knight in shining armor.
 Debug has been trying to keep her colleagues at arms length assuming the worst, she harmlessly flirts with her work friend Bee and diverts her manager from probing her past, but meeting a fellow survivor in Trouble opens her to the desire to wanting to try letting people in.

@@ -30,7 +30,7 @@ She took a moment to pause, as her senses slowly told her something nice had hap
 
 Felicity heard the door she had yet to investigate open, and quick as a flash held her shirt up to cover her petite chest and modesty while staying facing away from it.
 
-"Morning Trouble, I'm glad to see you up on your feet after last night. Let me get a look at you." A voice with a gentle rasp she didn't know spoke behind her. Felicity checked to see if the mirror showed who had come in, but it pointed the wrong way. Before she think further, rough, work-worn hands gripped her shoulders and bid her to turn around and she prepared to defend herself.
+"Morning Trouble, I'm glad to see you up on your feet after last night. Let me get a look at you." A voice with a gentle rasp she didn't know spoke behind her. Felicity checked to see if the mirror showed who had come in, but it pointed the wrong way to help. Before she think further, rough, work-worn hands gripped her shoulders and bid her to turn around and she prepared to defend herself.
 
 Once turned around, Felicity found herself staring at the clavicle and neck of a dark skinned woman. Looking up, she found herself staring harder at the face of that woman. A warm smile, kind eyes, and a single braid that had escaped the bun of them atop her head. The stark difference between the warm brown of her skin and the deep black of her hair held her in rapt attention.
 
