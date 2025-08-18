@@ -16,3 +16,4 @@ being annoyed by circumstances
 inanimate objects having a bad time
 
 ## chapter 6
+taking charge of situation
