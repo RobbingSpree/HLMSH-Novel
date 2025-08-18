@@ -78,13 +78,17 @@ Brun got up and walked back over to the kitchen island, stopping along the way t
 
 ***
 
+Debug looked annoyed at her nails, as a single break ran almost entirely across the one she'd been using.
+
+She'd been using her nail to pry open the key rings that held the hotel security fobs onto their room tags and after a solid hour of work she had finally hit a setback. And without a flathead on hand she'd have to give this project up again.
+
 "Don't look now." Manager Beth said as she burst into the room behind the reception where Debug was working. "But the Mama Bear is back with her cub in toe."
 
-Debug's only reply was a confused look, her mind was still on their terrible computer system that ran the hotel's security system.
+Debug's only reply was a confused look, her mind was still on the nonsense Manager Beth had asked her to get started on. 
 
 "Did you spend your break reading tawdry romance novels again? You sound like you ate a crossword book and gained it's powers of being utterly unfathomable." Debug gave up trying to understand what Manager Beth had meant and followed her gesturing hand back to the front desk.
 
-"I just saw Brunhilde rock up with naught but Trouble...yeah why do I talk like that after reading?" Beth was pointing out the front doors at the figures walking through the mostly empty car park.
+"I just saw Brunhilde rock up with naught but Trouble...yeah why do I talk like that after reading this?" Beth was pointing out the front doors at the figures walking through the mostly empty car park.
 
 "And they're holding hands...I'm so jealous. I don't remember Bee ever being that physical. Is this the benefit to telling people your tragic backstory?" 
 

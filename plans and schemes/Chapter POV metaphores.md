@@ -10,3 +10,9 @@ lost in thought or sleep
 waking up or fighting to stay awake
 
 ## chapter 4
+being annoyed by circumstances
+
+## chapter 5
+inanimate objects having a bad time
+
+## chapter 6
