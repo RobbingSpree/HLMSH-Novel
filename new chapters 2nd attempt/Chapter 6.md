@@ -46,3 +46,5 @@ Trouble relaxed into Brun's embrace and did her best to calm herself as the bus 
 
 ***
 
+Debug had made her metaphorical bed, and now she was doing her best to not lay in it.
+
