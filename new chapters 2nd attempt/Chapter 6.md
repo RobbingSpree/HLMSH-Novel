@@ -28,4 +28,10 @@ Trouble wracked her mind and engaged her creative prowess of making stuff up, no
 
 "Oh really? Well, then from one Brunhilde to another also remember to learn my surname. Last time I came to the hospital it was all they called me by, I think the nurse didn't have the confidence to guess how to pronounce my first name." 
 
-"What's your surname?" Trouble asked, while opening Brun's wallet and finding out herself.
+"What's your surname?" Trouble asked, while opening Brun's wallet and finding out herself. "Brown?!" She looked up at Brun's face for guidance. She had a wry smile, but it didn't reach her eyes. Doubtless people had made snide comments about her name and skin colour being a fitting match.
+
+"A bit on the nose, eh?" Trouble's heart ached for her knight and the sadness in their voice. "It'll be a nice change of pace when I get married one day and can take someone else's."
+
+"We could change it sooner." Trouble spoke before the thought occured to her. "Debug doesn't sound like a name someone's parents would pick. You can be like her and just change it."
+
+"To Princess?" Brun teased, with a smile that player across her whole face.
