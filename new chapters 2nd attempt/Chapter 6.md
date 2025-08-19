@@ -32,6 +32,17 @@ Trouble wracked her mind and engaged her creative prowess of making stuff up, no
 
 "A bit on the nose, eh?" Trouble's heart ached for her knight and the sadness in their voice. "It'll be a nice change of pace when I get married one day and can take someone else's."
 
-"We could change it sooner." Trouble spoke before the thought occured to her. "Debug doesn't sound like a name someone's parents would pick. You can be like her and just change it."
+"We could change it sooner." Trouble spoke before the thought occurred to her. "Debug doesn't sound like a name someone's parents would pick. You can be like her and just change it."
 
-"To Princess?" Brun teased, with a smile that player across her whole face.
+"To Princess?" Brun teased, with a smile that player across her whole face. 
+
+"Probably not Princess. But names are funny things, they can fit you, and then you change and they're suddenly a call back to who you used to be or who someone wished you would be." Trouble broke eye contact and fiddled with Brun's wallet. "When I was talking to Debug earlier and I got my ID out I was confused. I saw Felicity on my ID and thought there was a mistake." She took an unsteady and purposeful breath to calm herself before continuing. "I honestly forgot that was my name. The last few days have been such a whirlwind I was expecting to read Trouble on my ID instead."
+
+Brun wrapped their arm around her and made agreeing noises.
+
+"Well if it becomes safe to spend the day at the local government office we'll make a day of changing your name to Trouble. And by the time that comes, I hope you find me a more fitting name too."
+
+Trouble relaxed into Brun's embrace and did her best to calm herself as the bus lurched and trundled onward.
+
+***
+
