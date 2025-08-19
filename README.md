@@ -27,11 +27,12 @@ Current length of rehash:
 
 
 Latest posted chapter:
-1
+2
 to:
 Royal Road: https://www.royalroad.com/author-dashboard
 Wattpad: https://www.wattpad.com/myworks/395478580-her-love-makes-safe-harbors
 ScribbleHub: https://www.scribblehub.com/series/1708024/her-love-makes-safe-harbors/
+Inkitt: https://www.inkitt.com/stories/1537962
 
 Synopsis:
 

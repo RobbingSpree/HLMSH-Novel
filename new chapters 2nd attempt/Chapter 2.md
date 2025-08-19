@@ -1,6 +1,6 @@
 Her sleep was deep and dreamless. She almost didn't notice that she had woken up as there was almost no ambient noise.
 
-Felicity lurched into a seated position, reaching for her bedside table to brace against, a pounding headache and general body ache assailing her as her all at once to let her know that moving was a bad idea. Leaning on the bedside table was also a bad idea because it wasn't there, and this wasn't her bedroom.
+Felicity lurched up, reaching for her bedside table to brace against and sit up, a pounding headache and general body ache assailing her as her all at once to let her know that moving was a bad idea. Leaning on the bedside table was also a bad idea because it wasn't there, and this wasn't her bedroom.
 
 She cursed as she fell to the ground on thin carpet. Carpet she'd never seen before. 
 
@@ -38,7 +38,7 @@ Once turned around, Felicity found herself staring at the clavicle and neck of a
 
 Felicity didn't answer, she was enjoying listing to the delightful sound of this woman's voice and wondering if she had her ID in her wallet and if her wallet had gone through the wash with her clothes.
 
-"Hey Trouble, you with me?" The lady snapped her fingers and lent down a little to get on her level. Felicity realized she was staring and also not listening to what was being said. She broke eye contact and looked down to find her feet, she could see the hint of how black walking around in the rain had painted the soles of her feet.
+"Hey Trouble, you with me?" The lady snapped her fingers and lent down a little to get on her level. Felicity realized she was staring and also not listening to what was being said. She broke eye contact and looked down to find her feet, she could see the hint of how black running around in the rain had painted the soles of her feet.
 
 "Sorry, I don't mean to be a bother..." She mumbled, scrambling to remember anything that had just been said and focus back on the present.
 
@@ -72,11 +72,11 @@ Not confident to test if the door opened from this side, Felicity sat in the cha
 
 ***
 
-Her thoughts spun like cogs in a machine. She found herself plotting the most efficient route to do everything she'd just volunteered to do.
+Her thoughts spun like cogs in a machine. Brun found herself plotting the most efficient route to do everything she'd just volunteered to do.
 
 Since the shortest route used the staff room behind the reception to reach the kitchen, the reception was her first destination. Closing the door to the nap room behind her and looking around to see if there were any guests in the corridor.
 
-Brun broke character from her work persona and started to walk at full speed. She had been told some time ago that guests had found her striding purposefully around the building to be intimidating. So she had taken up the habit of walking as silently and unnoticeable as possible, taking tips from her coworker Dee, who had such an eclectic collection of skills and talents it wouldn't be a surprise learn how they knew how to act like a ninja.
+Brun broke character from her work persona and started to walk at full speed. She had been told some time ago that guests had found her striding purposefully around the building to be intimidating. So she had taken up the habit of walking as silently and unnoticeable as possible, taking tips from her coworker Dee, who had such an eclectic collection of skills and talents it wouldn't be a surprise learn they had a side-gig as a part-time ninja.
 
 Having actually met Trouble now, she was confident they were someone who needed help and she was someone who could give it. Brun stopped in her tracks and snapped her fingers.
 
@@ -110,7 +110,7 @@ Brun put the phone back on the receiver, and strode into the backroom paths that
 
 Minutes later, with a hastily assembled plate of fried foods, plus a single ripe avocado that kept trying to roll off the plate, Brun approached the nap room door and hoped Trouble was still waiting for her beyond it.
 
-Opening the door, she found Trouble sitting and living up to their newly assigned moniker looking troubled. They didn't seem to react to the door opening, so Brun placed the plate on the cot and got down into a squat to get on the same eye level.
+Opening the door, she found Trouble sitting, and living up to their newly assigned moniker, looking troubled. They didn't seem to react to the door opening, so Brun placed the plate on the cot and got down into a squat to get on the same eye level again.
 
 "Hey..." Brun caught herself in time and wracked her mind for any other name to use aside from Trouble. "Small One." She didn't think this was much better than Trouble, but this was no time to show hesitation. Once more she gently gripped the only part of Trouble's face that wasn't covered in bruises, their chin, and tried to encourage them to look up. "I'm going to keep you safe, okay?"
 
@@ -120,11 +120,11 @@ Brun assumed she was unconvincing, due to how as soon as she got Trouble to look
 
 As they walked the hallways to Trouble's room, Brun recognized the habit of purposefully quiet footsteps from months ago when she had been practicing the same thing with Dee. Her form wasn't the precise and purposeful one that Brun had practiced, but it did speak more of her circumstances than Trouble had said aloud so far.
 
-Looking ahead again and realizing they were still ten doors away from the room, Brun found herself focusing on Trouble's hand in hers. Their long delicate fingers felt soft in her hand, except for a rough patch that assumably was a graze she could feel near the heel of their palm. Brun didn't know why she felt this strongly about someone she didn't know having signs of obvious injury, she considered her own attention hard to win. Did she see Trouble as akin to an animal, small and harmless? Or did she feel safe because they didn't talk much? Did that say something about her? Only liking someone who said nothing back? Like some sort of doll?
+Looking ahead again and realizing they were still ten doors away from the room, Brun found herself focusing on Trouble's hand in hers. Their long delicate fingers felt soft in her hand, except for a rough patch that presumably was a graze she could feel near the heel of their palm. Her brow furrowed in anger. Brun didn't know why she felt this strongly about someone she didn't know having signs of obvious injury, she considered her own attention hard to win. Did she see Trouble as akin to an animal? Small and harmless? Or did she feel safe because they didn't talk much? Did that say something about her? Only liking someone who said nothing back? Like some sort of voyeur?
 
 Brun wrestled her mind out of her own self obsessive thoughts and counted the steps out as they arrived at the room.
 
-"Three, two, one, this door. We've given you suite 17." Brun announced, hip checking the security pad with her master key to momentarily unlock it. And when Trouble made no moves to open the door and Brun still had no free hands, she lost her cool. Kicking out and delicately swiping the door handle down with her foot while at the same time pushing it open in the brief window where it could move before the lock re-armed. Brun pulled herself together again while silently reprimanding herself and trying to not congratulate herself on the successful trick.
+"Three, two, one, this door. We've given you suite 17." Brun announced, hip checking the security pad with her master key to momentarily unlock it. And when Trouble made no moves to open the door and Brun still had no free hands, she lost her cool. Kicking out and delicately swiping the door handle down with her foot while at the same time pushing it open in the brief window where it could move before the lock re-armed. Brun pulled herself together again while silently reprimanding herself for the violence and trying to not congratulate herself on the successful trick.
 
 She lead Trouble into the room, pointing out the bathroom and kitchenette, placing the food down on the counter in the latter, before leading them to the bed. Trouble still looked exhausted on top of injured, even if Brun had just taken them out of a room with a bed, they still looked like they needed more rest. Even if they'd just been sleeping and resting they looked like they needed another whole week's worth of rest. Fetching her, now cooling, plate of food Brun tried to get Trouble's attention again.
 
@@ -132,7 +132,7 @@ She lead Trouble into the room, pointing out the bathroom and kitchenette, placi
 
 Watching Trouble eating gave Brun the exact type of emotion she was expecting, but she didn't like it. It seemed she very much did equate Trouble with a small creature in need of help, because she felt the same watching Trouble as she did when birds or critters got to the food she might set out of them from the kitchen scraps. She looked away, lay on the bed beside Trouble and began scolding herself.
 
-"Hey..." Brun tried to talk to dismiss her own train of thought before Manager Beth's warning not to use trouble as a name floated to fill the space. "...Small one..." Brun used every ounce of mental fortitude to not slap herself for further infantilizing her ward. She forced herself to keep talking so that wasn't how that sentence ended. "I'm going to keep you safe." She tried to reassure Trouble, but with her multitude of fuck ups, simple platitudes didn't seem like enough, especially since they hadn't even paused eating in response.
+"Hey..." Brun tried to talk to dismiss her own train of thought before Manager Beth's warning not to use trouble as a name floated to fill the space. "...Small One..." Brun used every ounce of mental fortitude to not slap herself for further infantilizing her ward. Trouble was a better name than that, and using Small One twice was an utter failure on her part. She forced herself to keep talking so that wasn't how that sentence ended. "I'm going to keep you safe." She tried to reassure Trouble, but with her multitude of fuck ups, simple platitudes didn't seem like enough, especially since they hadn't even paused eating in response.
 
 "Actually safe, I'm the only person who knows you came here, and we've checked you in under a pseudonym so no one can ask after you." Brun then realized this might sound like she had planned the perfect kidnapping and her internal count of crimes and failures increased once more. "My shift's over in ten minutes so I'm fine to just sit with you and do whatever you need to feel content. I'll stay by your side until you feel safe." As the words tumbled out of her mouth Brun realized she actually meant it, this was put on her mental pile of stuff to consider later. She took the room key from her pocket and placed it on Trouble's thigh.
 
@@ -140,7 +140,7 @@ Watching Trouble eating gave Brun the exact type of emotion she was expecting, b
 
 Trouble said something, but it was too quiet for Brun to hear. She sat up and shuffled closer to her and leaned in.
 
-"Pardon Love, I didn't catch that."
+"Pardon, Love, I didn't catch that."
 
 "Felicity" Trouble muttered. Brun, having been awake for 18 hours at this point and just finished a 9 hour graveyard shift, took a moment to connect the dots. Brun furrowed her brow, and tried as hard as she could to overwrite where she had stored Trouble's name to replace it with Felicity.
 
