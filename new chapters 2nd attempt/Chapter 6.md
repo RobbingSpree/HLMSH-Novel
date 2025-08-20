@@ -48,3 +48,8 @@ Trouble relaxed into Brun's embrace and did her best to calm herself as the bus 
 
 Debug had made her metaphorical bed, and now she was doing her best to not lay in it.
 
+Beth had been all but harassing her all shift. Since they had been reminded of their bet, it was a constant thing now. 
+
+Beth would leave the reception area, head out to the rest of the building and do the day tasks, and make excuses to swing past the reception desk and pester Debug again and again. And they were quite aware that they were low on guesses and had no leads, and with how Debug had been pushing them to drop it, it was clear they had probably until the end of the shift when it would cross the line into actual harrassment. 
+
+Currently, Debug was enjoying a moment of peace. An annoying guest had just check out
