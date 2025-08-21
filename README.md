@@ -8,22 +8,24 @@ But I found issues with forgetting to keep track of what time of day it was and 
 So I've started fresh, [writing from chapter 1](https://github.com/RobbingSpree/HLMSH-Novel/blob/main/new%20chapters%202nd%20attempt/Chapter%201.md) again.
 
 Current length of rehash:
-14000-ish words
-- 2 chapter(s) complete
-- 3 chapter in editing hell
-- 1 in production chapter being written
-- 1 in pre-production planning
+16000-ish words
+- 2 chapter(s) complete. (1-2)
+- 1 chapter pending upload (3)
+- 3 chapter in editing hell (4-6)
+- 1 chapter being written (7)
+- 2 in pre-production planning (7-8)
 
 
-| Chapter | approx length | chapter summary |
-| ------- | ------------- | --------------- |
-| 1       | 2700          | inaccurate      |
-| 2       | 2900          | inaccurate      |
-| 3       | 3000          | inaccurate      |
-| 4       | 2300          | inaccurate      |
-| 5       | 3100          | done            |
-| 6       |               | written         |
-| 7       |               | written         |
+| Chapter | approx length | chapter summary  | POVs included    |
+| ------- | ------------- | ---------------- | ---------------- |
+| 1       | 2700          | inaccurate       | Brun, Fel        |
+| 2       | 2900          | inaccurate       | Brun, Fel        |
+| 3       | 3000          | inaccurate       | Brun, Fel        |
+| 4       | 2300          | inaccurate       | Debug, Brun, Fel |
+| 5       | 3100          | done             | Debug, Brun, Fel |
+| 6       | 2200          | written          | Debug, Fel       |
+| 7       |               | written          | Brun             |
+| 8       |               | Unclear prev end |                  |
 
 
 Latest posted chapter:

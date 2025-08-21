@@ -149,6 +149,8 @@ Finds suspect car outside
 Calls Beth
 Gets her to go take a suripticious photo from cafe across the street
 Beth asks why she knows this stuff
+
+## Chapter 7
 POV swap back to Brun
 Gets rumbled for faking identity
 Says its about a domestic abuse victim who can't leave a trace the police might find
