@@ -5,6 +5,9 @@ pov swap when she spots the hotel's lights
 pov swap to brun to introduce and watch fel arrive and collapse
 chapter cut once Brun has set fel down
 
+Timeline:
+Starts: 8pm
+Finishes: 9pm
 ##### X's opinion of Y in Ch1
 
 |       | Brun  | Fel        | Debug         |
@@ -35,6 +38,11 @@ keeps talking
 promises to keep her safe, notices she really means it
 share names since brun realizes they forgot to mention it
 
+
+**Timeline**
+Time skip from prev: a few hours
+Starts: 4am
+Finishes: 4:30am
 ##### X's opinion of Y in Ch2
 
 |       | Brun                 | Fel              | Debug    |
@@ -56,6 +64,10 @@ linger on the idea of both wanting physical touch and fearing it
 get distracted by brun coming out of the shower naked
 go back to previous thoughts, but they're tinged with lesbianism now
 
+**Timeline**
+Time skip from prev: 20 minutes
+Starts: 5am
+Finishes: 6am
 
 ##### X's opinion of Y in Ch3
 
@@ -96,6 +108,10 @@ Tries to probe about Trouble
 Complains she didn't come say hi at the start of her shift
 Has mixed feelings about Trouble due to her own past
 
+**Timeline**
+Time skip from prev: a few hours
+Starts: 11am
+Finishes: 12am
 
 |              | Brun is    | Fel is   | Debug is     |
 | ------------ | ---------- | -------- | ------------ |
@@ -125,6 +141,10 @@ Keep following up with Brun on strategy of how to go to hospital and avoid troub
 Mistake about caller ID, think beth is calling
 Brun asks them to cover the end of her shift so she can take trouble to hospital
 
+**Timeline**
+Time skip from prev: a few hours
+Starts: 6pm
+Finishes: 10pm
 
 |              | Brun is         | Fel is      | Debug is |
 | ------------ | --------------- | ----------- | -------- |
@@ -149,6 +169,18 @@ Finds suspect car outside
 Calls Beth
 Gets her to go take a suripticious photo from cafe across the street
 Beth asks why she knows this stuff
+
+**Timeline**
+Time skip from prev: 
+Starts: 
+Finishes: 
+
+|              | Brun is | Fel is | Debug is |
+| ------------ | ------- | ------ | -------- |
+| Brun thinks  |         |        |          |
+| Fel thinks   |         |        |          |
+| Debug thinks |         |        |          |
+
 
 ## Chapter 7
 POV swap back to Brun
@@ -177,30 +209,44 @@ Asks why they're doing it though
 Talks about the car the hotel accidentally stole
 Commit to doing fake crime
 
+**Timeline**
+Time skip from prev: 
+Starts: 
+Finishes: 
 
-|              | Brun is | Fel is | Debug is |
-| ------------ | ------- | ------ | -------- |
-| Brun thinks  |         |        |          |
-| Fel thinks   |         |        |          |
-| Debug thinks |         |        |          |
+|              | Brun is                          | Fel is   | Debug is  |
+| ------------ | -------------------------------- | -------- | --------- |
+| Brun thinks  | Middling success                 | Safe-ieh | Confusing |
+| Fel thinks   | Reliable and safe                | Not safe | Savoir    |
+| Debug thinks | Paying attention to someone else | In need  | Burnt out |
 
 
-## chapter 7
+## chapter 8
+Trouble POV
 Do B&E
+Brun POV
 Go back to hotel
 Leave trouble in car since she's kinda out of it
 Debug sent back out while Brun makes a nest in troubles room
+Debug POV
 Debug asks trouble about suspicious man from earlier 
 Trouble breaks down scared
 Debug and trouble end up making out
+(Possible chapter break here)
+Brun POV
 Brun comes back and finds someone making out behind reception desk
 Tries to leave, recognises debug as one of the people
 Leaves
+Trouble POV
 Debug and trouble go to troubles room 
 All sleep in bed together 
 Trouble gets a lot of physical attention from the others 
 Enjoys it
 
+**Timeline**
+Time skip from prev: 
+Starts: 
+Finishes: 
 
 |              | Brun is | Fel is | Debug is |
 | ------------ | ------- | ------ | -------- |
