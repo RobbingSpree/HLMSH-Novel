@@ -24,7 +24,7 @@ Current length of rehash:
 | 4       | 2300          | inaccurate       | Debug, Brun, Fel |
 | 5       | 3100          | done             | Debug, Brun, Fel |
 | 6       | 2200          | written          | Debug, Fel       |
-| 7       |               | written          | Brun             |
+| 7       | 2500          | written          | Brun, Fel, Debug |
 | 8       |               | Unclear prev end |                  |
 
 
