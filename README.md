@@ -11,21 +11,21 @@ Current length of rehash:
 16000-ish words
 - 2 chapter(s) complete. (1-2)
 - 1 chapter pending upload (3)
-- 3 chapter in editing hell (4-6)
-- 1 chapter being written (7)
-- 2 in pre-production planning (7-8)
+- 4 chapter in editing hell (4-7)
+- 1 chapter being written (8)
+- 2 in pre-production planning (9-10)
 
 
-| Chapter | approx length | chapter summary  | POVs included    |
-| ------- | ------------- | ---------------- | ---------------- |
-| 1       | 2700          | inaccurate       | Brun, Fel        |
-| 2       | 2900          | inaccurate       | Brun, Fel        |
-| 3       | 3000          | inaccurate       | Brun, Fel        |
-| 4       | 2300          | inaccurate       | Debug, Brun, Fel |
-| 5       | 3100          | done             | Debug, Brun, Fel |
-| 6       | 2200          | written          | Debug, Fel       |
-| 7       | 2500          | written          | Brun, Fel, Debug |
-| 8       |               | Unclear prev end |                  |
+| Chapter | approx length | chapter summary | POVs included    |
+| ------- | ------------- | --------------- | ---------------- |
+| 1       | 2700          | inaccurate      | Brun, Fel        |
+| 2       | 2900          | inaccurate      | Brun, Fel        |
+| 3       | 3000          | inaccurate      | Brun, Fel        |
+| 4       | 2300          | inaccurate      | Debug, Brun, Fel |
+| 5       | 3100          | done            | Debug, Brun, Fel |
+| 6       | 2200          | written         | Debug, Fel       |
+| 7       | 2500          | written         | Brun, Fel, Debug |
+| 8       |               | written         |                  |
 
 
 Latest posted chapter:
@@ -38,7 +38,7 @@ Inkitt: https://www.inkitt.com/stories/1537962
 
 Synopsis:
 
-Brunhilde loves small and delicate critters, when a domestic violence victim falls over in front of her, her desire to protect the small and weak takes over and she hides them at the hotel she works at.
+Brunhilde loves small and delicate critters, when she meets a woman she can only describe as small and delicate, her desire to protect takes over and she gives them shelter at the hotel she works at.
 Felicity assumes it's only natural that everyone seems to mistreat her until she meets a tall, brooding woman who takes care of her like a knight in shining armor.
 Debug has been trying to keep her colleagues at arms length assuming the worst, she harmlessly flirts with her work friend Bee and diverts her manager from probing her past, but meeting a fellow survivor in Trouble opens her to the desire to wanting to try letting people in.
 

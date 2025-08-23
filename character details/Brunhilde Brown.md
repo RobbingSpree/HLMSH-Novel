@@ -24,3 +24,8 @@ likes looking people in the eye when talking to them
 thinks she's cool, doesn't think she's allowed to be proud of it
 struggles to wake up
 wants to pet people like animals
+
+Voice sounds like:
+Rasp
+Warm
+Kind

@@ -45,3 +45,8 @@ Forged her own new identity
 (New name 3: Debug Nolastnam)
 Has been living quietly since to not stir trouble and attract attention
 According to her forged identity her previous identities are her parents
+
+Voice sounds like:
+Gruff
+Low
+Authoritative/confident 

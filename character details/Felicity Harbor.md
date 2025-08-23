@@ -29,3 +29,23 @@ changes name used to refer to self based on how much harm they think they're in
 easy to cry
 doesn't understand how CPTSD would make her sad
 
+History of abuse:
+(Young child)
+Beaten by dad when mom died 
+Avoided peers after dad threatened to do to them what he did to her since kids were all the same and needed to be hit
+Spent time at school doing art rather than socialising 
+Didn't finish school (dropped out in year 11) at pressure from parent
+Got a job at grocers, boss was a power tripping loon
+Got back into art with her free time
+Got financially abused by both boss and dad who conspired together to steal her wages
+Got commissions for digital art and started saving money up
+Got digital art job from commissions
+Met Frank while working at job
+Dad got hit by a car and died
+Frank got worse as a person and started to abuse Fel
+
+Voice sounds like:
+Quiet
+Squeaky 
+Scared
+Needy

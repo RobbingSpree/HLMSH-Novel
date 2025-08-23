@@ -1,12 +1,12 @@
 Debug stood restless, fingers drumming on the reception desk.
 
-"She didn't even stay to say 'Hi'!" She announced to no one.
+"She didn't even stay to say 'Hi'!" She complained to no one.
 
 "She might have just made a break for it when the rain eased. You saw how bad it got last night." Manager Beth's voice from the back room responded. "When she called about our new Sanctuary it was absolutely coming down in sheets."
 
 "I can't wait for the convention season to start so Bee and I can be on the same shifts again." Debug said while moping, she wanted quite badly to get her twice weekly chance to flirt with the unflappable giantess.
 
-"Actually, since you two are the most senior staff, I'm gonna need you to manage the day and the night shift." Manager Beth interjected. "Why do you think I've been getting you two to specialise and learn how all the ins and outs in the off season? I've got ambitions for the pair of you."
+"Actually, since you two are the most senior staff, I'm gonna need you to each manage the day and the night shift respectively." Manager Beth interjected. "Why do you think I've been getting you two to specialise and learn how all the ins and outs in the off season? I've got ambitions for the pair of you."
 
 "So have you seen our new charity case?" Debug asked, trying to divert attention away from her boss's schemes. 
 
@@ -70,7 +70,7 @@ Brun found herself already at Trouble's side. Sitting on the arm of the chair th
 
 "Love, I assure you you're safe. Don't worry that you got spooked, it's normal. Just do what you can to relax and we'll go from there." Brun felt this was the first time she'd not put her foot in her mouth reassuring Trouble. It felt unnatural so not be able to see their face, or feel them crying, but know they were incredibly distraught. Rather than actually ask or to to look, Brun would occasionally wipe tears away from their cheek and wait a moment to see if more tears would reappear. 
 
-After a while, which Brun did have to adjust herself a few times during to avoid going back to sleep, Trouble squeezed her hand and Brun too that to mean she was good to not need her snuggling quite as close.
+After a while, which Brun did have to adjust herself a few times during to avoid going back to sleep, Trouble squeezed her hand and Brun thought that to mean she was good to not need her snuggling quite as close.
 
 Brun got up and walked back over to the kitchen island, stopping along the way to pick up the dropped fork, and grabbed plates of now cold food for the two of them.
 
@@ -94,7 +94,7 @@ Debug's only reply was a confused look, her mind was still on the previous nonse
 
 "That was it!" Beth screamed, causing Debug to recoil away from her. "That's what got me on these books in the first place. You being a dork and implying something tragic happening to you and I said I could guess." Beth slapped her hand on the desk for emphasis.
 
-"Yeah, and you made the bold choice of reading smut. And I think you forgot the point pretty quick." Debug retreated to the main open space in the reception both in case Beth yelled again, and also cause she wasn't in a good headspace for talking about herself honestly.
+"Yeah, and you made the bold choice of reading smut. And I think you forgot the point pretty quick after that." Debug retreated to the main open space in the reception both in case Beth yelled again, and also cause she wasn't in a good headspace for talking about herself honestly.
 
 "I still have at least three guesses left. You said I could have five." Beth gripped the top of the reception desk eagerly.
 
@@ -114,7 +114,7 @@ Debug bit her lip and closed her eyes. Steeling herself.
 
 Swapping one set of metaphorical armour for another, Debug turned to see Bee with a scrawny lady behind them about the same height as she was. The person, who must be Trouble, was looking in corners and seemed uncomfortable standing in the doorway. 
 
-"Like recognizes like." Debug muttered to themself. "Time to hide." 
+"Like recognizes like." Debug muttered to themself.
 
 Debug walked back over to the reception desk, confident Beth would fall into her work persona and wouldn't get loud anymore. 
 
