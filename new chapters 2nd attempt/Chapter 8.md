@@ -119,7 +119,7 @@ Since she couldn't turn back time, she'd just have to live with whatever she sai
 
 She reached the car, and opened Trouble's door to find them still dozing and covered in bandages. This poor thing really did need someone looking out for them, and while Brun was a great emotional bulwark who made people feel safe, they might need someone who had survived similar circumstances. The problem would be she would have to admit to having PTSD and being honest with someone, but she hadn't been liking how Manager Beth had been cornering her on that lately, so if she practiced with Trouble she might get the confidence to emotionally dump on Beth as revenge for their prying.
 
-"Hey Snugglebunny, wake up. Let's go somewhere more comfortable so you can get proper sleep." She jostled Trouble, leaving over them and unbuckling their seatbelt. She was still quite close to their face when they did stir. "Morning." Their face flushed with an emotion Debug didn't recognise, but she just assumed she wasn't going to have any smart thoughts while being this tired so put it from her mind.
+"Hey Snugglebunny, wake up. Let's go somewhere more comfortable so you can get proper sleep." She jostled Trouble, leaving over them and unbuckling their seatbelt. She was still quite close to their face when they did stir. "Morning." Their face flushed with an emotion Debug didn't recognize, but she just assumed she wasn't going to have any smart thoughts while being this tired so put it from her mind.
 
 "We got home safe?" They asked, still bleary eyed.
 
@@ -127,8 +127,19 @@ She reached the car, and opened Trouble's door to find them still dozing and cov
 
 Trouble stumbled out of the car, drew themselves to their full height, slouched again and trudged towards the door. Debug took a few quick steps to catch up and trudged alongside them.
 
+The reception was empty as they reached the building, Debug's todo list pulled at her mind. She needed to ask about the guy Beth had taken a photo of.
 
+"Actually, Cutie..." Debug had no idea how Brun or Beth made making pet names up on the spot look east. "I've got something on the reception computer to ask you about, join me back here." As she lead Trouble into the employees only area.
 
+With practiced ease she logged into the computer and navigated to where she'd put the photos and opened them.
 
+"So this guy turned up earlier today looking very suspicious..." She started as she turned to talk to Trouble rather than at the screen. "...fuck."
 
+Trouble had already started to hyperventilate and panic. The few patches of their face that wasn't covered in bandages and bruises was deadly pale. She was vindicated in her suspicions, but this was probably not the best time or way to talk about this. Mashing keys on the computer to close the picture with one hand and trying to hold Trouble up and failing with the other, they ended up on the floor in a pile.
+
+It had been a long time since she was responsible for someone this upset. Using what strength she had, she managed to turn the sobbing Trouble around to face her, then shuffled as close to her as possible. Close enough that they sat with hips side by side, Debug using her body to help keep Trouble from leaning so far that they collapsed entirely onto the ground.
+
+She put a hand on their head and gently bonked their foreheads together, aiming to try and bring their focus as close and as small as possible. 
+
+"Breath okay?" She placed a hand on their chest as they took their first deep shaky breath for nearly a minute. 
 
