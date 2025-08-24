@@ -44,5 +44,91 @@ Her home and prison looked cold and empty, all the lights off and the early morn
 
 "Disposable gloves, you said he had police contacts so I found these under your bathroom sink. Let's not give them anything." They held their hand full of gloves out.
 
-Trouble could sense how well Brun and Trouble worked together, they never stood too close to the other or got in one another's way as they essentially danced around a house they'd never been in before. She felt a twinge of jealousy 
+Trouble could sense how well Brun and Trouble worked together, they never stood too close to the other or got in one another's way as they essentially danced around a house they'd never been in before. She felt a twinge of jealousy of how in sync the two were, she had never had that with anyone before, if she excluded Frank and her Dad where she made herself as small as possible in their presence so they'd never notice her.
+
+"Check the bedroom for bras and underwater, grab three of both."
+
+"Got it. Take over on the computer stuff, I don't know which cables this needs to work."
+
+"Trouble, tell Brun where your serious business documents are, like lease, bills and birth cert."
+
+"Dee, how do you turn off a phone like this? Long pressing isn't working."
+
+"Ohh, a classic. Long press the red button under the screen. The side buttons are for media playback only on something that old."
+
+"Ok we've got everything we need, grab one or two other garments for outerwear from your wardrobe and we'll jam everything in the car so we all fit in the drive back. Bee, let's go."
+
+Suddenly, the house was silent again. 
+
+With her friends gone, it was as though they took all power and intimidation the building used to hold over her with them to pack into the car.
+
+This was just a house now.
+
+One she didn't have to come back to if she didn't want to.
+
+Like a weight she had been dragging had been cut free.
+
+She walked into the bedroom, took her two most comfortable shirts from her small wardrobe, and bid the building farewell.
+
+***
+
+Brun felt uncomfortable driving the unfamiliar car, her day had been surprisingly long and she was thinking only of sleep.
+
+"Dee, you awake back there? Gonna need your help to do one load of carrying each to get all this stuff out."
+
+"I'm awake, but Trouble seems to have succumbed to the siren's call of sleep. So we both have to carry a bit more."
+
+Brun paused for a moment, taking in the streets and the cramped close rows of houses before she turned onto the main road.
+
+"Nah. She's got a broken arm remember, I wasn't planning she carry anything. One last job for the two of us."
+
+"Before Beth seperates us for good, you mean?"
+
+"I didn't mean that..." She could hear Dee being bitter about the news. "We can always hang out outside of work, you know. We don't have to be just work friends." She had tried in the past to get Debug to spend time with her outside the riding structure and responsibilities of their jobs, but had gotten incredibly sick that whole week instead. Dee hadn't believed her excuses and she was nothing if not a solid example of the saying 'once bitten twice shy'. 
+
+"Being on opposite shifts doesn't help. I looked forward to any time I had a shift following yours so I could enjoy the handover window with you. It was the highlights of my week." Debug was being a lot more forthcoming with conversation than they normally were, maybe this was how they were when tired. "Trouble really is out of it back here...are we just gonna let her sleep...is she asleep?"
+
+"When I looked in the mirror before she looked like she dozed off right after we started driving. Poor thing, she's had a big few days, and she still has work in the morning."
+
+"Who works Monday's?" Debug sounded genuinely confused.
+
+"Bug, not everyone works shifts, some people did nine to five work days."
+
+"Right, but that's adults. Businessmen and lawyers, do that."
+
+"Bug...I hate to say it...but we're adults. We're the ones with a job and career prospects and bills."
+
+"Ohh." Bee's voice was very quiet, like she had honestly not thought about this before. "Never thought I'd be an adult..." Brun didn't know what that meant, but also didn't want to say anything stupid to upset them. So instead tried to divert the conversation to her next step.
+
+"I'm tired as fuck, and I don't want to have to go home just to get a solid nap in, and my sleep schedule is already shot to hell." She could probably justify her idea more, but it would feel like making excuses after any more. "I'm gonna sleep in Trouble's room, just have a casual sleep over. I asked her on the drive to her place and it was one of the few questions she answered clearly."
+
+"Are you bragging right now?" Debug's voice had its normal hint of cheekyness again.
+
+"No, I know the size of bed in Trouble's suite. We can all fit on the bed. All three of us." There was a moment of silence and the sound of the car on the road. "That includes you, Bee. Join the sleep over. You look just as tired as I feel."
+
+***
+
+
+Debug's mind was racing like a three legged mutt at the greyhound race.
+
+She kept swinging back and forth that she'd said too much or been too abrasive in the car ride, that she should have turned Brun down. But at the same time, she had been wrong about how much energy she had left, and was barely hanging on.
+
+Bee had clearly spotted this, and rather than help make what they had described as 'a nest' she had been sent down to get Trouble from the car and bring her up. And it was unclear if this was a punishment of not, as she was actively trying to fall asleep on the walk through the hotel. The on shift morning staff had been rather concerned when they saw her in the halls.
+
+Since she couldn't turn back time, she'd just have to live with whatever she said and make excuses later.
+
+She reached the car, and opened Trouble's door to find them still dozing and covered in bandages. This poor thing really did need someone looking out for them, and while Brun was a great emotional bulwark who made people feel safe, they might need someone who had survived similar circumstances. The problem would be she would have to admit to having PTSD and being honest with someone, but she hadn't been liking how Manager Beth had been cornering her on that lately, so if she practiced with Trouble she might get the confidence to emotionally dump on Beth as revenge for their prying.
+
+"Hey Snugglebunny, wake up. Let's go somewhere more comfortable so you can get proper sleep." She jostled Trouble, leaving over them and unbuckling their seatbelt. She was still quite close to their face when they did stir. "Morning." Their face flushed with an emotion Debug didn't recognise, but she just assumed she wasn't going to have any smart thoughts while being this tired so put it from her mind.
+
+"We got home safe?" They asked, still bleary eyed.
+
+"Yep, I had Brun drive cause I was close to a nap like you were." Lightly pulling on their sleeve to remind them they needed to get out of the car. "Let's put you to bed first."
+
+Trouble stumbled out of the car, drew themselves to their full height, slouched again and trudged towards the door. Debug took a few quick steps to catch up and trudged alongside them.
+
+
+
+
+
 
