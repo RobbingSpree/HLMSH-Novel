@@ -50,7 +50,7 @@ Trouble felt like her stomach was doing flips or that she could climb a tree wit
 
 Her emotions were a bit manic today. Going from depressing lows to ecstatic highs.
 
-When someone as reliable and confident as Debug had held her so gently and reassured her. She had become unable to hold back any of her emotions, she'd let all her hurt and fear out. 
+When someone as reliable and confident as Debug had held her so gently and reassured her so completely. She had become unable to hold back any of her emotions, she'd let all her hurt and fear out. 
 
 And when they had gone in for a kiss too. 
 
@@ -74,4 +74,68 @@ Trouble put the small plate of food down on the kitchen counter and walked over 
 
 As though reading her mind, Brunhilde walked over and lay down next to her. Before she had a chance to consider the implications a shadow fell over the room. In the doorway stood Debug, even though they were about the same height, they seemed much grander and held themselves higher than Trouble felt was possible for herself to do. 
 
-They paused and stood there, face unreadable as the light behind them cast impenetrable shadows over them. But after a few moments they too entered the room, closing the door behind them.
+They paused and stood there, face unreadable as the light behind them cast impenetrable shadows over them. But after a few moments they too entered the room, closing the door behind them. Walking over and kicking off shoes as they did. 
+
+Brunhilde put a hand on the small of Trouble's back, wordlessly bidding her to lay down rather than stay on all fours.
+
+With her heart beating as excitedly as it was, Trouble was concerned the other two might hear it and try to reassure her. They might misunderstand her excitement for anxiety.
+
+Debug lay down on her other side.
+
+She was now flanked by her two heroes.
+
+When her kiss earlier had finally broken, it had felt like the noise speakers suddenly make when they pick up the electrical signal and mistake it for music. Now she felt that again, but across her whole body. A static excitement, a build up waiting to discharge as soon as she was touched.
+
+Minutes passed in chaste silence. 
+
+The breathing of both her flanking protectors changed to deeper and calmer breaths as the went to sleep. With the chance for excitement down to zero, Trouble relaxed and tried to get to sleep herself. Only for a noise to disturb her. 
+
+The sound of gentle weeping. 
+
+Not heaving sobs and wracked breathing like she had been doing earlier. Just crying as gently as breathing, with soft sobs as they breathed.
+
+Opening her eyes again she looked at the source of the sound.
+
+Debug had rivers of tears flowing across and down the side of her face. Trouble reached out to try and comfort them. But when they pressed a hand gently on their chest as they had done before to help them relax, Debug shifted and seized the arm and held it close pressing it between her breasts. 
+
+Since Trouble barely had a pair of her own she was a bit unfamiliar with the soft sensation she was focusing on. But as she lay there she realised she had felt the same softness before, when Brun had held her close and comforted her yesterday. Perhaps this level of touch was what Brun and Debug were comfortable with. She reached out with her arm in its cast to try and wipe some of Debug's tears away with her fingertips.
+
+Through Debug's shirt and bra she could feel an erratic heartbeat. She shuffled forward to try the same things they had done for her minutes ago and gently bonked foreheads together. 
+
+Over a few minutes Debug's heartbeat became less panicked and her grip on Trouble's arm loosened. They stopped making sad and pained noises like an apologetic puppy too.
+
+She heard Brun shift behind her. She knew Brun was a deep sleeper, so they would probably be fine. But as she thought that, Brun's arm flopped over and landed on her hip with a slap that made them yelp. 
+
+Bringing her hand back from Debug's cheek, she tried to lift Brun's arm off them. They could probably relax and get to sleep with Debug holding one arm hostage, but this was a lot more stimulating.
+
+Not able to grab Brun's arm due to the cast, she tried pushing it away. Brun seemed to resist this and instead put her arm around Trouble's waist and pulled her closer, pulling the smaller lady so her bum was pressed against Brun's hips. 
+
+A soft noise escaped Trouble's lips. A whimper. 
+
+The need she had felt before, the urge to let someone hold her gently and show affection. 
+
+She didn't know it was something she had wanted.
+
+She didn't know it was something she was allowed to want.
+
+Since both the other ladies were asleep she couldn't exactly ask them either.
+
+Was she selfish? Was enjoying this touch wrong?
+
+Would they hate her for taking pleasure from them being this close.
+
+Brun's hand slid up from her hips, over her belly and up near her chest.
+
+She let out another pained noise. She wanted more.
+
+Brun held her close again, this time pulling her torso towards Brun's. She could feel the same softness her right arm could on her back now. She could feel Brun's breath on her neck. 
+
+She had seen how tightly Brun had held a pillow when she slept last night. Was that her fate for the rest of the night? Being fondled by someone who didn't even know they were present? 
+
+"Brunhilde, can you let me go? I won't be able to sleep like this, it's too much excitement." 
+
+Trouble couldn't hear the response, but she could feel it. Brun was speaking directly into her skin, she could feel the gentle touches of lips against her neck. It was a lot of stimulation for such a small touch. Unable to move she wriggled to try and shimmy free, only to become very aware how close her rear was to Brun. Seemingly in response to her movement, Brun thrust their hips forward pressing into Trouble.
+
+More noises escaped from Trouble's lips.
+
+It seemed like it was going to be a difficult nap.
