@@ -38,4 +38,40 @@ A sigh. A muffled noise. The ruffle of clothes.
 
 There was someone else back there. Brun was not so naive to not know what those sounds meant.
 
-She didn't know who was on shift this morning, nor that they had this sort of relationship with Dee.
+She didn't know who was on shift this morning, nor that they had this sort of relationship with Dee. Was this the sort of thing that happened on shifts she didn't do a handover with Dee?
+
+Brun thought back to how they had chatted during handovers and how there had been a bit of flirtatious tension. But she had always assumed it was just playful teasing.
+
+Regardless, rather than interrupt their chance to wind down. She decided to head back to Trouble's room. If Trouble wasn't here they might have taken a detour or gotten lost without Dee's help.
+
+***
+
+Trouble felt like her stomach was doing flips or that she could climb a tree with little effort.
+
+Her emotions were a bit manic today. Going from depressing lows to ecstatic highs.
+
+When someone as reliable and confident as Debug had held her so gently and reassured her. She had become unable to hold back any of her emotions, she'd let all her hurt and fear out. 
+
+And when they had gone in for a kiss too. 
+
+She had felt like a princess. 
+
+She'd never felt like that with anyone before. 
+
+That a love as tender and sweet would be given to her so readily. She had never even considered the possibility of pursuing women romantically, but that might have explained why she hadn't ever felt the desire to pursue men in that way when she was younger.
+
+Sure, she had felt it was unsafe to make friends because her dad had made existing in her house unsafe and she couldn't trust he wouldn't hit any friends she was seen with like he did her. But the idea of romance had been one of her few escapes. A fantasy where someone would love her with no conditions. Likely affected by the stories her mom had read her while she was still alive, she had thought her only option was men.
+
+Debug had stirred her heart awake, then reminded her she still needed to properly rest before doing a day of work and had run off to get a breakfast snack she could have once she woke back up.
+
+They had stayed behind saying they needed to get started on submitting a (police report thing for staying away). But they'd follow soon and that Brunhilde had organized something that might help with getting to sleep.
+
+Walking up to the room door she saw it open and the lights inside off. Peering into the dimly lit room from the bright hallway she could see what Debug had meant.
+
+Brunhilde was walking towards her, having just looked up from pacing the room, gesturing behind her to the enormous bed the room had. They had arranged some extra blankets and pillows to turn the whole bed into some kind of giant, soft bird nest. They must have thought she enjoyed sleeping in the armchair at Brun's apartment last night, and she had, but the real detail that relaxed her was Brun being in the next room. Being so close.
+
+Trouble put the small plate of food down on the kitchen counter and walked over to the bed. She hadn't enjoyed the bed much before, it was enormous compared to the couch she normally slept on at home. Climbing on she was reaffirmed in her opinion, this bed was much too big for one person.
+
+As though reading her mind, Brunhilde walked over and lay down next to her. Before she had a chance to consider the implications a shadow fell over the room. In the doorway stood Debug, even though they were about the same height, they seemed much grander and held themselves higher than Trouble felt was possible for herself to do. 
+
+They paused and stood there, face unreadable as the light behind them cast impenetrable shadows over them. But after a few moments they too entered the room, closing the door behind them.
