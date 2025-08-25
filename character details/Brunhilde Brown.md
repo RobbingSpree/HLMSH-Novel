@@ -6,6 +6,7 @@ flaws:
 - demeans herself over perceived failures
 - holds self to a very high standard she applies to no one else
 - heavy and active sleeper
+- clearly an ADHD haver
 
 starting point of the story: neglectful of herself and overly focused on the wellbeing of others
 

@@ -22,11 +22,11 @@ Brunhilde had spent the last hour or so since she'd woken up being her fantasy i
 
 Felicity, or as Brunhilde had been calling her (and seemed to suit what she felt like she brought to the table): Trouble, looked up at the tall woman leading her through the long corridors of the hotel. Their skin was a wonderful deep shade that seemed to magically change colour under the different lights of the halls and rooms. Felicity was a little jealous, since her own pallor simply made her look to be afflicted with different harrowing diseases under the various artificial light sources.
 
-As she watched the hypnotic swap of Brunhilde's braids, Trouble realized she'd been brought behind the reception desk.
+As she watched the hypnotic sway of Brunhilde's braids, Trouble realized she'd been brought behind the reception desk.
 
 "We're lucky I got some emergency wellies last week when the weather first started to look sus." Brunhilde held out a pair of glitter covered wet weather boots and a pair of thick socks she'd pulled out from behind the desk with an enthusiastic grin.
 
-While keeping hold of Brunhilde's hand at all times, she folded her gangly body and slipped on the footwear before being handed a jacket.
+While keeping hold of Brunhilde's hand at all times, Trouble folded her gangly body and slipped on the footwear before being handed a jacket.
 
 "Actually, I really should work out how much of my rain gear is here if I've got one for both of us and I'm still leaving another spare behind."
 
@@ -46,7 +46,7 @@ As her knight lead her towards the reception door, the early morning hint of a s
 
 Brunhilde stepped back and let the door automatically close again, before pulling Trouble into a spin and lifting their connected left hands over her head. The only thing she saw as she was being spun was a proud little smile on Brunhilde's face. With the move complete she found herself held close in the crook of their arm. They started to walk back to the door and with their arm protectively around her, Trouble was able to walk almost normally out into the car park again.
 
-The wind still pushed and blew like it had last night, but without the rain lashing her skin and a protective layer on and her guardian by her side it was actually pleasant. She looked up at Brunhilde and watched as the loose braid she had been watching sway back and forth earlier flailed in the gale like an angry snake. They seemed to notice her gaze and looked down and tried to say something but the wind was far louder, apparently noticing her confusion they simply pointed instead to a nearby bus stop they were walking towards.
+The wind still pushed and blew like it had last night, but without the rain lashing her skin and a protective layer on and her guardian by her side it was actually pleasant. She looked up at Brunhilde and watched as the loose braid she had been watching sway back and forth earlier flail in the gale like an angry snake. They seemed to notice her gaze and looked down and tried to say something but the wind was far louder, apparently noticing her confusion they simply pointed instead to a nearby bus stop they were walking towards.
 
 Once they made it to the shelter of the bus stop and the wind simply tugged at the hem of her pants rather than tried to inflate her jacket like a kite. Brunhilde pulled her to sit on their lap in the only dry part of the accompanying bench.
 
@@ -58,9 +58,9 @@ Soft relaxing warmth.
 
 Trouble didn't think she could have comprehended this unless she experienced it. She had thought their favorite pillow was soft, but that was nothing compared to where she was leaning on Brun. And the warmth was something else, with both of Brun's arms around her and the outside world almost entirely cut off, all she could hear was the soft heartbeat through Brun's shirt. Focusing only on that, she let her mind wander.
 
-Time passed and she felt herself being lifted a little and Brun jostling her. trouble came to her senses when she realized Brun was putting her down on her own feet and the world swayed. Because she had dozed off a bit and not noticed Brunhilde bodily lifting her up to carry her onto the bus. Trouble felt herself flush red with embarrassment and couldn't look at Brunhilde for the entire ride, instead moving to stand behind her so she could avoid being looked at as well.
+Time passed and she felt herself being lifted a little and Brun jostling her. Trouble came to her senses when she realized Brun was putting her down on her own feet and the world swayed. Because she had dozed off a bit and not noticed Brunhilde bodily lifting her up to carry her onto the bus. Trouble felt herself flush red with embarrassment and couldn't look at Brunhilde for the entire ride, instead moving to stand behind her so she could avoid being looked at as well.
 
-She felt conflicted on if she should stop holding Brunhilde's hand also. This entire trip, it seemed like they were taking care to be holding her hand at all times, and while Trouble felt like she didn't deserve to be treated this gently - like a baby bird with bones that would fracture in the wind - she couldn't bare to take her own hand back. To break that connection. As her emotions roiled, she had the urge to tug her hand away and scream, but when she didn't act and the feeling melted away again Trouble was just left with a sense of unease.
+She felt conflicted on if she should stop holding Brunhilde's hand also. This entire trip, it seemed like they were taking care to be holding her hand at all times, and while Trouble felt like she didn't deserve to be treated this gently - like a baby bird with bones that would fracture in the wind - but she couldn't bare to take her own hand back. To break that connection. As her emotions roiled, she had the urge to tug her hand away and scream, but when she didn't act and the feeling melted away again and Trouble was just left with a sense of unease.
 
 She was jolted back to the present when the driver decided to slam on the breaks. Trouble bounced off Brunhilde and almost fell to the floor, letting go of her hand as she braced for injury again. When it didn't come, she opened her eyes to find Brunhilde had snatched her out of the air to save her again. Sounds of a brief argument barely registered as Trouble was overwhelmed with visions of Brunhilde in a knight's armor rescuing her from a monster.
 
@@ -68,13 +68,13 @@ Only realizing the argument must have been between Brunhilde and the driver when
 
 ***
 
-Brun was doing her absolute best to stay awake, steadily losing ground in that battle.
+Brun was doing her absolute best to stay awake, while steadily losing ground in that battle.
 
 Her legs felt like uncooked dough, her mind felt like it had rusted over, and she was vigorously holding onto Trouble as a ward against sleeping. And her ward simply made her want to sleep more.
 
-In her sleep addled daze, she was thinking more and more that Trouble was just like a cuddly little animal, one she was allowed by her lease to take into her apartment and fluff and pet and hug.
+In her sleep addled daze, she was thinking more and more that Trouble was just like a cuddly little animal, one she was allowed by her apartment's lease, to take into her home and fluff and pet and hug.
 
-Autopiloting through the entrance to her building and over to the elevator, Brun saw the reflection of the two of them standing together. She realized she had almost entirely absorbed Trouble into her jacket. The smaller lady barely came up to her chest, and probably while they bumbled out of the bus, she had bundled them inside her jacket. Their expression was unreadable due to being both half covered by her jacket and swimming in the puffer jacket Brun had put on Trouble when they left.
+Autopiloting through the entrance to her building and over to the elevator, Brun saw the reflection of the two of them standing together. She realized she had almost entirely absorbed Trouble into her jacket. The smaller lady barely came up to her chest while slouching, and probably while they bumbled out of the bus, she had bundled them inside her jacket. Their expression was unreadable due to being both half covered by her jacket and swimming in the puffer jacket Brun had put on Trouble when they left.
 
 Brun focused intently on the floor indicator for the lift, attempting to banish thoughts of petting Trouble like some kind of puppy in need of affection. 
 

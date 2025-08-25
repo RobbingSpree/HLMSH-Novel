@@ -27,7 +27,7 @@ act 2 planning begin
 | 6       | 2200          | written         | De, Fel       | 16.2k         |
 | 7       | 2500          | written         | Brun, Fel, De | 18.7k         |
 | 8       | 2600          | written         | Brun, Fel, De | 21.3k         |
-| 9       |               | written         | Brun, Fel     |               |
+| 9       | 2000          | written         | Brun, Fel     | 23.3k         |
 | 10      |               | written         | Brun, Fel, De |               |
 
 

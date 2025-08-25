@@ -11,6 +11,7 @@ starting point of the story: Like a puppy, wondering around and following whoeve
 Name: flipflops between using Felicity and Trouble depending on mood once Brun has dubbed her so.
 Uses Felicity when scared, worried, anxious or actively suffering
 Uses Trouble when happy, safe, in an embrace, holding someone's hand
+Uses exclusively pronouns and generic descriptors when having a panic attack
 
 appearance: 
 pale skin, splotched with bruises (at the start of the story, eventually the bruises fade)
