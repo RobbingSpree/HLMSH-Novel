@@ -6,8 +6,8 @@ pov swap to brun to introduce and watch fel arrive and collapse
 chapter cut once Brun has set fel down
 
 Timeline:
-Starts: 8pm
-Finishes: 9pm
+Starts: 8pm Saturday
+Finishes: 9pm Saturday
 ##### X's opinion of Y in Ch1
 
 |       | Brun  | Fel        | Debug         |
@@ -41,8 +41,8 @@ share names since brun realizes they forgot to mention it
 
 **Timeline**
 Time skip from prev: a few hours
-Starts: 4am
-Finishes: 4:30am
+Starts: 4am Sunday
+Finishes: 4:30am Sunday
 ##### X's opinion of Y in Ch2
 
 |       | Brun                 | Fel              | Debug    |
@@ -66,8 +66,8 @@ go back to previous thoughts, but they're tinged with lesbianism now
 
 **Timeline**
 Time skip from prev: 20 minutes
-Starts: 5am
-Finishes: 6am
+Starts: 5am Sunday
+Finishes: 6am Sunday
 
 ##### X's opinion of Y in Ch3
 
@@ -110,8 +110,8 @@ Has mixed feelings about Trouble due to her own past
 
 **Timeline**
 Time skip from prev: a few hours
-Starts: 11am
-Finishes: 12am
+Starts: 11am Sunday
+Finishes: 12am Sunday
 
 |              | Brun is    | Fel is   | Debug is     |
 | ------------ | ---------- | -------- | ------------ |
@@ -143,8 +143,8 @@ Brun asks them to cover the end of her shift so she can take trouble to hospital
 
 **Timeline**
 Time skip from prev: a few hours
-Starts: 6pm
-Finishes: 10pm
+Starts: 6pm Sunday
+Finishes: 10pm Sunday
 
 |              | Brun is         | Fel is      | Debug is |
 | ------------ | --------------- | ----------- | -------- |
@@ -171,9 +171,9 @@ Gets her to go take a suripticious photo from cafe across the street
 Beth asks why she knows this stuff
 
 **Timeline**
-Time skip from prev: 
-Starts: 
-Finishes: 
+Time skip from prev: not long
+Starts: 11pm Sunday
+Finishes:  11pm Sunday
 
 |              | Brun is | Fel is | Debug is |
 | ------------ | ------- | ------ | -------- |
@@ -210,9 +210,9 @@ Talks about the car the hotel accidentally stole
 Commit to doing fake crime
 
 **Timeline**
-Time skip from prev: 
-Starts: 
-Finishes: 
+Time skip from prev: a few horus
+Starts: 3am Monday
+Finishes: 4am Monday
 
 |              | Brun is                          | Fel is   | Debug is  |
 | ------------ | -------------------------------- | -------- | --------- |
@@ -232,7 +232,19 @@ Debug POV
 Debug asks trouble about suspicious man from earlier 
 Trouble breaks down scared
 Debug and trouble end up making out
-(Possible chapter break here)
+
+**Timeline**
+Time skip from prev: 20 minutes
+Starts: 4am
+Finishes: 4am
+
+|              | Brun is | Fel is               | Debug is            |
+| ------------ | ------- | -------------------- | ------------------- |
+| Brun thinks  | tired   | damaged              | exhausted           |
+| Fel thinks   | ???     | ???                  | lovely and reliable |
+| Debug thinks | distant | too full of emotions | a bad person        |
+
+# chapter 9
 Brun POV
 Brun comes back and finds someone making out behind reception desk
 Tries to leave, recognises debug as one of the people
@@ -254,6 +266,60 @@ Finishes:
 | Fel thinks   |         |        |          |
 | Debug thinks |         |        |          |
 
+# chapter 10
+POV trouble
+wakes up with babes beside her
+wriggles free, finds laptop
+wrestles with herself on where to work 
+wants to work surrounded by Debug and Brun's sleeping faces
+decides she's allowed to want things
+thinks back on the kiss she shared with debug
+makes clear to herself that she thought debug was like cool version of the person she wants to be and that's why she finds her attractive
+POV Debug
+wakes up to Trouble in a zoom call
+panics for a second
+relaxes when trouble see's she's awake and they demonstrate where the edge of the camera's view is
+notices she'd been using her tummy as a bit of a desk
+says they should use Brun as a desk cause she sleeps like a log
+trouble shows left arm in cast as reason
+watches her work for a bit
+POV Brun
+Wakes up feeling rested since she didn't set herself any alarms
+Sees Debug and trouble chatting in a relaxed manner
+gets a bit jealous that debug seems to have opened up to trouble in a way they don't with her
+Thinks about how they saw Debug making out with someone behind the reception desk and that they actually don't know their friend as well as they thought
+
+**Timeline**
+Time skip from prev: 
+Starts: 
+Finishes: 
+
+|              | Brun is | Fel is | Debug is |
+| ------------ | ------- | ------ | -------- |
+| Brun thinks  |         |        |          |
+| Fel thinks   |         |        |          |
+| Debug thinks |         |        |          |
+
+# ACT 1 END
+plot standing:
+Brun: 
+cares for trouble, feels a bit maternal
+curious about debug, little intimidated by them
+Felicity:
+Feels safe with Brun, nothing clearly sexual yet
+feels reassured by debug, sees them as a safe way to express their physical desires
+Debug:
+still just a crush on Brun, doesn't see a way to open up to them
+sees trouble as a comrade in arms, both against trauma and crushing on Brun
+
+Clear goals:
+fuck up Frank
+restabilize trouble's life
+pick new name for Brun
+learn debug's backstory
+unclear goals:
+rehouse trouble
+kiiiiiiisssss?
 
 # Major plot points to hit not covered in work yet
 Frank visits hotel asking after Fel debug is behind the counter (not sure about this)

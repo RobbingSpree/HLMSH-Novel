@@ -14,18 +14,21 @@ Current length of rehash:
 - 4 chapter in editing hell (4-7)
 - 1 chapter being written (8)
 - 2 in pre-production planning (9-10)
+act 1 planning complete (10 chapters)
+act 2 planning begin
 
-
-| Chapter | approx length | chapter summary | POVs included    |
-| ------- | ------------- | --------------- | ---------------- |
-| 1       | 2700          | inaccurate      | Brun, Fel        |
-| 2       | 2900          | inaccurate      | Brun, Fel        |
-| 3       | 3000          | inaccurate      | Brun, Fel        |
-| 4       | 2300          | inaccurate      | Debug, Brun, Fel |
-| 5       | 3100          | done            | Debug, Brun, Fel |
-| 6       | 2200          | written         | Debug, Fel       |
-| 7       | 2500          | written         | Brun, Fel, Debug |
-| 8       |               | written         |                  |
+| Chapter | approx length | chapter summary | POVs included | running total |
+| ------- | ------------- | --------------- | ------------- | ------------- |
+| 1       | 2700          | inaccurate      | Brun, Fel     | 2.7k          |
+| 2       | 2900          | inaccurate      | Brun, Fel     | 4.6k          |
+| 3       | 3000          | inaccurate      | Brun, Fel     | 7.6k          |
+| 4       | 2300          | inaccurate      | De, Brun, Fel | 9.9k          |
+| 5       | 3100          | done            | De, Brun, Fel | 14k           |
+| 6       | 2200          | written         | De, Fel       | 16.2k         |
+| 7       | 2500          | written         | Brun, Fel, De | 18.7k         |
+| 8       | 2600          | written         | Brun, Fel, De | 21.3k         |
+| 9       |               | written         | Brun, Fel     |               |
+| 10      |               | written         | Brun, Fel, De |               |
 
 
 Latest posted chapter:

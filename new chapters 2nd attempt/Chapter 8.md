@@ -111,35 +111,63 @@ Brun paused for a moment, taking in the streets and the cramped close rows of ho
 
 Debug's mind was racing like a three legged mutt at the greyhound race.
 
-She kept swinging back and forth that she'd said too much or been too abrasive in the car ride, that she should have turned Brun down. But at the same time, she had been wrong about how much energy she had left, and was barely hanging on.
+She kept swinging back and forth that she'd said too much or been too abrasive in the car ride, that she should have turned Brun down. But at the same time, she had been wrong about how much energy she had left, and was barely hanging on and wanted to sleep ASAP.
 
-Bee had clearly spotted this, and rather than help make what they had described as 'a nest' she had been sent down to get Trouble from the car and bring her up. And it was unclear if this was a punishment of not, as she was actively trying to fall asleep on the walk through the hotel. The on shift morning staff had been rather concerned when they saw her in the halls.
+Bee had clearly spotted this, and rather than help make what they had described as 'a nest' she had been sent down to get Trouble from the car and bring her up. It was unclear if this was a punishment of not. The on shift morning staff had been rather concerned when they saw her in the halls almost miss the corners and run into walls.
 
 Since she couldn't turn back time, she'd just have to live with whatever she said and make excuses later.
 
-She reached the car, and opened Trouble's door to find them still dozing and covered in bandages. This poor thing really did need someone looking out for them, and while Brun was a great emotional bulwark who made people feel safe, they might need someone who had survived similar circumstances. The problem would be she would have to admit to having PTSD and being honest with someone, but she hadn't been liking how Manager Beth had been cornering her on that lately, so if she practiced with Trouble she might get the confidence to emotionally dump on Beth as revenge for their prying.
+She reached the car, and opened Trouble's door to find them still dozing and covered in bandages. This poor thing really did need someone looking out for them, and while Brun was a great emotional bulwark who made people feel safe, they might need someone who had survived similar circumstances too. The problem would be she would have to admit to having PTSD and being honest with someone, but she hadn't been liking how Manager Beth had been cornering her on that lately, so if she practiced with Trouble she might get the confidence to emotionally dump on Beth as revenge for their prying.
 
 "Hey Snugglebunny, wake up. Let's go somewhere more comfortable so you can get proper sleep." She jostled Trouble, leaving over them and unbuckling their seatbelt. She was still quite close to their face when they did stir. "Morning." Their face flushed with an emotion Debug didn't recognize, but she just assumed she wasn't going to have any smart thoughts while being this tired so put it from her mind.
 
 "We got home safe?" They asked, still bleary eyed.
 
-"Yep, I had Brun drive cause I was close to a nap like you were." Lightly pulling on their sleeve to remind them they needed to get out of the car. "Let's put you to bed first."
+"Yep, I had Brun drive cause I was close to a nap as you were." Lightly pulling on their sleeve to remind them they needed to get out of the car. "Let's put you to bed first."
 
-Trouble stumbled out of the car, drew themselves to their full height, slouched again and trudged towards the door. Debug took a few quick steps to catch up and trudged alongside them.
+Trouble stumbled out of the car, drew themselves to their full height, slouched again and trudged towards the door. Debug took a few quick steps to catch up and trudged alongside them. The hint of early morning sunlight failing to cast any shadows as they trudged in unison through the car park.
 
-The reception was empty as they reached the building, Debug's todo list pulled at her mind. She needed to ask about the guy Beth had taken a photo of.
+The reception was empty as they reached the main building, Debug's todo list pulled at her mind. She still needed to ask about the guy Beth had taken a photo of.
 
 "Actually, Cutie..." Debug had no idea how Brun or Beth made making pet names up on the spot look east. "I've got something on the reception computer to ask you about, join me back here." As she lead Trouble into the employees only area.
 
-With practiced ease she logged into the computer and navigated to where she'd put the photos and opened them.
+With practiced ease she logged into the computer and navigated to where she'd put the photos earlier and opened them.
 
 "So this guy turned up earlier today looking very suspicious..." She started as she turned to talk to Trouble rather than at the screen. "...fuck."
 
-Trouble had already started to hyperventilate and panic. The few patches of their face that wasn't covered in bandages and bruises was deadly pale. She was vindicated in her suspicions, but this was probably not the best time or way to talk about this. Mashing keys on the computer to close the picture with one hand and trying to hold Trouble up and failing with the other, they ended up on the floor in a pile.
+Trouble had already started to hyperventilate and panic. The few patches of their face that wasn't covered in bandages and bruises were deadly pale. She was vindicated in her suspicions, but this was probably not the best time or way to talk about this. Mashing keys on the computer to close the picture with one hand and trying to hold Trouble up and failing with the other, they ended up on the floor in a pile.
 
-It had been a long time since she was responsible for someone this upset. Using what strength she had, she managed to turn the sobbing Trouble around to face her, then shuffled as close to her as possible. Close enough that they sat with hips side by side, Debug using her body to help keep Trouble from leaning so far that they collapsed entirely onto the ground.
+It had been a long time since she was responsible for someone this upset. Using what strength she had, she managed to turn the sobbing Trouble around to face her, then shuffled as close to her as possible. Close enough that they sat with hips side by side, Debug using her torso to help keep Trouble from leaning so far that they collapsed entirely onto the ground.
 
 She put a hand on their head and gently bonked their foreheads together, aiming to try and bring their focus as close and as small as possible. 
 
-"Breath okay?" She placed a hand on their chest as they took their first deep shaky breath for nearly a minute. 
+"Breath okay?" She placed her hand on their chest next as they took their first deep shaky breath for nearly a minute. Following practiced experience she thought she had long forgotten, she started to lead Trouble by loudly and obviously taking deep and calm breaths, making sure she didn't blow in Trouble's face while she was making noise.
+
+Cycling through what she felt helped her when she was having an episode, Debug popped her other hand into her sleeve and tried to wipe the rivers of tears off Trouble's cheek. With her adrenalin waning, and with both arms not being used to hold herself up, she slouched and leaned into Trouble a bit harder. As their bodies shifted, what had been just forehead touching rolled down the face and smooshed their noses alongside one another before their lips grazed one another.
+
+Without thinking, and being a little asleep, Debug instinctively pressed her lips forward in a kiss. And Trouble seemed to hungrily respond in kind. What had moment's ago been an effort to slowly calm down had turned greedy and lustful.
+
+Was Debug really so easy a lay that she'd kiss anyone enthusiastically, even by accident?
+
+She tried to stop her body, have it listen to reason, anything but deepen the kiss and potentially traumatize someone she was in charge of.
+
+But she didn't listen to herself.
+
+The soft sensation of their continued kiss continued.
+
+Trouble wrapped an arm around her and made a desperate noise into her mouth.
+
+This was apparently something Trouble needed too. 
+
+She was sure she was just playing stand-in for Brunhilde and Trouble was also her stand-in for the tall dark lady she crushed on too.
+
+Her hand on Trouble's chest pushed a little harder and cause them to lean further and further back making the kiss easier to deepen.
+
+She didn't know what to think anymore, she wanted this more than sleep, to kiss and touch and hold more.
+
+The unmistakable sound of footsteps leaving jolted her back to her senses.
+
+Debug gently pried herself off Trouble, they continued panting and looking at her with an expression she couldn't fathom.
+
+"Come on, ya dork. We can have more fun later, we need sleep still." The thrills of touch had put enough of a pep in Debug's step she found herself able to clamber to her feet and lead Trouble back to their room.
 
