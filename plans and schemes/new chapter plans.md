@@ -235,8 +235,8 @@ Debug and trouble end up making out
 
 **Timeline**
 Time skip from prev: 20 minutes
-Starts: 4am
-Finishes: 4am
+Starts: 4am Monday
+Finishes: 4am Monday
 
 |              | Brun is | Fel is               | Debug is            |
 | ------------ | ------- | -------------------- | ------------------- |
@@ -256,15 +256,15 @@ Trouble gets a lot of physical attention from the others
 Enjoys it
 
 **Timeline**
-Time skip from prev: 
-Starts: 
-Finishes: 
+Time skip from prev: no time
+Starts: 4am Monday
+Finishes: 4am Monday
 
-|              | Brun is | Fel is | Debug is |
-| ------------ | ------- | ------ | -------- |
-| Brun thinks  |         |        |          |
-| Fel thinks   |         |        |          |
-| Debug thinks |         |        |          |
+|              | Brun is | Fel is              | Debug is      |
+| ------------ | ------- | ------------------- | ------------- |
+| Brun thinks  | tired   | lost and then found | here          |
+| Fel thinks   | grabby  | spoiled             | soft and kind |
+| Debug thinks |         |                     |               |
 
 # chapter 10
 POV trouble
@@ -290,9 +290,9 @@ gets a bit jealous that debug seems to have opened up to trouble in a way they d
 Thinks about how they saw Debug making out with someone behind the reception desk and that they actually don't know their friend as well as they thought
 
 **Timeline**
-Time skip from prev: 
-Starts: 
-Finishes: 
+Time skip from prev: a few hours
+Starts: 10am Monday
+Finishes: midday Monday
 
 |              | Brun is | Fel is | Debug is |
 | ------------ | ------- | ------ | -------- |
@@ -312,14 +312,51 @@ Debug:
 still just a crush on Brun, doesn't see a way to open up to them
 sees trouble as a comrade in arms, both against trauma and crushing on Brun
 
-Clear goals:
+**Clear goals:**
 fuck up Frank
 restabilize trouble's life
 pick new name for Brun
 learn debug's backstory
-unclear goals:
+**unclear goals:**
 rehouse trouble
 kiiiiiiisssss?
+**Personal problems**
+Brun: unaware
+Debug: closed off
+Fel: Live wire
+
+# ACT 2 START
+
+Overall problems:
+somewhere safe becomes unsafe (Beth starts harassing Debug and trying to pressure them for sex acts with blackmail material of them kissing trouble)
+Debug refuses to let anyone know something is wrong
+because of social pressures trouble wants to move out of the hotel despite the wonderful care she gets and her friends working there
+brun is now more curious about Debug but due to their own stressors they're keeping them at arms length, thus brun tries to self improve and is taken advantage of by Beth
+frank gets a lead on trouble when her and debug go out together and debug says hi to an old friend who's tangentially related to frank's circle
+frank gets destroyed when debug's police friend tips them off and gives them ample leverage to destroy frank's life (note, they don't use any official police methods as they have already been shown to be unreliable and able to be abused)
+# Chapter 11
+Trouble POV
+recap of several day timeskip
+she's been asking Debug for kisses often
+tries to justify it to herself as an anxiety thing and not a poorly managed coping mechanism
+has got into a routine of having both Debug and Brun in her room at the end of their shifts 
+wants another sleepover with all three of them again but doesn't know if she's allowed to ask for that
+Feels bad for Brun asking her for her dirty clothes to throw in the on site washing machine
+asks debug to go shopping with them for new clothes
+wants to go in disguise and has noticed that Debug's roots are showing so they must have hair dye they can use on her to help her disguise
+sexy time with hair and water and dye ensues
+
+# Chapter 12
+going shopping
+debug meets old police friend
+# Chapter 13
+Debug POV
+return from shops
+get singled out by Beth for a work question
+have them send trouble away
+get cornered by beth about their proclivities
+have the security footage of debug and trouble kissing in the reception while brun seemingly watches put in front of them
+
 
 # Major plot points to hit not covered in work yet
 Frank visits hotel asking after Fel debug is behind the counter (not sure about this)
