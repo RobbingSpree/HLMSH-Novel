@@ -9,30 +9,29 @@ So I've started fresh, [writing from chapter 1](https://github.com/RobbingSpree/
 
 Current length of rehash:
 16000-ish words
-- 2 chapter(s) complete. (1-2)
-- 1 chapter pending upload (3)
-- 4 chapter in editing hell (4-7)
-- 1 chapter being written (8)
-- 2 in pre-production planning (9-10)
+- 3 chapter(s) complete. (1-3)
+- 1 chapter pending upload (4)
+- 5 chapter in editing hell (5-9)
+- 1 chapter being written (10)
 act 1 planning complete (10 chapters)
 act 2 planning begin
 
 | Chapter | approx length | chapter summary | POVs included | running total |
 | ------- | ------------- | --------------- | ------------- | ------------- |
 | 1       | 2700          | inaccurate      | Brun, Fel     | 2.7k          |
-| 2       | 2900          | inaccurate      | Brun, Fel     | 4.6k          |
-| 3       | 3000          | inaccurate      | Brun, Fel     | 7.6k          |
-| 4       | 2300          | inaccurate      | De, Brun, Fel | 9.9k          |
-| 5       | 3100          | done            | De, Brun, Fel | 14k           |
-| 6       | 2200          | written         | De, Fel       | 16.2k         |
-| 7       | 2500          | written         | Brun, Fel, De | 18.7k         |
-| 8       | 2600          | written         | Brun, Fel, De | 21.3k         |
-| 9       | 2000          | written         | Brun, Fel     | 23.3k         |
+| 2       | 2900          | inaccurate      | Brun, Fel     | 5.6k          |
+| 3       | 3000          | inaccurate      | Brun, Fel     | 8.6k          |
+| 4       | 2700          | inaccurate      | De, Brun, Fel | 11.3k         |
+| 5       | 3100          | done            | De, Brun, Fel | 14.4k         |
+| 6       | 2200          | written         | De, Fel       | 16.6k         |
+| 7       | 2500          | written         | Brun, Fel, De | 19.1k         |
+| 8       | 2600          | written         | Brun, Fel, De | 21.7k         |
+| 9       | 2000          | written         | Brun, Fel     | 23.7k         |
 | 10      |               | written         | Brun, Fel, De |               |
 
 
 Latest posted chapter:
-2
+3
 to:
 Royal Road: https://www.royalroad.com/author-dashboard
 Wattpad: https://www.wattpad.com/myworks/395478580-her-love-makes-safe-harbors
