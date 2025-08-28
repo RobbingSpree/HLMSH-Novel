@@ -66,5 +66,18 @@ She panicked for a moment, her powerful need for personal secrecy rearing it's h
 
 Debug was floored by the change in temperament. Yesterday Trouble had been an absolute wreck, a miniscule voice that wanted to be hidden in someone else's skirt. But this was confident and professional. It hit Debug like a stack of bricks: this was her customer service voice. Even someone as battered and bruised as they were had a persona that could portray competence as long as it was in their field of expertise.
 
-She spent the next few minutes of the meeting watching Trouble intently, noticing the details of their performance and what they thought was adult. Their pause and breath in before starting to explain something, their extended thinking noises they used to make decisions in while appearing to not, their very few hand gestures they used to punctuate important points. Like with everyone she got a chance to observe, it was fascinating to see.
+She spent the next few minutes of the meeting watching Trouble intently, noticing the details of their performance and what they seemed to think was sensible adult behavior. Their pause and breath in before starting to explain something, their extended thinking noises they used to make it seem like they were considering someone else's idea, their very few hand gestures they used to punctuate important points. Like with everyone she got a chance to observe, it was fascinating to see.
 
+Soon enough the meeting ended and Trouble closed the laptop with an audible slap. 
+
+"Sorry, I used you like a second desk." Trouble said, their voice closer to what Debug remembered from yesterday, but less strained and anxious. She took that as a que she could escape and stood up from the bed. 
+
+Now that she could see the rest of the room she could also see Brun, who in their normal clueless fashion had apparently gone to sleep in their singlet and pants. The fact that Trouble could focus on their work with eye candy like Brun nearby made her confident Trouble wasn't gay. Which lead to to assume the poor thing was just incredibly touch starved as to why they had gotten so enthusiastic with their accidental kiss earlier.
+
+Trouble climbed off the bed after them and from a polite distance, with surprisingly firm posture, spoke.
+
+"About earlier...in the reception...I'm sorry I got so upset." Their confidence seemed to leak out of them as they spoke, slowly becoming smaller and hunching their shoulders. "But, your hug...and the other bit really helped. It was like meditating, it really helped focus on something that wasn't..." They waved their arms about gesturing at themself and the room in general. "...All of this. I don't want to pressure you or anything, but would it be okay if I got another one if I start to get upset?"
+
+Debug tried to not let her surprise show on her face. It was definitive, Trouble wasn't gay. No sane lesbian would ask her for a kiss when Brun was right there. She was inclined to say yes, she had been a bit touch starved herself and gotten caught up in it, a bit of practice expressing some physical vulnerability in a way that had no deeper meaning would probably be a good thing. It might also help her get over how much of a brick wall Brun was when she tried to flirt.
+
+"Yeah, that's ok. Just come find me and ask for a 'treat' or something to keep it vague." 
