@@ -1,3 +1,8 @@
+---
+tags:
+  - Debug
+  - Notes
+---
 blurb: kidnap and abuse survivor trying to ignore her own past and herself
 
 flaws: 

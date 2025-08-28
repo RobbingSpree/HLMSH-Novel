@@ -1,4 +1,8 @@
-#  chapter 1
+---
+tags:
+  - Notes
+---
+#  [[Chapter 1]]
 start on fel's escape
 can make a note on their existing injuries do the hospital visit later doesn't seem to come from nowhere
 pov swap when she spots the hotel's lights
@@ -16,7 +20,7 @@ Finishes: 9pm Saturday
 | Fel   | Scary | Scared     | N/a           |
 | Debug | n/a   | N/a        | Dreaming      |
 
-# Chapter 2
+# [[Chapter 2]]
 fel pov
 start on fel waking up
 half describe room she expects to wake up in
@@ -52,7 +56,7 @@ Finishes: 4:30am Sunday
 | Debug | Dreaming             | N/a              | Dreaming |
 
 
-# Chapter 3
+# [[Chapter 3]]
 brun pov
 almost nap
 travel to her apartment for nap
@@ -78,7 +82,7 @@ Finishes: 6am Sunday
 | Debug thinks | didn't say hi  | We finally get to use the DV prototcols | Work work work |
 
 
-# Chapter 4
+# [[Chapter 4]]
 
 Debug POV
 chilling at work, miffed brun didn't wait around to hand off as they normally do
@@ -120,7 +124,7 @@ Finishes: 12am Sunday
 | Debug thinks | rude       | normal   | off her game |
 
 
-# chapter 5
+# [[Chapter 5]]
 Open on trouble feeling conflicted and not feeling comfortable in her hotel room
 Hanging out in Brun's vicinity while she works
 Has a bit of a panic attack by feeling a positive emotion too hard
@@ -152,7 +156,7 @@ Finishes: 10pm Sunday
 | Fel thinks   | protective      | very broken | curious  |
 | Debug thinks | making mistakes | like her    | at risk  |
 
-## Chapter 6
+## [[Chapter 6]]
 
 POV Trouble
 Reflect on leaving the hotel with Debug taking back over shift and introducing themself as the crime commissioner 
@@ -182,7 +186,7 @@ Finishes:  11pm Sunday
 | Debug thinks |         |        |          |
 
 
-## Chapter 7
+## [[Chapter 7]]
 POV swap back to Brun
 Gets rumbled for faking identity
 Says its about a domestic abuse victim who can't leave a trace the police might find
@@ -221,7 +225,7 @@ Finishes: 4am Monday
 | Debug thinks | Paying attention to someone else | In need  | Burnt out |
 
 
-## chapter 8
+## [[Chapter 8]]
 Trouble POV
 Do B&E
 Brun POV
@@ -244,7 +248,7 @@ Finishes: 4am Monday
 | Fel thinks   | ???     | ???                  | lovely and reliable |
 | Debug thinks | distant | too full of emotions | a bad person        |
 
-# chapter 9
+# [[Chapter 9]]
 Brun POV
 Brun comes back and finds someone making out behind reception desk
 Tries to leave, recognises debug as one of the people
@@ -266,7 +270,7 @@ Finishes: 4am Monday
 | Fel thinks   | grabby  | spoiled             | soft and kind |
 | Debug thinks |         |                     |               |
 
-# chapter 10
+# [[Chapter 10]]
 POV trouble
 wakes up with babes beside her
 wriggles free, finds laptop

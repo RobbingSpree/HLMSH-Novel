@@ -1,3 +1,9 @@
+---
+tags:
+  - Brunhilde
+  - Felicity
+  - Sexy
+---
 Brun was familiar with this sensation of exhaustion, just yesterday she'd dragged herself the extra mile and today she was doing it again.
 
 She had sent Debug back to the car to fetch Trouble quite a while ago. And the longer she waited, the more likely she'd just go to sleep first. It wasn't that she didn't trust Debug, more that she knew how exhausted they were and was a bit worried they might not have made it all the way to the car without needing a sit down.

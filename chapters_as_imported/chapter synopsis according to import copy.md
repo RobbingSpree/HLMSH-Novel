@@ -1,6 +1,6 @@
 chapters from import are off by one due to an attempt to combine chapter 1 and 2 and then subsequent chapters 
 
-# chapter 1 
+# [[Chapter1]] / [[Chapter0]]
 
 ## overview in new version
 intro for brun and fel
@@ -55,7 +55,7 @@ cares for her and doesn't objectify sexually
 chapter starts around friday 7pm
 chapter finishes around friday 9pm
 
-# Chapter 2
+# [[Chapter2]]
 
 ## overview in new version
 fluff chapter to raise mood of reader, also further characterize fel and brun
@@ -115,7 +115,7 @@ brun takes her home to keep her company/safe
 chapter starts around sat 4am
 chapter finishes around sat 7am
 
-# Chapter 3
+# [[Chapter3]]
 
 ## overview
 fel catches an eyeful
@@ -135,3 +135,16 @@ brun fails to cook food and they have cereal
 
 chapter starts around 7am
 chapter finishes around midday
+
+
+# [[Chapter4]]
+
+
+# [[Chapter5]]
+
+
+# [[Chapter6]]
+
+
+
+# [[Chapter7]]

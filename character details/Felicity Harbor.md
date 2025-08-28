@@ -1,3 +1,8 @@
+---
+tags:
+  - Felicity
+  - Notes
+---
 blurb: Domestic abuse victim escaped into the welcoming arms of a stranger
 
 flaws: 

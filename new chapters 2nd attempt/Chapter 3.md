@@ -1,3 +1,9 @@
+---
+tags:
+  - Brunhilde
+  - Felicity
+  - Sexy
+---
 Brun snorted and her whole body twitched as she jerked back awake.
 
 "Not yet!" She announced as she pulled herself back from sleep, adrenalin pumping through her panicked mind, as she tried to remember what she had been doing before she let herself relax. Trouble turned to look at her with concern, holding what appeared to be the remains of a whole avocado they'd eaten with nothing but a fork.

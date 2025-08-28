@@ -1,3 +1,7 @@
+---
+tags:
+  - Notes
+---
 
 # Situations to put blorbos in
 

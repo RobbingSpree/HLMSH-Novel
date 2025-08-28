@@ -1,3 +1,7 @@
+---
+tags:
+  - Notes
+---
 When doing a POV shift each character in a chapter has the same sort of thought or mood they're facing
 
 ## chapter 1 

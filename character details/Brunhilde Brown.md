@@ -1,3 +1,8 @@
+---
+tags:
+  - Brunhilde
+  - Notes
+---
 blurb: workaholic with issues focusing on the immediate future, likes to care for others but doesn't know how to let others care for her or observe her
 
 flaws: 

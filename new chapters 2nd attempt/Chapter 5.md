@@ -1,3 +1,9 @@
+---
+tags:
+  - Brunhilde
+  - Debug
+  - Felicity
+---
 Trouble felt like a balloon on a string tied to Brunhilde's wrist. Bobbing around helplessly and being pulled along as Brun went about their day.
 
 She had tried sitting in her room, but the lack of anyone else present after spending the whole previous day with Brun made get hair stand on end. She had jumped at shadows and noises for an hour before deciding to try and find Brunhilde as they worked. And now, she didn't feel much better.

@@ -1,3 +1,8 @@
+---
+tags:
+  - Brunhilde
+  - Felicity
+---
 The front door stood imposing and closed at the far end of the room. Felicity wasn't even facing it, but that door was all she could think about. 
 
 Frank had just come home through that door, and as usual he smelled of alcohol and self-righteous anger. He had blown through the room like a megaphone attached to a vacuum, but Felicity didn't trust him to stay loud and harmless for long. He was sure to find something that upset him and lash out, and the last few days he'd been getting more and more aggressive with how he let that frustration spill out.

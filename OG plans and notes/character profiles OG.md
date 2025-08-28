@@ -1,3 +1,7 @@
+---
+tags:
+  - Notes
+---
 Felicity Harbor: our maligned protagonist. She had a rough childhood and spent a lot of it in books and writing and pressing flowers as they were all hobbies that could be put away safely and took up little space. Mostly going along with the whims of others they ended up in a het relationship and didn't pursue higher education past high school. They think they're straight, because while they've never really felt loved they've been told that it's normal to have a boyfriend and have disagreements with them so they put up with what was acceptable levels of abuse. It as it has escalated to physical abuse, and then to right before the story starts, threats of lethal violence, they flee their home into the rain when their boyfriend goes to stand on a balcony to have a smoke.
 
 Fastidious and focused, often gets caught in their own daydreams as an escape, easily spooked, disassociates when people get too physically intimate, never screams or whimpers, weaps silently if their emotions are too much. Works as a graphic designer because it earns money, but is a capable artist otherwise.

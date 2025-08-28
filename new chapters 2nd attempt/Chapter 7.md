@@ -1,3 +1,9 @@
+---
+tags:
+  - Brunhilde
+  - Debug
+  - Felicity
+---
 (need to change Brun's name to Princess following what's said last chapter, maybe also have Brun take on that name then too)
 
 Brun felt uneasily optimistic, like trying to enjoy the moment up until the other boot to drops. She stood behind Trouble and played with their hair nervously.

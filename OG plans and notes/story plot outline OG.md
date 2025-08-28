@@ -1,3 +1,7 @@
+---
+tags:
+  - Notes
+---
 Chapter one covers
 
 	Introduce Felicity/Trouble as she escapes from her abusive partner

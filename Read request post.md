@@ -1,3 +1,7 @@
+---
+tags:
+  - Utility
+---
 
 ⋆☕️ ˖ ┄───╮
 Genre- Romance, Psychological (light)

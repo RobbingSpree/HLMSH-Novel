@@ -1,3 +1,9 @@
+---
+tags:
+  - Debug
+  - Felicity
+  - Sexy
+---
 Trouble awoke and struggled to rise, delicately retrieving her arms and body from the grip of the women around her.
 
 She didn't know how much time had passed, but she rarely spelt longer than a few hours. 
@@ -47,3 +53,18 @@ Since that kiss had been so good at helping them get through their panic and wor
 Debug awoke and felt scuffed, like she had been bent out of shape or drop out of a window.
 
 Taking in her surroundings and recalling the circumstances that lead to her current predicament, she realized it was the bed that had done her in. The few times she'd taken Manager Beth up on spending the night at the hotel rather than trudging home she had woken up in pain every time. The mattresses they used throughout the hotel were much too soft for Debug's tastes. 
+
+She found herself laying on her back next to Trouble, who was happily sitting with a laptop propped up against her legs. It appeared they were left handed as scattered next and around her was Trouble mouse drawing tablet and stylus. She felt a little silly to have been used as a side table while she slept. 
+
+Trouble, for their part, didn't seem to have noticed she was awake yet. They were focused on their computer, listening to the world's least interesting video. It wasn't until Trouble talked back to the video that Debug realized it wasn't a video but was a video call.
+
+She panicked for a moment, her powerful need for personal secrecy rearing it's head. her change in demeanor must have alerted Trouble as once they finished talking they turned to wave cutely at her before gesturing to the laptop screen and her own camera feed. Before then drawing a big rectangle around her head. Debug stared blankly at her for a moment, trying to comprehend the gestures. 
+
+"I'm outside the frame?" Debug whispered, starting to catch on.
+
+"Yep, all they've seen is just me and the bedhead. I've not told them where I'm staying, just that I'm away from home while traveling." They responded, not turning from the screen. "I mute my mic most of the time, but can I ask you stay quiet for the next few minutes till this meeting is over?"
+
+Debug was floored by the change in temperament. Yesterday Trouble had been an absolute wreck, a miniscule voice that wanted to be hidden in someone else's skirt. But this was confident and professional. It hit Debug like a stack of bricks: this was her customer service voice. Even someone as battered and bruised as they were had a persona that could portray competence as long as it was in their field of expertise.
+
+She spent the next few minutes of the meeting watching Trouble intently, noticing the details of their performance and what they thought was adult. Their pause and breath in before starting to explain something, their extended thinking noises they used to make decisions in while appearing to not, their very few hand gestures they used to punctuate important points. Like with everyone she got a chance to observe, it was fascinating to see.
+

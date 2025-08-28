@@ -1,3 +1,7 @@
+---
+tags:
+  - Notes
+---
 ## Manager Beth Ahils (pronounced Alice)
 
 Manager of the hotel, likes her current staff and wants to upskill them because she sees the best in them.

@@ -1,3 +1,7 @@
+---
+tags:
+  - Metanalysis
+---
 reliance on she/her/name when describing actions
 speeds through events
 spelling inconsistencies (between english and american)

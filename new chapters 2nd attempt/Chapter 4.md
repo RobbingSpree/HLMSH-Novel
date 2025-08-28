@@ -1,3 +1,9 @@
+---
+tags:
+  - Brunhilde
+  - Debug
+  - Felicity
+---
 Debug stood restless, fingers drumming on the reception desk.
 
 "She didn't even stay to say 'Hi'!" She complained to no one. "Let alone apologize for taking my uniform." 

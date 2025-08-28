@@ -1,3 +1,8 @@
+---
+tags:
+  - Brunhilde
+  - Felicity
+---
 Her sleep was deep and dreamless. She almost didn't notice that she had woken up as there was almost no ambient noise.
 
 Felicity lurched up, reaching for her bedside table to brace against and sit up, a pounding headache and general body ache assailing her as her all at once to let her know that moving was a bad idea. Leaning on the bedside table was also a bad idea because it wasn't there, and this wasn't her bedroom.

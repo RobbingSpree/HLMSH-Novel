@@ -1,3 +1,8 @@
+---
+tags:
+  - Debug
+  - Felicity
+---
 Trouble felt oddly driven. While things were still not going well, she was actually taking steps to face it.
 
 Her life had felt like it was at the beck and call of anyone who could wield power over her, her parents, then boss, then boyfriend. Each time, she had just gone with it because when she tried to take control of her own life things went aggressively wrong. Having her stuff stolen, or broken, or sometimes it turned violent. Complying was always the safest course.

@@ -1,3 +1,7 @@
+---
+tags:
+  - Utility
+---
 Her Love Makes Safe Harbor
 A romance novel by Bobbity Obbity
 
@@ -27,7 +31,7 @@ act 2 planning begin
 | 7       | 2500          | written         | Brun, Fel, De | 19.3k         |
 | 8       | 2600          | written         | Brun, Fel, De | 21.9k         |
 | 9       | 2000          | written         | Brun, Fel     | 23.9k         |
-| 10      | 900           | written         | Brun, Fel, De |               |
+| 10      | 1400          | written         | Brun, Fel, De |               |
 assumed page length (assuming the average page length of 275 words per page): 91
 
 Latest posted chapter:
