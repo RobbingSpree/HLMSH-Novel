@@ -4,11 +4,15 @@ Debug stood restless, fingers drumming on the reception desk.
 
 "She might have just made a break for it when the rain eased. You saw how bad it got last night." Manager Beth's voice from the back room responded. "When she called about our new Sanctuary it was absolutely coming down in sheets."
 
-Debug didn't want to let a slight go unpunished, but she had an absolute soft spot for Bunhilde. She stood in a uniform that was incredibly oversized for her and tried to not look like a teenager. From what she could piece together, Brun had taken the uniform Debug had left at the hotel instead of the actual spare. The spare was made from terrible synthetic fabrics, so people could change into it when cleaning a room a guest had done terrible things to. And now she had to do a whole shift in it.
+Debug didn't want to let a slight go unpunished, but she had an absolute soft spot for Brunhilde. She stood in a uniform that was incredibly oversized for her and tried to not look like a teenager. From what she could piece together, Brun had taken the uniform Debug had left at the hotel instead of the actual spare. The spare was made from terrible synthetic fabrics, so people could change into it when cleaning a room a guest had done terrible things to. And now she had to do a whole shift in it.
 
-She wasn't even sure how Brun could fit her clothes, they were a solid two heads taller than her and broader across the shoulders. 
+She wasn't even sure how Brun could fit her clothes, they were a solid two heads taller than her and broader across the shoulders. Compared to Brun she wasn't anything special, shorter than average and smaller than average and with practiced excuses to justify it. She ran a hand through her short dark blue hair and tried to mentally unruffle her feathers. Her hair colour had started as a test to see at what point people mentioned the colour. But after slowly shifting from dying it black to a vibrant blue and no one mentioning it, she was shifting back to adding more black dye in her wash.
 
-"I can't wait for the convention season to start so Bee and I can be on the same shifts again." Debug said while moping, she had wanted quite badly to get her twice weekly chance to flirt with the unflappable giantess only to miss them while she stalked the staff room looking for her clothes.
+She looked down at herself with a judgmental eye.
+
+"If I was Brun I wouldn't want to hang out with me either." She muttered pulling at the uncomfortable shirt and vest covering her rash of freckles and pale skin. The oversized clothes hiding her lack of feminine features, and making her look like an unloved teen again.
+
+"I can't wait for the convention season to start so Bee and I can be on the same shifts again." Debug said while moping, she had wanted quite badly to get her twice weekly chance to flirt with the unflappable giantess.
 
 "Actually, since you two are the most senior staff, I'm gonna need you to each manage the day and the night shift respectively." Manager Beth interjected. "Why do you think I've been getting you two to specialize and learn how all the ins and outs in the off season? I've got ambitions for the pair of you."
 
@@ -16,7 +20,9 @@ She wasn't even sure how Brun could fit her clothes, they were a solid two heads
 
 "Why are both you and Brun using the worst possible language for this?" Manager Beth asked, now appearing from the back room. "I've not met them, but since their room was empty when I went to introduce myself I checked the cameras and saw they left this morning with Brun. Can't blame them, I'd think myself safe in her arms too."
 
-Debug was at a loss for words.
+Beth was Debug's definition of a manager, she assumed someone that looked like them would be found in almost every job. Dark red hair pulled into a serious bun, a long face that ended in sharp cheekbones and a pointed chin. And like any manager she'd known they made everyone's business their business.
+
+Choosing not to answer, Debug settled in for what would likely be their worst shift in a while.
 
 ***
 

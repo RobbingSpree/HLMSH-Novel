@@ -5,7 +5,7 @@ flaws:
 - forgets long term plans when they stop actively working on them
 - agrees to things in the heat of the moment
 - ends up trapping herself when her past is discussed as she both wants to share and is scared to
-- is very aware of the personas she puts on with people and that almost every encounter is fake due to not barong her true self
+- is very aware of the personas she puts on with people and that almost every encounter is fake due to not bareing her true self
 
 starting point of the story: crushing on coworker, frivolously spending time learning new skills they don't need
 
@@ -22,7 +22,7 @@ History:
 Kidnapped from the scene of a house fire by some rich woman
 (Abuser 1: Gertrude Jasper)
 Gets given fake name by abuser
-(Fake name 0: Melody Forthright)
+(Fake name 0: Melody Jasper)
 Abused by fake mother due to being a literal child and being upset about her parents being gone
 Sold to functional slavery and prostitution of Gertrude's church group after a faction scuffle put her out of the top of the heap
 (Abuser 2: West Southern Friends of the Cross)
@@ -38,7 +38,7 @@ Got another new name
 (New name 2: Daphne Smith)
 Volunteered to live alone with regular police check-ins due to not wanting to bring more trouble
 Due to a lack of birth cert and original family details and her record being sealed a system audit assumed she was a false identity a crooked cop made to sell
-Debug misunderstood their intentions as more stalking and harrassment and fled, breaking all contact with the police who were checking on her
+Debug misunderstood their intentions as more stalking and harassment and fled, breaking all contact with the police who were checking on her
 Did some identity theft to get a more trustworthy name
 Got a job at Dept of BD&M
 Forged her own new identity 

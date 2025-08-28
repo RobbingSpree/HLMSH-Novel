@@ -12,7 +12,7 @@ Currently, she was feigning interest in a leaflet she was pretending was her pho
 
 She pulled at the open zipper on Brunhilde's jacket that she was still wearing. While she couldn't get an actual hug, and might cry if she did, this was comforting enough for now. Trouble was mixed on wanting the weather to clear up, if it did her clothes under the jacket wouldn't look as out of place, but if it didn't she could keep wearing the jacket and no one would question it's necessity. Though it was still necessary either way; as she was still wearing nothing but a singlet and no bra under the protection of the jacket.
 
-"Hey, Trouble." Brunhilde's hand appeared on her shoulder seemingly as soon as her thoughts had consumed her. Though in all likelihood she had been ignoring Brun calling out to her. "It's getting towards dinner, do you wanna go wait in your room and I'll come by with some food? Not my cooking, but it'll be warm at least?" Brun flashed a warm smile as they turned to leave. A warm smile that made her feel safe.
+"Hey, Trouble." Brunhilde's hand appeared on her shoulder seemingly as soon as her thoughts had consumed her. Though in all likelihood she had been ignoring Brun calling out to her. "It's getting towards dinner, do you wanna go wait in your room and I'll come by with some food? Not my cooking, but it'll be warm at least?" Brun flashed a friendly smile as they turned to leave. A warm smile that made her feel safe.
 
 Trouble smiled in return, a warm feeling bloomed in her tummy. Her smile got wider. She found herself trying to cover her mouth and keep the feeling to herself. A moment of worry that she wouldn't be able to keep this emotion under wraps lurched from within her mind. 
 
@@ -26,7 +26,7 @@ Felicity became very aware how much noise she was making and had the horrific th
 
 Practiced reflexes kicked in and she stopped breathing. Lungs ached as her chest tried to heave and force air to move. Her stomach muscles flexed and stopped everything moving in her abdomen. She could feel her diaphragm flitting wildly like the heartbeat of a tiny scared animal. She stopped making any noises.
 
-Moments passed in forced silence.
+Moments passed in forced, controlled silence.
 
 Flashes and spots appeared in her vision.
 
@@ -62,13 +62,13 @@ Brun stopped in place like an unfair crane game arm, a single cream puff in her 
 
 "Before you go." Daveo interrupted, before quickly cutting an apple into a pair of delicate looking flowers. "This is a second fruit to feed your friend."
 
-Brun walked at her work speed down the hall to Trouble's room, two plates in hand. Upon reaching Trouble's room she used the master key while it was still in her pocket to unlock the door and open it with her patented reversing dump truck technique. She swung around to take in Trouble's room and work out where to place the food.
+Minutes later Brun walked at her work speed down the hall to Trouble's room, two plates in hand. Upon reaching it she used the master key while it was still in her pocket to unlock the door and open it with her patented reversing dump truck technique. She swung around to take in Trouble's room and work out where to place the food.
 
-The room was dark compared to the vibrantly lit halls, Trouble was sitting in a bulky chair in the corner under a lamp. The curtains drawn and none of the overhead lights were on, long shadows spread around the room. Brun took one of the decoratively cut apples and lobbed it to Trouble's left side. Trouble for her apparent prowess managed to snatch the Apple out of the air with deft precision, only to wince and drop it, followed by a look of panic appearing as she snatched the apple again with her right hand.
+The room was dark compared to the vibrantly lit halls, Trouble was sitting in a bulky chair in the corner under a lamp. The curtains drawn and none of the overhead lights were on, long shadows spread around the room. Brun took one of the decoratively cut apples and lobbed it to Trouble's left side. Trouble, for her apparent prowess, managed to snatch the Apple out of the air with deft precision. Only to wince and drop it, followed by a look of panic appearing as she snatched the apple from the air again with her right hand.
 
 "Very swish, I'm impressed Trouble." Brun said as she sat down on the floor Infront of them and placed their plate of food on the arm of their chair. 
 
-They are in mostly silence, just the noise of chewing and utensils scraping. Brun didn't find the quiet to be uncomfortable, she spent a lot of her time looking up at Trouble and watching them exist near her. A lot of the time they had spent together had been quite emotionally fraught, so a relaxing meal with no one in tears was a nice change of pace. But as she had noted earlier and confirmed with the apple, Trouble was apparently concealing an injury in their left hand.
+They sat are in silence, just the noise of chewing and utensils scraping. Brun didn't find the quiet to be uncomfortable, she spent a lot of her time looking up at Trouble and watching them exist near her. A lot of the time they had spent together had been quite emotionally fraught, so a relaxing meal with no one in tears was a nice change of pace. But as she had noted earlier and confirmed with the apple, Trouble was apparently concealing an injury in their left hand.
 
 They would do normal motions like picking up food with a fork with their left, but for cutting or chasing a morsel of food around the plate shed swap which utensil when in which hand for those tasks.
 
@@ -76,7 +76,7 @@ They would do normal motions like picking up food with a fork with their left, b
 
 "This isn't actually that bad..." Trouble said, peeling her protective jacket back and examining her own skin. Gingerly poking and prodding some of her own injuries. "I mean, I've got a few from...getting into fights...but you've not done anything wrong." They frowned at a few of their injuries as they moved from one to the next.
 
-"I'm not perfect, Trouble. I'm bound to make mistakes." She reached and took Trouble by the wrist to avoid their hand injury. "We've only just met and I don't know all your secrets, I don't want to. I just want to keep you safe, I only ask so I don't move thoughtlessly and hurt you. Like your hands, you look like you're left handed, but you've been treating it so delicately all day. And when I passed you the apple just now, it made it look like that made it worse. I don't want to put you in a position where you're forced to make an injury worse frome my negligence."
+"I'm not perfect, Trouble. I'm bound to make mistakes." She reached and took Trouble by the wrist to avoid their hand injury. "We've only just met and I don't know all your secrets, I don't need to. I just want to keep you safe, I only ask so I don't move thoughtlessly and hurt you. Like your hands, you look like you're left handed, but you've been treating it so delicately all day. And when I passed you the apple just now, it made it look like that made it worse. I don't want to put you in a position where you're forced to make an injury worse from my negligence."
 
 "Ahh, no, that's...it's a injury from work." Trouble stammered, their eyes flitting away and back from Brun's own gaze. "I draw for work, and do other stuff too. Graphic design and digital art and copy writing and project management, but too much drawing can give you a repeated strain and that makes my wrists a bit tender, especially in around stormy weather" Trouble turned their attention to their hands, turning them over and sliding their arms in Brun's loose grip but never removing them. They sighed and relaxed into Brun's touch. 
 
@@ -108,7 +108,13 @@ Trouble felt Brun's hands cupping her cheeks, the injuries and bruises there had
 
 Worry and panic gripped her heart.
 
-What if she was simply broken now? What if, after all this, she had just started to come undone? Like a car which somehow keeps running when it's entirely rust that finally drives over a pothole and now something crucial breaks. What if there was no saving what was left of her.
+What if she was simply broken now? 
+
+What if, after all this, she had just started to come undone? 
+
+Like a car which somehow keeps running when it's entirely rust that finally drives over a pothole and now something crucial breaks. 
+
+What if there was no saving what was left of her.
 
 ***
 
@@ -126,7 +132,7 @@ Debug thought for a moment before, before forgetting half of what Bee had said a
 
 "Ok, umm...so if you touch it they go really pale. And it's tender, I don't know if there's any related bruising."
 
-"Bruising?" Debug interjected, confused about a beagle that could bruise when they didn't have blood or a vascular system.
+"Bruising?" Debug interjected, confused about a beetle that could bruise when they didn't have blood or a vascular system.
 
 "Yeah, on her arm."
 
@@ -140,7 +146,7 @@ There was a long pause from the other end of the call.
 
 "Ok, right. She's got lots of bruises, so I don't know if it's related to any one. But if we put weight on the inside of her arm or squeeze her forearm kinda anywhere it hurts a lot and she loses all strength in both her arms."
 
-"Does it feel really loud?" Debug asked the assumed other participant of the call. Already having flash backs to when she last fell out of a tree. 
+"Does it feel really loud?" Debug asked the silent participant of the call. Already having flash backs to when she last fell out of a tree. 
 
 A pause long enough for Trouble to have the question conveyed and responded passed before Bee spoke again.
 
@@ -148,7 +154,7 @@ A pause long enough for Trouble to have the question conveyed and responded pass
 
 "Broken bone, likely a fracture if only one axis of movement causes pain. Go to the hospital and get it in a cast. Also, stop poking it for science." Debug, having finished explaining the issue hung up and then regretted her choice.
 
-"I could have chatted more, this was the first time in ages Bee was the one to call me."
+"I could have chatted more, this was the first time in ages that Bee was the one to call me."
 
 She flopped about on her bed. While her sleep had been cut short, she was too awake now and would have to get up.
 
@@ -162,7 +168,7 @@ She picked up a book of crosswords, this month's new special interest, and start
 
 "I give businesses and people I don't want to call me fake numbers or fax numbers. What other questions do you have for me today, Bee?" The voice was easy to recognise with Bee's telltale rasp.
 
-"Right, I don't want to say we should do crimes, but Trouble has said she's worried of we go to the hospital the police might come and get her. And I don't know what to do about the police, and you're the one Beth calls when she wants the police to leave the hotel...soooooo..." Bee was being very diplomatic today, normally she'd put her foot in her mouth and just say she wanted to do illegal stuff.
+"Right, I don't want to say we should do crimes, but Trouble has said she's worried if we go to the hospital the police might come and get her. And I don't know what to do about the police, and you're the one Beth calls when she wants the police to leave the hotel...soooooo..." Bee was being very diplomatic today, normally she'd put her foot in her mouth and just say she wanted to do illegal stuff.
 
 "Right, subtle hospital visit. You've got your wallet on you today Bee, right? Then use that. Insurance and Medicare cards don't have photos on them and I've just given them a business card when they want proof of my address and they'll normally accept that. They don't really care, they just want the post code." 
 
@@ -172,7 +178,7 @@ There was a longer than expected pause from Bee.
 
 "Sorry, I was explaining it to Trouble. You're too reliable, Dee. I owe you." Bee's voice finally broke the silence again.
 
-"Well thanks for using your friendly neighbourhood crime commission. Please stay on the line for an automated survey." She waited until she hung up before she let herself breath normally. She was going to have to start avoiding Beth if they were getting back on her cause about her history. The stress from earlier was still affecting Debug and she was jumping to conclusions.
+"Well thanks for using your friendly neighborhood crime commission. Please stay on the line for an automated survey." She waited until she hung up before she let herself breath normally. She was going to have to start avoiding Beth if they were getting back on her case about her history. The stress from earlier was still affecting Debug and she knew was jumping to conclusions.
 
 Before she could get back into her crossword, her phone rang again. Expecting some kind of comeuppance with Bee's warning and with the rule of three, she checked the caller ID this time. Her blood ran cold.
 
