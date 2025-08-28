@@ -80,4 +80,30 @@ Trouble climbed off the bed after them and from a polite distance, with surprisi
 
 Debug tried to not let her surprise show on her face. It was definitive, Trouble wasn't gay. No sane lesbian would ask her for a kiss when Brun was right there. She was inclined to say yes, she had been a bit touch starved herself and gotten caught up in it, a bit of practice expressing some physical vulnerability in a way that had no deeper meaning would probably be a good thing. It might also help her get over how much of a brick wall Brun was when she tried to flirt.
 
-"Yeah, that's ok. Just come find me and ask for a 'treat' or something to keep it vague." 
+"Yeah, that's ok. Just come find me and ask for a 'treat' or something to keep it vague." Debug had an unwelcome memory of being on the other end of a similar conversation about 'special hugs' and took that as her que to leave, wanting to leave Trouble with a perspective of her that had few to no flaws or weaknesses.
+
+***
+
+Brun awoke with a thud and lay where she found herself, like some tragic beaches whale.
+
+She was on the floor.
+
+Sunlight fell on her face, so she shielded her eyes and looked around. Trouble stood next to the curtain chain and looked shocked and apologetic. Brun assumed she had tried to escape the sudden sunlight only to fall off the bed.
+
+She clambered to her feet, a lot more alert than she normally was after waking up. Maybe she should try more serious shocks to wake her up in the future, she did tend to lose a lot of time to her body's love of sleep.
+
+"I'm ok, Love." Brun said as she sat back down on the bed and gave herself a quick check for any surprise injuries. 
+
+"Yeah, it'll take more than gravity to slow you down, eh?" Debug's voice came from across the room.
+
+Brun whipped her head around, quite surprised to see her colleague still around. Debug stood at the kitchenette snacking on an apple, looking quite amused at Brun's misfortunes. They had changed outfits too, which meant they had left and come back. Brun honestly knew very few facts about Debug, but one she had learned from first hand experience was if they left the hotel after a shift they wouldn't be back until their next one. And yet here they were, bold as brass, eating an apple.
+
+Next Brun turned to Trouble to see how they were doing. Last time they had fallen asleep they'd woken up with Trouble in tears, but today they seemed cheerful and enthused. After reassuring them she was alright they had walked back over to the kitchenette bench and were chatting happily with Debug. Brun felt a sting of jealousy that someone else was able to make Trouble this happy and relaxed. She knew logically this was a silly thing to get hung up on, that Trouble wasn't a play thing or a posession, but it's hard to disagree with an emotion.
+
+Fishing her shirt off the back of the armchair where she'd placed it the night before so she could cover up her burly looking arms, Brun walked over to where Debug and Trouble stood to get a feel for what was going on. The two of them were watching seemingly nothing happen on Trouble's laptop which was plugged into the wall. She raised an eyebrow at the computer and wordlessly asked Debug what was so interesting.
+
+"It's exporting video, takes a while to smush all the data into a smaller file, we're just making sure it doesn't go to sleep. If you're hungry it's the afternoon period for the dining hall. Or we can go across the street to a cafe for some desperation sale baked goods."
+
+"Wow, I slept in. It's the afternoon already?" With how hard she had been to wake up yesterday, Brun started to think about changing the days she worked so she had more rest between shifts. Missing all the daylight hours was one of the few downsides to her night shifts.
+
+After answering her question, Debug went back to talking to Trouble, regaling them with silly happenings and stories from working at the hotel. Brun was shocked how charismatic and charming Debug was being, was this how they were when they were rested? Is this how they had seduced the concierge who was working last night? Brun had so many questions, and for someone who she knew could lie as easily as breathing no good way to pose them.
