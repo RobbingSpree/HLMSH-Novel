@@ -24,14 +24,26 @@ Something in the low light caught Trouble's eye. A bright patch of skin amongst 
 
 Looking down at their own bare chest and the hodge-podge of bandages and plasters covering her skin, she wondered again if she was broken beyond fixing. She then remembered she wasn't wearing a shirt and had gotten distracted from the matter at hand.
 
-Trouble snuck back over to the wardrobe and put on a shelf bra shirt, before swapping her underwear and pants for fresh ones. Rather than try to argue with herself, she climbed back into the bed and sat between her two saviors. Opened her laptop to discover the time wasn't too late in the morning and tried to get to work.
+Trouble snuck back over to the wardrobe and put on a shelf bra shirt, before swapping her underwear for fresh ones and pants for shorts. With her legs visible now she could see even more of the bandages on her skin. She still didn't want to remove any of them, but the itch of the adhesive pulling faintly at her skin was hard to ignore. Rather than try to argue with herself about how far she should stay from her friends again, she climbed back into the bed and sat between her two guardians. Opened her laptop to discover the time wasn't too late in the morning and tried to get to work.
 
-(looks to side at her new firends and thinks about what she thinks and knows about them)
+Mere minutes after getting started, with her laptop propped up between her bare legs and stomach, Trouble was distracted by her bedfellows moving and settling again in their sleep. From this side she could see the dried streaks from Debug's tears on their face, without her arm they seemed to have grabbed a chunk of the blanket and was holding that close to their chest. Trouble found her eyes drawn to Debug's lips.
 
-(brun is stoic, but she might have hidden depth she doesn't let others know)
+"It was a nice kiss..." Trouble lamented thinking back to their embrace in the reception. "...am I gay?" She turned to ask Brun's sleeping body. 
 
-(Debug is cool and collected and seems like the version of her she wished she could have grown into, and that might be why she was so keen to kiss her (and wants to kiss again), but having seen their collection of scars they worry that they just attract other abused people and if that means Brun also has a tragic past too)
+With a bit of sunlight coming through around the edge of the blinds she could see that Brun wasn't wearing as much of her uniform as Debug. They wore just a singlet that clung to their body and trousers that showed off their bum. Trouble found herself not knowing where to look, Brun's toned arms or gently rising and falling bust or at the hands that had held her so warmly before.
+
+"Oh no...I am gay. This explains...nothing, huh." Trouble tried to recall if she had similar feelings when she was younger, but all that came to mind was making sure no one else her age went anywhere near her dad for fear of what they might do to other kids. "I did always enjoy watching the Volleyball when the big sports things were on TV. So maybe there were signs." She muttered to herself.
+
+Looking at Brun again in this new light, they were quite beautiful. the delicate lines from their collarbones and neck that lead to their kind face. While gazing at her friend, Trouble was struck by the thought that if the reason Debug was as keen to help was because they had similar hurt in their past, what could have happened to Brun to make them as kind and gentle as they were.
+
+Realizing she was avoiding work, Trouble shifted and tried to refocus. Only to immediately turn to look at Debug, wondering if now that she was aware she was gay she could work out why she had found their kiss to be so electric. They were about the same height and build and had similar pale skin tones, and since Trouble had never found herself attractive it was unlikely that was what had made their embrace so wonderful. Maybe it had just been the ease at which their reassurance had turned passionate?
+
+Simple conjecture was unlikely to get an answer. 
+
+Since that kiss had been so good at helping them get through their panic and worry, perhaps she could ask Debug for more kisses to help stay calm in the future. With obviously no untoward desires in the mix, it would be...akin to an experiment.
 
 ***
 
-(POV debug wake up and panic a little)
+Debug awoke and felt scuffed, like she had been bent out of shape or drop out of a window.
+
+Taking in her surroundings and recalling the circumstances that lead to her current predicament, she realized it was the bed that had done her in. The few times she'd taken Manager Beth up on spending the night at the hotel rather than trudging home she had woken up in pain every time. The mattresses they used throughout the hotel were much too soft for Debug's tastes. 

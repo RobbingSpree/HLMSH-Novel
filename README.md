@@ -27,22 +27,22 @@ act 2 planning begin
 | 7       | 2500          | written         | Brun, Fel, De | 19.3k         |
 | 8       | 2600          | written         | Brun, Fel, De | 21.9k         |
 | 9       | 2000          | written         | Brun, Fel     | 23.9k         |
-| 10      |               | written         | Brun, Fel, De |               |
-
+| 10      | 900           | written         | Brun, Fel, De |               |
+assumed page length (assuming the average page length of 275 words per page): 91
 
 Latest posted chapter:
 3
 to:
-Royal Road: https://www.royalroad.com/author-dashboard
+Royal Road: https://www.royalroad.com/fiction/129272/her-love-makes-safe-harbors
 Wattpad: https://www.wattpad.com/myworks/395478580-her-love-makes-safe-harbors
 ScribbleHub: https://www.scribblehub.com/series/1708024/her-love-makes-safe-harbors/
 Inkitt: https://www.inkitt.com/stories/1537962
 
 Synopsis:
 
-Brunhilde loves small and delicate critters, when she meets a woman she can only describe as small and delicate, her desire to protect takes over and she gives them shelter at the hotel she works at.
+Brunhilde loves small and delicate critters, when she meets a battered woman in need that she can only describe as small and delicate, her desire to protect takes over and she gives them shelter at the hotel she works at.
 Felicity assumes it's only natural that everyone seems to mistreat her until she meets a tall, brooding woman who takes care of her like a knight in shining armor.
-Debug has been trying to keep her colleagues at arms length assuming the worst, she harmlessly flirts with her work friend Bee and diverts her manager from probing her past, but meeting a fellow survivor in Trouble opens her to the desire to wanting to try letting people in.
+Debug has been trying to keep her colleagues at arms length assuming the worst, she harmlessly flirts with her work friend Bee and diverts her manager from probing her past, but meeting a fellow survivor in Trouble opens her to the possibility of letting people in.
 
 
 other note:

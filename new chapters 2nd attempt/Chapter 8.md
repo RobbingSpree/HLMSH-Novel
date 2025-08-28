@@ -123,7 +123,7 @@ She reached the car, and opened Trouble's door to find them still dozing and cov
 
 "We got home safe?" They asked, still bleary eyed.
 
-"Yep, I had Brun drive cause I was close to a nap as you were." Lightly pulling on their sleeve to remind them they needed to get out of the car. "Let's put you to bed first."
+"Yep, I had Brun drive cause I was as close to a nap as you were." Lightly pulling on their sleeve to remind them they needed to get out of the car. "Let's put you to bed first."
 
 Trouble stumbled out of the car, drew themselves to their full height, slouched again and trudged towards the door. Debug took a few quick steps to catch up and trudged alongside them. The hint of early morning sunlight failing to cast any shadows as they trudged in unison through the car park.
 
