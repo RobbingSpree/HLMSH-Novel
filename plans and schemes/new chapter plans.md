@@ -338,7 +338,7 @@ because of social pressures trouble wants to move out of the hotel despite the w
 brun is now more curious about Debug but due to their own stressors they're keeping them at arms length, thus brun tries to self improve and is taken advantage of by Beth
 frank gets a lead on trouble when her and debug go out together and debug says hi to an old friend who's tangentially related to frank's circle
 frank gets destroyed when debug's police friend tips them off and gives them ample leverage to destroy frank's life (note, they don't use any official police methods as they have already been shown to be unreliable and able to be abused)
-# Chapter 11
+# [Chapter 11]
 Trouble POV
 recap of several day timeskip
 she's been asking Debug for kisses often
