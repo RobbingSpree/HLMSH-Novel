@@ -13,12 +13,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "new chapters 2nd attempt/Chapter 4.md",
+                "file": "new chapters 2nd attempt/Chapter 11.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Chapter 4"
+              "title": "Chapter 11"
             }
           }
         ]
@@ -33,12 +33,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "chapters_as_imported/Chapter2.md",
+                "file": "plans and schemes/new chapter plans.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Chapter2"
+              "title": "new chapter plans"
             }
           }
         ]
@@ -180,6 +180,7 @@
   },
   "left-ribbon": {
     "hiddenItems": {
+      "bases:Create new base": false,
       "switcher:Open quick switcher": false,
       "graph:Open graph view": false,
       "canvas:Create new canvas": false,
@@ -190,13 +191,14 @@
   },
   "active": "db7010dc8961567f",
   "lastOpenFiles": [
+    "plans and schemes/new chapter plans.md",
     "chapters_as_imported/Chapter2.md",
-    "chapters_as_imported/chapter synopsis according to import copy.md",
-    "chapters_as_imported/Chapter3.md",
+    "new chapters 2nd attempt/Chapter 11.md",
     "new chapters 2nd attempt/Chapter 1.md",
     "new chapters 2nd attempt/Chapter 4.md",
+    "chapters_as_imported/chapter synopsis according to import copy.md",
+    "chapters_as_imported/Chapter3.md",
     "new chapters 2nd attempt/Chapter 3.md",
-    "plans and schemes/new chapter plans.md",
     "plans and schemes/Situations to put blorbos in.md",
     "plans and schemes/Chapter POV metaphores.md",
     "plans and schemes",
@@ -219,7 +221,6 @@
     "obsidian templates",
     "New folder",
     "character details/Felicity Harbor.md",
-    "character details/Side characters.md",
     "OG plans and notes",
     "new chapters 2nd attempt",
     "chapters",
