@@ -54,3 +54,63 @@ Debug raised their eyebrows, mildly impressed they had noticed.
 "I saw your roots poking through yesterday and I worked it out today. I wanted to ask your help in giving me a disguise." The pieces fit into place quite quickly in Debug's mind. Two whole weeks of being cooped up in the hotel was their breaking point. They wanted to leave, but make themselves harder to spot for anyone who knew them. She would have expected they go to Brun with this sort of request, but if they wanted to use hair dye she had more experience with that. 
 
 "What's the end goal? We aiming to go for a further walk or a relax in the night time air?" Debug pried, trying to not discourage the delicate creature.
+
+"I...err...don't think I can keep relying on your and Brun's kindness when it comes to getting my clothes washed. And since my paycheck came through on the new bank account: I actually have some spending money." Trouble looked at their hands, fingers entwining and tumbling as they spoke. "So I wanted to buy some more so I don't need your help every day or two. Or with a disguise I could go find a laundromat and do it myself." Debug recognized the habits of someone who expected the roof to fall on them for asking to breath. She put her hands over the top of Trouble's, preventing them from fidgeting further. She could feel their fingers wriggle in her palm.
+
+"Do you want a colour to match mine? Or something else? Like Brun's colour?" Debug realized after talking her words might be taken as asking which person Trouble liked better rather than asking them to choose between two different shades of black. Trouble's silvery blonde hair, like her own, wouldn't be difficult to get colour to stick. But Blues would help mute her natural colours more than a solid black. Holding her tongue rather than dig a deeper hole, Debug waited for a response.
+
+Trouble ran their hand through their own very short and uneven hair, in the low light it almost shimmered as it caught the light. It was a lot more appealing to look at than her own pale yellows.
+
+"What you've got looks good...can I...try the same?" 
+
+Debug realized she'd been holding her breath. But rather than release it as one big audible sigh, she kept holding it.
+
+"Sure..." She paused to breath quietly out through her nose. "I'll be right back and we can start your disguise. If we hurry, we can sneak out tonight before the shops close and have something cool to show Brun when she's on shift tomorrow." Debug tried to shift focus from herself to Brun, her emotions weighing on her uncomfortably with Trouble's compliment. 
+
+They had barely ventured into Trouble's room, she realized. They'd just discussed this plan in the cramped hallway that lead into the room proper. The walls felt unwelcoming and too close, and the distance between herself and Trouble read as dangerous. She knew Trouble would never use violence, but the urge to stay out of harm's way was difficult to ignore.
+
+Taking extreme care to walk back past Trouble and not seem awkward or let on that she might not be as capable or strong as Trouble believed. Thoughts of their earlier embraces and 'treats' circled in her mind, taunting her with evidence that she very much wasn't.
+
+"I'll see you soon, Bug." Trouble's voice following her into the hallway as the door closed behind her.
+
+Was she actually a very easy lesbian? Just falling for anyone who complimented her and gave her kisses. She felt disgusted with her own weakness and how easily her heart swayed.
+
+Despite her thorny demeanor her footfalls were as quiet as ever as she stalked to the chemist down at the end of the block.
+
+***
+
+Trouble felt a mix of excitement and nervousness, it had been a long time since she had been able to do anything with her hair on purpose.
+
+Debug had been true to their word on coming back swiftly. She had expected to need to get settled and watch some dull early evening television. But barely ten minutes after they had left they re-appeared, a little flushed in the face holding a bag of supplies.
+
+The room had then transformed, towels spread on the floor around on of the chairs that normally sat snug against the kitchenette counter, a towel around her shoulders to protect her clothes. And Debug had spread out a lot more tubes of stuff than she expected was needed along the countertop.
+
+"Okay! For our first step, we need wet hair to make all this goo flow more easily around your hair. Go pop your head under the tap in the sink and make it wet." Debug announced, their reassuring voice filling the space.
+
+Trouble complied, walking past them to the sink and trying to ignore the smell of sweat that lingered in the air as they busied themselves with the row of tubes. Since realizing she was gay, Trouble had found themselves reveling in their senses a lot more. The feel of the air, the hum of a voice, the scent that followed a movement. What would have before been just another note in a dull space was somehow now a cheering chord that harmonized with her heart.
+
+The water felt like how she imagined a giant tongue lapping at her head would, pressing down lightly and flowing and rushing over her hair. Within moments her hair was soaked. Jingling her head to shake off loose droplets before following with the towel to go from sodden to damp she returned to the chair next to Debug.
+
+Debug was putting on a pair of disposable gloves like the ones they'd handed her two weeks ago when they broke her into her own house. Memories of that day had become more pleasant as the days passed.
+
+"OK, young one. As someone more senior in the ways of follicle tinting, there's one thing we need to remember..." They paused in a way that made it unclear if they expected a guess or not. "Patience. The longer we leave it - up to a point - the stronger the results. And since we want a convincing colour, we'll wait an hour. So you got anything you want to do while we wait?"
+
+Trouble's mind was already filled with thoughts of gentle cuddles and caresses. But knew she couldn't ask for something selfish and decadent as that. 
+
+"Well, we've got a bunch of time to think about that while we work." Bug interrupted her train of thought while walking out of sight behind her and opening the first of many bottles.
+
+Since their first night together, Trouble had frequently thought back to the warm embrace she had found herself in sleeping between her protectors. Remembering the feel of their hands and bodies touching hers. It had been a reassuring memory of gentle physicality. To say she was unprepared for the sensation of someone gently mussing up her hair and running fingers through it over and over would be an understatement.
+
+Trouble had no good memories that involved her hair. Her dad had disliked it for reminding him of those he had lost, and Frank had disliked it when his own had started to fall out and took that frustration out on Felicity.
+
+Compared to that, the sensation of gentle fingertips running through her short hair sent shivers down her spine. The fact she couldn't see what Bug was doing and could trust them to keep her safe gave her butterflies. She squirmed a little in her seat, the fact she was enjoying this so much making her very embarrassed. She both wanted Bug to not stop so they wouldn't see how much of a mess she was turning into and to stop because she might start making mysterious noises if this went on much longer.
+
+Thankfully, she was saved any further embarrassment as Bug finished. The sound of the gloves being taken off signaling that this step was done.
+
+"Stay still for a sec, Love." Bug's low voice spoke quietly right next to her ear. The low tones doing things she didn't want to acknowledge. 
+
+A silent pause strung out, Trouble not sure what she was staying still for or for how long. She felt the hairs on her arm prick up in anticipation and her ears strained to get a hint as to what would come next.
+
+The rustling of plastic broke the silence followed by the feeling of elastic on her skin as Bug put a shower cap over the dye. Trouble let out a sigh that it was something normal.
+
+"OK, now that we've got that waiting, I have a surprise. Since you've still got some of your more identifying bruises, I got some concealer to apply on you while we wait. You can watch some telly while I work, I got pretty good at this when I wanted to cover up all my freckles." 
