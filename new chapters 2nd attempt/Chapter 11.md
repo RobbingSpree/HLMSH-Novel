@@ -35,3 +35,22 @@ Trouble pulled her work laptop back out and started to research disguises and wh
 
 Debug felt out of place walking the halls of her workplace in her casual clothes.
 
+Before meeting Trouble, as soon as they finished their handover Debug would be out the door and heading home while still in their work clothes. But now, they were spending a good chunk of their free time still at work, just so they could spend more time with Trouble and Brun.
+
+In the last two weeks their supply of clothes they kept at the hotel had tripled. What used to be an emergency garment and some socks was now two whole outfits, and it wasn't just her normal casual clothes that made her body shape entirely ambiguous, but instead it was nice clothes that showed off her rear and shoulders. She wasn't trying to show off, but she did worry what her normal relaxing clothes said about her to people who did care she existed.
+
+It was difficult to shake the old habits of wearing clothes that made her difficult to describe or identify, but if the same clothes made her feel bad seeing her own reflection they might have the same effect on other people looking at her too. And while she kept telling herself that the kisses she was sharing with Trouble meant nothing to them and was just a more gentle version of a clarifying slap to draw their focus. It was very difficult to not get a little worked up.
+
+She stood in front of Troubles door, centering herself. They had only just given them a 'treat' a few hours ago, expecting anything like that was foolish. She knocked and waited for a response, feeling the floor shift very slightly as Trouble's weight joined her near the door.
+
+"Bug!" Trouble's voice came through the door, before the floor shifted slightly again and the door opened inward. "I thought you were going to head home once you finished today. You said you were looking forward to having Friday to yourself." 
+
+"When keeping a hermit, you've gotta make sure they're doing well and not inventing new forms of heresy. I love heresy, don't cut me out of that." She said as she strolled into their room. Over the last few weeks they'd not managed to make the room their own space, never leaving or buying anything certainly made that difficult. Part of why she had dropped by this afternoon was to see if she could find out how Trouble liked to decorate a space so she could bring them a gift on Saturday.
+
+"Actually, I wanted to ask you something..." Trouble interrupted their train of thought, a fact Debug didn't enjoy. "You dye your hair, right?"
+
+Debug raised their eyebrows, mildly impressed they had noticed.
+
+"I saw your roots poking through yesterday and I worked it out today. I wanted to ask your help in giving me a disguise." The pieces fit into place quite quickly in Debug's mind. Two whole weeks of being cooped up in the hotel was their breaking point. They wanted to leave, but make themselves harder to spot for anyone who knew them. She would have expected they go to Brun with this sort of request, but if they wanted to use hair dye she had more experience with that. 
+
+"What's the end goal? We aiming to go for a further walk or a relax in the night time air?" Debug pried, trying to not discourage the delicate creature.

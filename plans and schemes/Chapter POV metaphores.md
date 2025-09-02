@@ -21,3 +21,19 @@ inanimate objects having a bad time
 
 ## chapter 6
 taking charge of situation
+
+## chapter 7
+
+
+## chapter 8
+
+
+## chapter 9
+
+
+## chapter 10
+
+
+## chapter 11
+weak knees and feeling out of place (growing pains)
+
