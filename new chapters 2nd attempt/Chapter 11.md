@@ -113,4 +113,8 @@ A silent pause strung out, Trouble not sure what she was staying still for or fo
 
 The rustling of plastic broke the silence followed by the feeling of elastic on her skin as Bug put a shower cap over the dye. Trouble let out a sigh that it was something normal.
 
-"OK, now that we've got that waiting, I have a surprise. Since you've still got some of your more identifying bruises, I got some concealer to apply on you while we wait. You can watch some telly while I work, I got pretty good at this when I wanted to cover up all my freckles." 
+"OK, now that we've got that waiting, I have a surprise. Since you've still got some of your more identifying bruises, I got some concealer to apply on you while we wait. You can watch some telly while I work, I got pretty good at this from when I wanted to cover up all my freckles." 
+
+Trouble blanched. According to the clock, she had been lost in bliss for only five minutes and was unsure if she could think straight, let alone walk straight. If Bug kept on pampering her for the next hour she might have some sort of accident.
+
+Last week, this sort of problem might have given her a panic attack. But since she was sure that regardless of what happened now she could convince Bug it was just platonic affection and platonic damp underwear, she could keep these feelings bottled up with only a little bit of spill over.

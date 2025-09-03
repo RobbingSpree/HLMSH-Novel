@@ -33,7 +33,7 @@ act 2 planning begin
 | 9       | 2000          | written         | Brun, Fel     | 23.9k         |
 | 10      | 2700          | written         | Brun, Fel, De | 26.6k         |
 | Act     | 1             | Complete        | Yay           | Woo           |
-| 11      |               | Written         |               |               |
+| 11      | 2900          | Written         | Fel, De       | 29.5k         |
 | 12      |               | Written         |               |               |
 | 13      |               | Written         |               |               |
 approx page length (assuming the average page length of 275 words per page): 90
