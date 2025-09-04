@@ -362,6 +362,25 @@ get cornered by beth about their proclivities
 have the security footage of debug and trouble kissing in the reception while brun seemingly watches put in front of them
 
 
+
+##  Act 2 arcs
+
+De and Fel hang out, no Brun
+De backstory
+De and Brun conflict, no fel
+Brun Backstory
+de gets blackmailed
+Beth backstory
+Brun and Fel investigate De vanishment, no de
+
+
+## Act 3 arcs
+
+downfall Frank
+Downfall beth
+lets live in a house together
+break back into Fel's house
+
 # Major plot points to hit not covered in work yet
 Frank visits hotel asking after Fel debug is behind the counter (not sure about this)
 **for chapter 8+**
