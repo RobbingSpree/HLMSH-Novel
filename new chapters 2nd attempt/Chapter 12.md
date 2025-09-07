@@ -56,12 +56,48 @@ Trouble would be fine with something like that from herself, she obviously didn'
 
 Trouble felt both like she was in a dream and that things were too real.
 
-Walking through the car park had been very grounding, focusing on all the sensations of the wind pulling at her and her hand in Bug's had been very reassuring. She recognized the same feeling of fitting her own body again as the many times they'd shared a gentle kiss.
+Walking through the car park had been very grounding, focusing on all the sensations of the wind pushing her and her hand in Bug's had been very reassuring. She recognized the feeling of her mind fitting back in her own body again as the same as many times they'd shared a gentle kiss to break her anxiety.
 
-When they had gotten inside and pushed her against the wall, Trouble could only think this was it. That she had somehow let slip that she felt more than respect for their friend, that they might need to wear some of the clothes they would buy out of the store. Especially fresh underwear.
+When they had gotten inside and Debug had pushed her against the wall, Trouble could only think this was it. That she had somehow let slip that she felt more than respect for their friend, that they might need to wear some of the clothes they would buy out of the store. Especially fresh underwear.
 
 They'd closed their eyes, expecting the next thing they would feel would be the familiar gentleness of lips pressed against lips. Of the same hunger that filled her daydreams of when they had first shared a kiss.
 
-But instead they'd teased her. Gotten close enough she could feel their breath on her skin, and instead of kissing Trouble, they had run a hand through her hair and complimented their new look. Before walking off and leaving them unsatisfied.
+But instead Debug teased her. Gotten close enough she could feel their breath on her skin, and instead of kissing Trouble, they had run a hand through her hair and complimented their new look. Before walking off and leaving them unsatisfied.
 
-Now minutes later, standing amongst the shirts and tops, they couldn't think of anything that wasn't Bug's hands on their body. Not helping in this matter, Bug kept on bringing clothes up to them, pressing the garment against them, letting skin touch skin with their hands against her bare shoulder.
+Now minutes later, standing amongst the shirts and tops, they couldn't think of anything that wasn't Bug's hands on their body. Not helping in this matter, Bug kept on bringing clothes up to them, pressing the garment against them, letting skin touch skin with their hands against her bare shoulder. Trouble had never been much of a physical affection person before, but this felt like a step beyond teasing. A hunger she didn't know was real had awoken in her and here was her friend taunting her with a taste, tantalising her even.
+
+"Yeah, I think this would look good on you. Does you like how it feels?" Bug once again came close enough to grab to taunt her, holding a shirt up in a fist to gently lean against her cheeks. The urge to simply lean into that touch, to grab their hand and hold it close, to return the gesture. 
+
+It felt unfair that she was the only one affected by this.
+
+"Actually..." Trouble interrupted, blindly grabbing a garment off the rack. "I think you'd look cute in this. I've got enough to try one a few, do you wanna come with me to the change rooms and we'll give it a go? See if it fits." Trouble had no plan, but if she could put the idea of herself taking off clothes into Bug's mind they might be on even footing.
+
+"Sure, that looks comfy. I think there's a giant sign on the wall saying the change rooms are over there." They said, pointing behind them. "We don't have unlimited time so we should start making some choices in case they give us a time limit soon."
+
+Bug took her hand again and lead her off.
+
+Upon reaching the change rooms they found the old lady who managed it talking to someone in a construction vest.
+
+"I'll go take my dinner break and be back in twenty to finish this, okay Ruth?" The old lady waved him away and beckoned the pair closer. As they approached they saw that the dressing rooms had been disassembled and were in utter disarray.
+
+"Don't worry, Love." The lady Trouble had to assume was called Ruth said. "There's still one big one at the end. You two are sisters, yes? Just go in together darlings, there's no fuel against going in together." While the pair looked puzzled at one another Ruth spared no time and started prodding them towards the change room together.
+
+Now in the confined space together, and with Ruth having closed the curtain behind them, Trouble turned to her companion.
+
+"We look like sisters?" She asked, genuinely confused.
+
+"Well...here comes stand next to me and look in the mirror." Debug said, beckoning them closer.
+
+Trouble stepped next to her friend, again noting how similar in height and build they were. Debug had a bit more muscle on her, with legs that looked lean and capable and arms that had a shape to them beyond skeletal. Looking in the mirror, Trouble gasped.
+
+She saw, two women with similar shaped and coloured eyes, the same mussed up dark with a sheen of blue hair, the same height, and very similar skin tones. Bug had a multitude more freckles, a gentle progression of spots that covered her nose, cheeks, forehead and ran down her neck. The normal equivalent Trouble was used to seeing, all her bruises were gone. Hidden under the makeup she now worse. 
+
+When she looked at Bug she saw a beautiful woman, and next to them looked someone who must be beautiful too, due to looking just like them.
+
+"That's me?" She asked in disbelief, running a hand through her hair and watching it move in the reflection.
+
+"Yeah, I told you I thought the colour would look good on you." They said, playfully mussing up Trouble's hair further.
+
+"But I'm..." She paused, unsure what word would even be appropriate to use. Before panicking and blurting out whatever was left in their mouth. "...Pretty."
+
+"You're cute as a button. There's a reason Brun fauns over you so. They like small cute things, and you're cute." 
