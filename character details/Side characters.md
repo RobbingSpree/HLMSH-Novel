@@ -27,3 +27,12 @@ Absent so far, but from what Brun says in chapter 5, they're kind but harsh
 
 ## Daveo line cook
 The person Brun mistakes for Barry in chapter 5
+
+## Debug Police friend (Sioned Bruce)
+
+about 40
+was a new procedural cop when they were part of Debug's case
+they had debug live with them for a while rather than have her go back into foster care for the few months they needed till they turned 18
+saw debug fairly regularly for the 8 years or so while the case went through the courts
+having seen Debug grow up they feel like an aunt to them
+wants to pry and catch up but knows that's not safe since some of debug's abusers are out of jail

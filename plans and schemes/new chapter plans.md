@@ -350,9 +350,26 @@ asks debug to go shopping with them for new clothes
 wants to go in disguise and has noticed that Debug's roots are showing so they must have hair dye they can use on her to help her disguise
 sexy time with hair and water and dye ensues
 
-# Chapter 12
-going shopping
+# [[Chapter 12]]
+Trouble POV 
+trouble is having a dissociative episode
+gets lead outside by debug
+Debug POV
+same stuff as above
+lead trouble to bus and then shops and lead them inside
+trouble starting to be grounded by this point
+kabedons them and tries to help finish grounding them
+mention new hair colour
+trouble POV
+gay panic
+get blue balled
+go to clothes changerooms 
+see own reflection
+almost forget they wanted to make Debug feel as bad as they did
 debug meets old police friend
+panics a little
+police person is with a colleague
+they mention trouble and debug is a little vague about them
 # Chapter 13
 Debug POV
 return from shops
