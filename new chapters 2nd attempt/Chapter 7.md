@@ -4,8 +4,6 @@ tags:
   - Debug
   - Felicity
 ---
-(need to change Brun's name to Princess following what's said last chapter, maybe also have Brun take on that name then too)
-
 Princess felt uneasily optimistic, trying to enjoy the moment up until the other boot, she knew in her bones was coming, to drop. She stood behind Trouble and played with their uneven hair nervously.
 
 Trouble was sitting in a chair having nurses apply bandage after bandage and handful after handful of salve to her bruises and injuries. Brun had expected a lot harder a time of it, fraud was supposed to be a crime that took planning. Or at least she assumed so until today.
@@ -80,17 +78,17 @@ Trouble felt exhausted and spent, she was stiff from all her new cast and bandag
 
 The nurses had done a very thorough job of finding and cataloging every bruise she had. After they were sure she had a fracture in her arm, they'd checked her over again in case she had another somewhere else she had also been neglecting.
 
-She knew Brun had seen her naked, cause she had needed to take off her wet clothes, but being awake while someone inspected every inch of you for signs of injury was embarrassing. And she didn't want to make a fuss, but also, she had very embarrassing thoughts about Princess while she had been stripping down. Did she want them to look? Did she not? Did she want them to also be embarrassed? It was a lot.
+She knew Brun had seen her naked before, cause she had needed to take off her wet clothes, but being awake while someone inspected every inch of you for signs of injury was embarrassing. The nurses knew how to check injuries without hurting, but also several times they did hurt her to check how bad it was underneath the bruising when they clumped together too much. And since she didn't want to make a fuss she kept quiet, but also, she was quiet due to the very embarrassing thoughts about Princess while she had been stripping down. Did she want them to look? Did she not? Did she want them to also be embarrassed? It was a lot.
 
-And most of all, was the nurse who'd been vocally jealous about her near lack of a bust. It wasn't something she'd had to address in the past, Trouble had not had opportunities for making friends by the time kids her age were growing boobs. So her lack of them and tendency to not wear a bra hadn't come up. She had just assumed everyone else didn't wear them either. And now she was overly conscious that Brun was wearing one now. They hadn't been wearing one last night when they dramatically dove through their loungeroom, but the less she thought about that the better.
+And most of all, was the nurse who'd been vocally jealous about her near lack of a bust. It wasn't something she'd had to address in the past, Trouble had not had opportunities for making friends by the time kids her age were growing boobs. So her lack of them and tendency to not wear a bra hadn't come up. She had just assumed everyone else didn't wear them either. And now she was overly conscious that Brun was wearing one right now. They hadn't been wearing one last night when they dramatically dove through their loungeroom, but the less she thought about that the better.
 
-Actually, Trouble noted they were avoiding thinking about a lot of stuff. But she could deal with it all in time. 
+Actually, Trouble noted they were avoiding thinking about a lot of stuff. But she could deal with it all in due time. 
 
-Brun continued to steer her into the hotel carpark, she'd still not learned how to get here without a storm pushing her most of the way.
+Brun continued to steer her into the hotel carpark, as she'd not yet learned how to get there without a storm and panic pushing her most of the way.
 
 "So I've got Monday's off. Do you work Monday? If be happy to hang out either way." Brun asked, deciding to break the comfortable silence they'd been walking in.
 
-Trouble stopped walking and Brun almost knocked them over as they tried to guide her into the hotel reception.
+Trouble stopped walking and Brun almost pushed them over as they tried to guide her into the hotel reception.
 
 Monday.
 
@@ -134,31 +132,33 @@ Debug was exhausted, running on fumes and whatever food she had just smuggled ou
 
 "So are you going to explain what's going on? This isn't a guessing game anymore." Beth asked, clearly cross. Debug had almost been caught taking food, not that taking the food was a thing they weren't allowed to do, but if Beth caught wind she wasn't taking good enough care of herself she'd never stop trying to metaphorically adopt her. Some of the seasonal staff had complained to her about it as a reason they wouldn't continue working with the hotel after the convention and tourism season. If it was bad enough to drive people away from an easy job, Debug assumed it was too much for her.
 
-"I had a migraine and took a day course on 'how to handle stalker exs'" She lied, the words coming out as naturally as they did, because she sounded as exhausted and done with the day as she was. "You just don't give them a reason to not be a weirdo until you need them to leave, and you don't have anyone do it, just make their scummy behaviour too difficult to hide. They'll fuck off by themselves and are less inclined to return."
+"I had a migraine and took a day course on 'how to handle stalker exs'" She lied, the words coming out as naturally as they did, because she physically couldn't smile or show any sarcasm with her energy deficit. "You just don't give them a reason to not be a weirdo until you need them to leave, and you don't have anyone do it, just make their scummy behavior too difficult to hide. They'll fuck off by themselves and are less inclined to return."
 
-Manager Beth didn't look convinced. But she also looked out of steam. She normally went home once the evening shift started. And now seems she was determined to finish the hand over with Debug and sleep in the hotel rather than go home. 
+Manager Beth didn't look convinced. But she also looked out of steam. She normally went home once the evening shift started. And now seems she was determined to finish the hand over with Debug and sleep in the hotel rather than go home. If Beth was determined to stick around Debug was concerned they'd follow her once she finished the handover and went to leave.
 
 Debug was just waiting for the morning shift staff to come back from the nap room where they'd gone to change. Looking for a way to give Beth the slip, she glanced around and spotted the ladies of the hour in the parking lot. 
 
 "Here comes Trouble." Debug announced and walked out the front door to greet them. They were easily the best excuse she could ask for.
 
-As she walked towards the pair, Bee took Trouble in her arms and hugged her. She was covering a shift and they were off flirting? incensed, she stormed closer to give them a piece of her mind. As she got closer she could make out the cast Trouble had got, and the absolute litany of bandages and gauze the hospital staff had wrapped her in. They looked like they were recovering from burns rather than abuse.
+As she walked towards the pair, Bee took Trouble in her arms and hugged her. Here she was covering a shift and they were off flirting? 
 
-Debug got within spitting distance, but before she could spit any insults, she noticed Trouble wasn't standing, not Bee hugging her. Bee was trying to hold Trouble aloft, while Trouble simply didn't use her legs. They also didn't seem to be very present, eyes unfocused and silently weeping.
+Incensed, she stormed closer to give them a piece of her mind. As she got closer she could make out the cast Trouble had got, and the absolute litany of bandages and gauze the hospital staff had wrapped her in. They looked like they were recovering from burns rather than abuse.
 
-"Crime Commisioner here..." Debug announced, trying to use abstract details to reel Trouble back into the present. "What can I do to help?"
+Debug got within spitting distance, but before she could spit any insults, she noticed things were very odd. Bee was trying to hold Trouble aloft, while Trouble simply didn't use her legs. They also didn't seem to be very present, eyes unfocused and silently weeping.
+
+"Crime Commissioner here..." Debug announced, trying to use her earlier title to reel Trouble back into the present. "What law is causing trouble?"
 
 "Break into my house and steal my stuff." Trouble replied, her voice unnaturally calm and mismatched to her current actions.
 
-"I can do that." Debug said as clearly as possible. Regardless of how difficult it would actually be, Trouble needed hear good news. "You came here on foot, we can be there and back with your stuff in under an hour." Brun was giving her all kinds of confused looks, but Debug justed waved a hand trying to wordlessly imply things would be fine.
+"I can do that." Debug said as clearly as possible. Regardless of how difficult it would actually be, Trouble needed hear good news. "You came here on foot, we can be there and back with your stuff in under an hour." Brun was giving her all kinds of confused looks, but Debug just waved a hand trying to wordlessly imply things would be fine.
 
 Doing some quick mental math on the quickest way to get all three of them into the seized car, Debug pointed to the lonely car at the far end of the carpark.
 
-"That blue car over there, is one the hotel owns. Some idiot got caught doing crimes while staying here and the police forgot to impound the car, and when no one ever came back for it, we claimed it as our own. Technically the hotel owns it." She continued waving at Bee hoping she'd get a chance later to give her the full story. "I'll run inside and grab the keys we'll drive to your place scope it out and steal everything not nailed down you want." She leaned a little closer to Bee and whispered. "Do what you can to get her focused on the present and either get her address or span her out of this entirely, I'll be right back."
+"That blue car over there, is one the hotel owns. Some idiot got caught doing crimes while staying here and the police forgot to impound the car, and when no one ever came back for it, we claimed it as our own. Technically the hotel owns it." Bee continued giving her looks but not letting her momentum with Trouble slip she continued to dismiss their concern with a wave hoping she'd get a chance later to get the full story. "I'll run inside and grab the keys we'll drive to your place scope it out and steal everything not nailed down you want." She leaned a little closer to Bee and whispered. "Do what you can to either get her focused on the present and get her address or snap her out of this entirely, I'll be right back."
 
-Without waiting for a response Debug took off at a run. Not her casual run she used when hurrying around the hotel, her full speed dead sprint. This was serious enough a shock to her system that she was now running on fumes and adrenaline. If she could keep it going she'd have enough focus to pick a random door lock and have Brun driver them all back to the hotel.
+Without waiting for a response Debug took off at a run. Not her casual run she used when hurrying around the hotel, her full speed dead sprint. This was serious enough a shock to her system that she was now running on fumes and adrenaline. If she could keep it going she'd have enough focus to pick a random door lock or two and have Brun drive them all back to the hotel.
 
-She came to a stop near the front door, waiting for it to open enough for her to sidle through. She swiftly stripped her black vest and unbottened the top two shirt buttons to let her body breathe. While Manager Beth was talking to the day staff, a weedy looking man she never bothered to learn the name of, Debug snuck behind the reception desk, opened a draw and grabbed the car key and her pick kit.
+She came to a stop near the front door, waiting for it to open enough for her to sidle through. She swiftly stripped her black vest and unbuttoned the top two shirt buttons to let her body breathe. While Manager Beth was talking to the day staff, a weedy looking man she never bothered to learn the name of, Debug snuck behind the reception desk, opened a draw and grabbed the car key and her pick kit.
 
-"Taking the car for a spin to do crimes, don't wait up." She half shouted to Beth, before racing back out the front door before it timed out and closed.
+"Taking the car for a spin to do crimes, don't wait up." She half shouted to Beth, while racing back out the front door before it timed out and closed.
 

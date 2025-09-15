@@ -12,7 +12,7 @@ Leaving Trouble's room behind and walking the halls of the hotel again, she let 
 
 And as much as she claimed to understand Trouble, she had been purposefully ignoring their circumstances. Trying to leave them space to feel safe first, get comfortable and come to find here as a real home. But that also meant that she knew next to nothing about them. 
 
-As she had walked around their house, she had seen all sorts of signs of the people who lived there. Trouble's stuff was all easy to find since it was crammed into the corners of only a few rooms. You could see how little space she was trying to take up, in comparison she might find the room here at the hotel too sparse and barren to be comfortable in.
+As she had walked around their house, she had seen all sorts of signs of the people who lived there. Trouble's stuff was all easy to find since it was crammed into the corners of only a few rooms. You could see how little space she was trying to take up, in comparison she might find the room here at the hotel too sparse, open and barren to be comfortable in.
 
 Brun wondered if this sort of consideration was why Debug had kept her at arms length. Was she just that bad at accommodating the wants or needs of others? She hadn't been the one Trouble had actually asked for help about her work stuff. It had been the reliable one of the two of them.
 
@@ -40,7 +40,7 @@ She'd told Dee they weren't work appropriate just last week.
 
 What was Debug doing back there she wondered?
 
-A sigh. A muffled noise. The ruffle of clothes.
+A sigh. A muffled noise. The ruffle of clothes. The desperation and hunger in every sound.
 
 There was someone else back there. Brun was not so naive to not know what those sounds meant.
 
@@ -60,27 +60,27 @@ When someone as reliable and confident as Debug had held her so gently and reass
 
 And when they had gone in for a kiss too. 
 
-She had felt like a princess. 
+She had felt like a precious doll. 
 
 She'd never felt like that with anyone before. 
 
 That a love as tender and sweet would be given to her so readily. She had never even considered the possibility of pursuing women romantically, but that might have explained why she hadn't ever felt the desire to pursue men in that way when she was younger.
 
-Sure, she had felt it was unsafe to make friends because her dad had made existing in her house unsafe and she couldn't trust he wouldn't hit any friends she was seen with like he did her. But the idea of romance had been one of her few escapes. A fantasy where someone would love her with no conditions. Likely affected by the stories her mom had read her while she was still alive, she had thought her only option was men.
+Sure, she had felt it was unsafe to make friends because her dad had made spending time in her house unsafe and she couldn't trust he wouldn't hit any friends she was seen with like he did her. But the idea of romance had been one of her few escapes. A fantasy where someone would love her with no conditions. Likely affected by the stories her mom had read her while she was still alive, she had thought her only option was men.
 
-Debug had stirred her heart awake, then reminded her she still needed to properly rest before doing a day of work and had run off to get a breakfast snack she could have once she woke back up.
+Debug had stirred her heart awake, then reminded her she still needed to properly rest before doing a day of work and had run off to get a breakfast snack she could have once she woke back up for work.
 
-They had stayed behind saying they needed to get started on submitting a (police report thing for staying away). But they'd follow soon and that Brunhilde had organized something that might help with getting to sleep.
+They had stayed behind saying they needed to get started on submitting a restraining order. But they'd follow soon and that Brunhilde had organized something that might help with getting to sleep. Trudging back to her room alone wasn't what she wanted to do, she wanted more gentle touches. But time alone with her thoughts was probably what she needed.
 
-Walking up to the room door she saw it open and the lights inside off. Peering into the dimly lit room from the bright hallway she could see what Debug had meant.
+Walking up to her room's door she saw it open and the lights off. Peering into the dimly lit room from the bright hallway she could see what Debug had tried to describe.
 
 Brunhilde was walking towards her, having just looked up from pacing the room, gesturing behind her to the enormous bed the room had. They had arranged some extra blankets and pillows to turn the whole bed into some kind of giant, soft bird nest. They must have thought she enjoyed sleeping in the armchair at Brun's apartment last night, and she had, but the real detail that relaxed her was Brun being in the next room. Being so close.
 
-Trouble put the small plate of food down on the kitchen counter and walked over to the bed. She hadn't enjoyed the bed much before, it was enormous compared to the couch she normally slept on at home. Climbing on she was reaffirmed in her opinion, this bed was much too big for one person.
+Trouble put the small plate of food down on the kitchen counter and walked over to the bed. She hadn't enjoyed the bed much before, it was enormous compared to the couch she normally slept on at home. Climbing on with hands and knees she was reaffirmed in her opinion, this bed was much too big for one person.
 
 As though reading her mind, Brunhilde walked over and lay down next to her. Before she had a chance to consider the implications a shadow fell over the room. In the doorway stood Debug, even though they were about the same height, they seemed much grander and held themselves higher than Trouble felt was possible for herself to do. 
 
-They paused and stood there, face unreadable as the light behind them cast impenetrable shadows over them. But after a few moments they too entered the room, closing the door behind them. Walking over and kicking off shoes as they did. 
+They paused and stood there, face unreadable as the light behind them cast impenetrable shadows over their face. But after a few moments they too entered the room, closing the door behind them. Walking over and kicking off shoes as they did. 
 
 Brunhilde put a hand on the small of Trouble's back, wordlessly bidding her to lay down rather than stay on all fours.
 
@@ -94,7 +94,7 @@ When her kiss earlier had finally broken, it had felt like the noise speakers su
 
 Minutes passed in chaste silence. 
 
-The breathing of both her flanking protectors changed to deeper and calmer breaths as the went to sleep. With the chance for excitement down to zero, Trouble relaxed and tried to get to sleep herself. Only for a noise to disturb her. 
+The breathing of both her flanking protectors changed to deeper and calmer breaths as they went to sleep. With the chance for excitement down to zero, Trouble relaxed and tried to get to sleep herself. Only for a noise to disturb her. 
 
 The sound of gentle weeping. 
 
@@ -102,9 +102,9 @@ Not heaving sobs and wracked breathing like she had been doing earlier. Just cry
 
 Opening her eyes again she looked at the source of the sound.
 
-Debug had rivers of tears flowing across and down the side of her face. Trouble reached out to try and comfort them. But when they pressed a hand gently on their chest as they had done before to help them relax, Debug shifted and seized the arm and held it close pressing it between her breasts. 
+Debug had rivers of tears flowing across and down the side of her face. Trouble reached out to try and comfort them. But when they pressed a hand gently on their chest as they had done before to help them relax, Debug shifted and seized the arm and held it close pressing it between her small breasts. 
 
-Since Trouble barely had a pair of her own she was a bit unfamiliar with the soft sensation she was focusing on. But as she lay there she realised she had felt the same softness before, when Brun had held her close and comforted her yesterday. Perhaps this level of touch was what Brun and Debug were comfortable with. She reached out with her arm in its cast to try and wipe some of Debug's tears away with her fingertips.
+Since Trouble barely had a pair of her own she was a bit unfamiliar with the soft sensation she was focusing on. But as she lay there she realized she had felt the same softness before, when Brun had held her head close and comforted her yesterday. Perhaps this level of touch was what Brun and Debug were comfortable with. She reached out with her arm in it's cast to try and wipe some of Debug's tears away with her fingertips.
 
 Through Debug's shirt and bra she could feel an erratic heartbeat. She shuffled forward to try the same things they had done for her minutes ago and gently bonked foreheads together. 
 
@@ -114,7 +114,7 @@ She heard Brun shift behind her. She knew Brun was a deep sleeper, so they would
 
 Bringing her hand back from Debug's cheek, she tried to lift Brun's arm off them. They could probably relax and get to sleep with Debug holding one arm hostage, but this was a lot more stimulating.
 
-Not able to grab Brun's arm due to the cast, she tried pushing it away. Brun seemed to resist this and instead put her arm around Trouble's waist and pulled her closer, pulling the smaller lady so her bum was pressed against Brun's hips. 
+Not able to grab Brun's arm due to the cast restricting her movement, she tried pushing it away. Brun seemed to resist this and instead put her arm around Trouble's waist and pulled her closer, pulling the smaller lady so her bum was pressed against Brun's hips. 
 
 A soft noise escaped Trouble's lips. A whimper. 
 

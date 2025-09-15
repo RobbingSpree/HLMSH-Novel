@@ -12,34 +12,41 @@ But I found issues with forgetting to keep track of what time of day it was and 
 So I've started fresh, [writing from chapter 1](https://github.com/RobbingSpree/HLMSH-Novel/blob/main/new%20chapters%202nd%20attempt/Chapter%201.md) again.
 
 Current length of rehash:
-16000-ish words
-- 3 chapter(s) complete. (1-3)
-- 2 chapter pending upload (4-5)
-- 4 chapter in editing hell (6-9)
-- 1 chapter being written (10)
-act 1 planning complete (10 chapters)
-act 2 planning begin
 
-| Chapter | approx length | chapter summary | POVs included | running total |
-| ------- | ------------- | --------------- | ------------- | ------------- |
-| 1       | 2700          | inaccurate      | Brun, Fel     | 2.7k          |
-| 2       | 2900          | inaccurate      | Brun, Fel     | 5.6k          |
-| 3       | 3000          | inaccurate      | Brun, Fel     | 8.6k          |
-| 4       | 2900          | inaccurate      | De, Brun, Fel | 11.5k         |
-| 5       | 3100          | done            | De, Brun, Fel | 14.6k         |
-| 6       | 2200          | written         | De, Fel       | 16.8k         |
-| 7       | 2500          | written         | Brun, Fel, De | 19.3k         |
-| 8       | 2600          | written         | Brun, Fel, De | 21.9k         |
-| 9       | 2000          | written         | Brun, Fel     | 23.9k         |
-| 10      | 2700          | written         | Brun, Fel, De | 26.6k         |
-| Act     | 1             | Complete        | Yay           | Woo           |
-| 11      | 2800          | Written         | Fel, De       | 29.4k         |
-| 12      |               | Written         |               |               |
-| 13      |               | Written         |               |               |
-approx page length (assuming the average page length of 275 words per page): 90
+act 1 planning complete (10 chapters) 27000-ish words
+- 5 chapter(s) complete. (1-5)
+- 5 chapter pending upload (6-10)
+intermission
+- 3 short chapter/scenes planned (10.1-10.3)
+act 2 planning in progress 5000-ish words
+- 1 chapter in editing hell (11)
+- 1 chapter being written (12)
+
+Total length: 32,000-ish words
+
+| Chapter        | approx length | chapter Progress | POVs included | running total |
+| -------------- | ------------- | ---------------- | ------------- | ------------- |
+| 1              | 2700          | released         | Brun, Fel     | 2.7k          |
+| 2              | 2900          | released         | Brun, Fel     | 5.6k          |
+| 3              | 3100          | released         | Brun, Fel     | 8.7k          |
+| 4              | 2900          | released         | De, Brun, Fel | 11.6k         |
+| 5              | 3100          | released         | De, Brun, Fel | 14.7k         |
+| 6              | 2300          | pending          | De, Fel       | 17k           |
+| 7              | 2600          | pending          | Brun, Fel, De | 19.6k         |
+| 8              | 2600          | pending          | Brun, Fel, De | 22.2k         |
+| 9              | 2000          | pending          | Brun, Fel     | 24.2k         |
+| 10             | 2700          | pending          | Brun, Fel, De | 26.9k         |
+| Intermission 1 |               | Planned          | Fel, De       |               |
+| Intermission 2 |               | Planned          | Brun          |               |
+| Intermission 3 |               | Planned          | Fel           |               |
+| Act            | 1             | Complete         | Yay           | Woo           |
+| 11             | 2900          | Written          | Fel, De       | 29.4k         |
+| 12             | 2100          | Writing          |               |               |
+| 13             |               | Planned          |               |               |
+approx. page length (assuming the average page length of 275 words per page): 116
 
 Latest posted chapter:
-3
+5
 to:
 Royal Road: https://www.royalroad.com/fiction/129272/her-love-makes-safe-harbors
 Wattpad: https://www.wattpad.com/myworks/395478580-her-love-makes-safe-harbors

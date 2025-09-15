@@ -329,6 +329,16 @@ Brun: unaware
 Debug: closed off
 Fel: Live wire
 
+
+# Intermission
+Some short chapters filling the 2 week gap between act 1 and 2
+
+Debug and Trouble pick a nickname for Debug, settle on Bug, chat about both having no boob compared to Brun
+
+Brun talks to Gary about Debug and manages to ask the question poorly enough to get an answer from gary that makes her think Debug is straight and a bit of a lush
+
+Trouble ruminates in her room while working and wants Debug and Brun on hand to chat with and counts down the time till the evening when Brun is coming by. She also knows it's been a few days and doesn't know how to get the bandages off that are attached to her to change them. Kinda wants company in the shower to help remove them as they become wet.
+
 # ACT 2 START
 
 Overall problems:

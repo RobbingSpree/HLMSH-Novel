@@ -36,3 +36,8 @@ they had debug live with them for a while rather than have her go back into fost
 saw debug fairly regularly for the 8 years or so while the case went through the courts
 having seen Debug grow up they feel like an aunt to them
 wants to pry and catch up but knows that's not safe since some of debug's abusers are out of jail
+
+## Weedy day-shifter (Gary Guy)
+the bloke who is starting the day shift around 4-5am in chapter 8
+Brun talks to them in the intermission and comes to the conclusion Debug is straight cause all she knows is Dee was kissing someone at the front desk and doesn't assume it's Trouble.
+
