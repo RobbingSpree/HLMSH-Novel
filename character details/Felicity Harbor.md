@@ -35,6 +35,8 @@ mood dependent on feeling of safety and comfort
 changes name used to refer to self based on how much harm they think they're in
 easy to cry
 doesn't understand how CPTSD would make her sad
+Doesn't understand why she is so excited by Debug
+Calls Debug Bug
 
 History of abuse:
 (Young child)
