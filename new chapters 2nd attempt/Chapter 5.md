@@ -72,7 +72,7 @@ Minutes later Brun walked at her work speed down the hall to Trouble's room, two
 
 The room was dark compared to the vibrantly lit halls, Trouble was sitting in a bulky chair in the corner under a lamp. The curtains drawn and none of the overhead lights were on, long shadows spread around the room. Brun took one of the decoratively cut apples and lobbed it to Trouble's left side. Trouble, for her apparent prowess, managed to snatch the Apple out of the air with deft precision. Only to wince and drop it, followed by a look of panic appearing as she snatched the apple from the air again with her right hand.
 
-"Very swish, I'm impressed Trouble." Brun said as she sat down on the floor Infront of them and placed their plate of food on the arm of their chair. 
+"Very swish, I'm impressed Trouble." Brun said as she sat down on the floor in front of them and placed their plate of food on the arm of their chair. 
 
 They sat are in silence, just the noise of chewing and utensils scraping. Brun didn't find the quiet to be uncomfortable, she spent a lot of her time looking up at Trouble and watching them exist near her. A lot of the time they had spent together had been quite emotionally fraught, so a relaxing meal with no one in tears was a nice change of pace. But as she had noted earlier and confirmed with the apple, Trouble was apparently concealing an injury in their left hand.
 
@@ -136,7 +136,7 @@ Debug thought for a moment before, before forgetting half of what Bee had said a
 
 "Go ahead and describe you thing." Debug grabbed a pen and paper to write stuff down knowing her short term memory couldn't be relied on.
 
-"Ok, umm...so if you touch it they go really pale. And it's tender, I don't know if there's any related bruising."
+"Okay, umm...so if you touch it they go really pale. And it's tender, I don't know if there's any related bruising."
 
 "Bruising?" Debug interjected, confused about a beetle that could bruise when they didn't have blood or a vascular system.
 
@@ -148,9 +148,9 @@ There was a long pause from the other end of the call.
 
 "Yeah, you saw them before. This is something that happened to Trouble." Debug could hear Bee's confusion in their voice and her brain rebooted.
 
-"Ok, describe the injury again from the top." She scribbled out the notes she'd taken so far.
+"Okay, describe the injury again from the top." She scribbled out the notes she'd taken so far.
 
-"Ok, right. She's got lots of bruises, so I don't know if it's related to any one. But if we put weight on the inside of her arm or squeeze her forearm kinda anywhere it hurts a lot and she loses all strength in both her arms."
+"Right, yes...She's got lots of bruises, so I don't know if it's related to any one. But if we put weight on the inside of her arm or squeeze her forearm kinda anywhere it hurts a lot and she loses all strength in both her arms."
 
 "Does it feel really loud?" Debug asked the silent participant of the call. Already having flash backs to when she last fell out of a tree. 
 

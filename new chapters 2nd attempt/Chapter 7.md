@@ -6,33 +6,31 @@ tags:
 ---
 (need to change Brun's name to Princess following what's said last chapter, maybe also have Brun take on that name then too)
 
-Brun felt uneasily optimistic, like trying to enjoy the moment up until the other boot to drops. She stood behind Trouble and played with their hair nervously.
+Princess felt uneasily optimistic, trying to enjoy the moment up until the other boot, she knew in her bones was coming, to drop. She stood behind Trouble and played with their uneven hair nervously.
 
 Trouble was sitting in a chair having nurses apply bandage after bandage and handful after handful of salve to her bruises and injuries. Brun had expected a lot harder a time of it, fraud was supposed to be a crime that took planning. Or at least she assumed so until today.
 
-They had come in just as the evening shift started, so the churn of staff handing off might have let them slip through the cracks. Brun could distinctly remember a busy handoff at the hotel that had left a group of three guests in the reception for two hours before she asked if they needed to be checked in.
+They had come in just as the evening shift started, so the churn of staff handing off might have let them slip through the cracks. Brun could distinctly remember her own version of this. A busy handoff at the hotel that had left a group of three too-polite guests in the reception for two hours before she had thought to ask if they needed to be checked in.
 
-Trouble's left arm was entirely wrapped in a cast, Debug had said to expect a half cast, but the nurses said that since it hadn't been treated swiftly they were going to be safe and put her in a full cast. Trouble and her had tried to say the break had happened last night, but the nurses had just given them a stern look and silently pointed to the secondary fracture that implied Trouble's bad fall yesterday had made the break worse instead of cause it.
+Trouble's left forearm was entirely wrapped in a cast from her knuckle to her elbow. Debug had said to expect a half cast, but the nurses said that since it hadn't been treated swiftly they were going to be safe and put her in a full cast. Trouble and Princess had tried to say the break had happened last night, but the nurses had just given them a stern look and silently started a pantomime about a secondary fracture on the x-ray that implied Trouble's bad fall yesterday had made the break worse instead of cause it. All the while with deadpan faces making the whole scene very surreal.
 
 Brun felt a little bad about not coming straight here after Trouble had first woken up. But that extra day of delay to relax and feel safe she felt was a necessary cost. Or at least. She wanted to think that. The discussion of how old the fracture was did make her feel guilty for not rushing here earlier. But Debug's voice of caution echoed that hospitals and shelters were the first places an abusive ex would search and their extra steps of trickery would keep Trouble safe.
 
-As this back and forth repeated in Brun's mind, she was brought back to the present when she noticed one of the nurses beckoning her over. 
-
-She pointed to herself and nodded and then pointed to Trouble and shook her head.
+As she worried back and forth repeated in her mind, Princess was brought back to the present when she noticed one of the nurses beckoning her over. She pointed to herself and nodded and then pointed to Trouble and shook her head.
 
 The beckoning nurse silently agreed.
 
-Brun absent-mindedly kissed the top of Trouble's head and made to walk over to the nurse.
+Princess absent-mindedly kissed the top of Trouble's head and made to walk over to the nurse.
 
-"I'll be back in a sec, Love. This won't take a minute." Brun said to make sure Trouble understood she was going to come back and wasn't just bored and leaving.
+"I'll be back in a sec, Love. This won't take a minute." Princess said to make sure Trouble understood she was going to come back and wasn't just bored and leaving.
 
 Once out of view from Trouble she walked straight to the nurse who had retreated to one of the computers scattered in the Emergency Ward. 
 
-"What's going on then?" Brun asked, trying to keep her voice casual.
+"What's going on then?" Princess asked, trying to keep her voice casual.
 
-"So I've just got some follow up questions for the record of your friend's stay today." Brun nodded, trying to not show her worry. "So how long have they been short?"
+"So I've just got some follow up questions for the record of your friend's stay today." Princess nodded, trying to not show her worry. "So how long have they been short?"
 
-Brun blinked.
+Princess blinked.
 
 She tried to remember what the question she was just asked was and if it made any sense.
 
@@ -40,7 +38,7 @@ Short?
 
 Trouble had always been short...right? Except when she was a child.
 
-"What?" Was all Brun could ask in response.
+"What?" Was all Princess could ask in response.
 
 "Cause our record for Brunhilde Brown has her listed as six foot two...which..." They paused dramatically and looked up at Brun. "Is about as big as you appear to be."
 
@@ -52,17 +50,17 @@ Brun was unsure what to do now, sure they were rumbled, but this nurse didn't se
 
 "That sure is a coincidence. Wouldn't think that would come up with an arm fracture." Brun tried playing it cool.
 
-"Wrist fracture." They said flatly, pointing to the screen she couldn't see. "Sorry, but if you come in looking like your racist uncle tried to forcibly remove the gay with a lead pipe, we're gonna check if you've had a history of visits. And when it described you as indeginous and the patient looked like a canvas that had been attacked by fruit we checked a few other details."
+"Wrist fracture." They said flatly, pointing to the screen she couldn't see. "Sorry, but if you come in looking like your racist uncle tried to forcibly remove the gay with a lead pipe, we're gonna check if you've had a history of visits. And when it described you as indigenous and the patient looked like a blank canvas that had been attacked by fruit cart we checked a few other details."
 
 Brun did her best to not look guilty.
 
-"Look, I assume you're trying to not leave a paper trail, yes?" They didn't look particularly annoyed, Brun hoped this wasn't the other boot dropping on her. She nodded.
+"Look..." They sighed heavily. "I assume you're trying to not leave a paper trail, yes?" They didn't look particularly annoyed, Brun hoped this wasn't the other boot dropping on her. She nodded.
 
-"She's got an abusive ex, she's currently hiding at my place. They have police contacts, so they might ask for stuff in a way that seems innocuous just to stalk her." Brun parroted what Debug had said earlier when she'd asked similar questions.
+"She's got an abusive ex, she's currently hiding at my place. Their ex has police contacts, so they might ask for stuff in a way that seems innocuous just to stalk her." Brun parroted what Debug had said earlier when she'd asked similar questions.
 
-"Hmmm...ok, but you still want a paper trail you can get for the assault and abuse charges to stick later for a restraining order. No paper trail, gives you nothing to work with, we just need to leave it in such a way you can get this later and they can't if they don't know what to look for." The pair stood quietly while thinking, Brun had no idea to contribute but tried to look contemplative just in case. "I'm gonna have a chat with the floor manager, stay here."
+"Hmmm...ok, but YOU still want a paper trail you can get for the assault and abuse charges to stick later for a restraining order. No paper trail, gives you nothing to work with, we just need to leave it in such a way you can get this later and they can't if they don't know what to look for." The pair stood quietly while thinking, Brun had no idea to contribute but tried to look contemplative just in case. "I'm gonna have a chat with the floor manager, stay here."
 
-Brun stayed where she was, listening to the various people in the emergency ward complain or chat. The constant beeps and machine noises and quiet walking, made the large open floor feel quite intimate. She could make out Trouble's squeaky voice saying something to the nurse in with her. But before she could properly focus on that, the nurse she was talking to returned.
+Brun stayed where she was, listening to the various people in the emergency ward complain or chat. The constant beeps and machine noises and quiet walking all muffled by the hanging curtains, made the large floor feel quite intimate. She could make out Trouble's squeaky voice saying something to the nurse in with her. But before she could properly focus on that, the nurse she was talking to returned.
 
 "Okay, so after a bit of testing, we can put a note on this visit saying that it was assigned to the wrong patient, and 'we'll update the record later'." They used finger quotes to indicate sarcasm. "That way, you can grab it later and we can put it on the correct patient record. Essentially letting us hide it for now."
 
@@ -80,9 +78,9 @@ Brun reached for Trouble's wallet, since they had swapped wallets as part of the
 
 Trouble felt exhausted and spent, she was stiff from all her new cast and bandages and trying to get used to not moving in a way the bandages discouraged.
 
-The nurses had done a very thorough job of finding and cataloging every bruise she had. After they were sure she had a fracture in her arm, they'd checked her over in case she had another somewhere else she also had been neglecting.
+The nurses had done a very thorough job of finding and cataloging every bruise she had. After they were sure she had a fracture in her arm, they'd checked her over again in case she had another somewhere else she had also been neglecting.
 
-She knew Brun had seen her naked, cause she had to take off her wet clothes, but being awake while someone inspected every inch of you for signs of injury was embarrassing. And she didn't want to make a fuss, but also, she had very embarrassing thoughts about Princess while she had been stripping down. Did she want them to look? Did she not? Did she want them to also be embarrassed? It was a lot.
+She knew Brun had seen her naked, cause she had needed to take off her wet clothes, but being awake while someone inspected every inch of you for signs of injury was embarrassing. And she didn't want to make a fuss, but also, she had very embarrassing thoughts about Princess while she had been stripping down. Did she want them to look? Did she not? Did she want them to also be embarrassed? It was a lot.
 
 And most of all, was the nurse who'd been vocally jealous about her near lack of a bust. It wasn't something she'd had to address in the past, Trouble had not had opportunities for making friends by the time kids her age were growing boobs. So her lack of them and tendency to not wear a bra hadn't come up. She had just assumed everyone else didn't wear them either. And now she was overly conscious that Brun was wearing one now. They hadn't been wearing one last night when they dramatically dove through their loungeroom, but the less she thought about that the better.
 
