@@ -36,7 +36,7 @@ Total length: 32,000-ish words
 | 8              | 2600          | pending          | Brun, Fel, De | 22.2k         |
 | 9              | 2000          | pending          | Brun, Fel     | 24.2k         |
 | 10             | 2700          | pending          | Brun, Fel, De | 26.9k         |
-| Intermission 1 | 500           | Planned          | Fel, De       |               |
+| Intermission 1 | 500           | written          | Fel, De       |               |
 | Intermission 2 |               | Planned          | Brun          |               |
 | Intermission 3 |               | Planned          | Fel           |               |
 | Act            | 1             | Complete         | Yay           | Woo           |

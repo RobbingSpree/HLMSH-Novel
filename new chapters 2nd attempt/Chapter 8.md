@@ -63,7 +63,7 @@ Trouble could sense how well Brun and Trouble worked together, they never stood 
 
 "Ohh, a classic. Long press the red button under the screen. The side buttons are for media playback only on something that old."
 
-"Ok we've got everything we need, grab one or two other garments for outerwear from your wardrobe and we'll jam everything in the car so we all fit in the drive back. Bee, let's go."
+"Okay we've got everything we need, grab one or two other garments for outerwear from your wardrobe and we'll jam everything in the car so we all fit in the drive back. Bee, let's go."
 
 Suddenly, the house was silent again. 
 

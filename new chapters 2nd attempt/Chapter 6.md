@@ -17,7 +17,7 @@ Trouble turned to look at Brunhilde, a thing she had been doing a lot on the bus
 
 "But what's your name?" The half formed idea managing to beat the compliment she would have been very embarrassed to blurt out apropos of nothing. Brun stopped looking out the window and looked down at her.
 
-"Trouble? My name's Brunhilde? Are you ok?" They reached out a hand to do the same thing that had been giving her a fuzzy mind all morning and gently caress her cheek. Trouble fought the instinct to let the gentle touch happen, to revel in the warm hand of her knight. Instead, she pushed Brunhilde's hand away with their own wallet Trouble had been holding.
+"Trouble? My name's Brunhilde? Are you okay?" They reached out a hand to do the same thing that had been giving her a fuzzy mind all morning and gently caress her cheek. Trouble fought the instinct to let the gentle touch happen, to revel in the warm hand of her knight. Instead, she pushed Brunhilde's hand away with their own wallet Trouble had been holding.
 
 "If I'm using your name while we're at the hospital, which name are you going to use? We can't both be Brunhilde." Trouble tried to bark at herself in her own mind, anything to keep herself focused on the task at hand and not fantasizing about Brun's gentle caress. 
 
@@ -99,7 +99,7 @@ The seconds stretched on, painfully. Having a staring contest with someone she c
 
 Beth's voice returned and Debug tried to shelve the tempting thoughts of drowning anxiety with endorphins for later.
 
-"Ok, I got like eight good ones, they look like a right fuckwad." Debug was thrown entirely off her depressive funk with Beth's out of character language.
+"Okay, I got like eight good ones, they look like a right fuckwad." Debug was thrown entirely off her depressive funk with Beth's out of character language.
 
 "Did you get that from one of your books? I've never heard you talk like that." Debug's legs felt weak, her voice sounded normal, she became very worried she was going to move too much and be seen well enough to ID and later stalk, the urge to cry flooded her body. With the tension gone, all that was left holding her up was the desk and her boots that were too tight around her ankles.
 
