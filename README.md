@@ -31,14 +31,12 @@ Total length: 32,000-ish words
 | 3              | 3100          | released         | Brun, Fel     | 8.7k          |
 | 4              | 2900          | released         | De, Brun, Fel | 11.6k         |
 | 5              | 3100          | released         | De, Brun, Fel | 14.7k         |
-| 6              | 2300          | pending          | De, Fel       | 17k           |
+| 6              | 2300          | released         | De, Fel       | 17k           |
 | 7              | 2600          | pending          | Brun, Fel, De | 19.6k         |
 | 8              | 2600          | pending          | Brun, Fel, De | 22.2k         |
 | 9              | 2000          | pending          | Brun, Fel     | 24.2k         |
 | 10             | 2700          | pending          | Brun, Fel, De | 26.9k         |
-| Intermission 1 | 500           | written          | Fel, De       |               |
-| Intermission 2 |               | Planned          | Brun          |               |
-| Intermission 3 |               | Planned          | Fel           |               |
+| Intermission 1 | 1300          | Written          | Fel, brun     |               |
 | Act            | 1             | Complete         | Yay           | Woo           |
 | 11             | 2900          | Written          | Fel, De       | 29.4k         |
 | 12             | 2100          | Writing          |               |               |

@@ -11,7 +11,9 @@ What had started as unfathomable excitement and joy had simmered down to an incr
 
 "I don't want to say you're getting better at this, Trouble." Bug said, still cupping her cheeks in their hands. "But this therapy seems to be working, cause you're not in tears when we stop anymore. I've still got two hours left of my shift, so come find me or give me a call if anything comes up or you need to vent." With a wave they left back out into the hall, closing Trouble's room door behind them.
 
-Venting had been their other major breakthrough. For her entire life, Felicity had been trying to keep her problems and difficulties secret. Whether it be losing her mother and younger sister at an early age, her dad's spiral into alcohol thereafter, their being unable to deal with the loss and taking it out on her, her old boss stealing her wage, the fact her dad had somehow been part of that scheme too, and all the stuff with Frank. Being able to talk to someone about that sort of stuff, someone who understood and didn't judge her. Just getting that out of her mouth and being able to say that it happened lifted a weight from her she didn't know she had been carrying. 
+Venting had been their other major breakthrough. 
+
+For her entire life, Felicity had been trying to keep her problems and difficulties secret. Whether it be losing her mother and younger sister at an early age, her dad's spiral into alcohol thereafter, their being unable to deal with the loss and taking it out on her, her old boss stealing her wage, the fact her dad had somehow been part of that scheme too, and all the stuff with Frank. Being able to talk to someone about that sort of stuff, someone who understood and didn't judge her. Just getting that out of her mouth and being able to say that it happened lifted a weight from her she didn't know she had been carrying. 
 
 That and Frank seemingly having not looked for her at the hotel since Debug first spotted them had let her unwind and relax and enjoy the kisses she was getting.
 

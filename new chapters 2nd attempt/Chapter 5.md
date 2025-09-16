@@ -198,7 +198,7 @@ Just not answer it. Not face Beth again, until she felt safe.
 
 But to do that would raise too much suspicion that something was wrong, would prompt more attention and questions than keeping a distance.
 
-"Miss Nolastnam speaking. How can I direct your call?"
+"Miss Nolas'nam speaking. How can I direct your call?"
 
 "Dee, it's me again, sorry. I left my phone in Trouble's room. Can I ask you to come down to the hotel and cover the end of my shift? Beth will be here too, so you're not alone and without friends. Please?"
 
