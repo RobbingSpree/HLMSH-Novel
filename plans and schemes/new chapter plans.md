@@ -376,11 +376,15 @@ get blue balled
 go to clothes changerooms 
 see own reflection
 almost forget they wanted to make Debug feel as bad as they did
-debug meets old police friend
+
+# Chapter 13
+A few days pass, trouble goes out with both others once and becomes a bit more comfortable with existing out and about
+Trouble POV
+Start at shops, wandering around in a mall with most of the shops closed
+debug meets old police friend as they leave a restaurant
 panics a little
 police person is with a colleague
 they mention trouble and debug is a little vague about them
-# Chapter 13
 Debug POV
 return from shops
 get singled out by Beth for a work question
