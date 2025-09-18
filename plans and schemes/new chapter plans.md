@@ -377,7 +377,9 @@ go to clothes changerooms
 see own reflection
 almost forget they wanted to make Debug feel as bad as they did
 
-# Chapter 13
+**maybe have a Brun scene at the end? About wondering why Trouble went**
+
+# [[Chapter 13]]
 A few days pass, trouble goes out with both others once and becomes a bit more comfortable with existing out and about
 Trouble POV
 Start at shops, wandering around in a mall with most of the shops closed

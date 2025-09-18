@@ -13,7 +13,9 @@ What had started as unfathomable excitement and joy had simmered down to an incr
 
 Venting had been their other major breakthrough. 
 
-For her entire life, Felicity had been trying to keep her problems and difficulties secret. Whether it be losing her mother and younger sister at an early age, her dad's spiral into alcohol thereafter, their being unable to deal with the loss and taking it out on her, her old boss stealing her wage, the fact her dad had somehow been part of that scheme too, and all the stuff with Frank. Being able to talk to someone about that sort of stuff, someone who understood and didn't judge her. Just getting that out of her mouth and being able to say that it happened lifted a weight from her she didn't know she had been carrying. 
+For her entire life, Felicity had been trying to keep her problems and difficulties secret. Being able to talk to someone about that sort of stuff, someone who understood and didn't judge her. Just getting that out of her mouth and being able to say that it happened lifted a weight from her she didn't know she had been carrying. 
+
+She hadn't said anything specific, just saying that things had been unfair. That she had been told as a child that people would be kind to one another, but had no memory of anyone every actually doing that for her.
 
 That and Frank seemingly having not looked for her at the hotel since Debug first spotted them had let her unwind and relax and enjoy the kisses she was getting.
 
