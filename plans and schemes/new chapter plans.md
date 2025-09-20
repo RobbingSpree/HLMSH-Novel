@@ -381,6 +381,13 @@ almost forget they wanted to make Debug feel as bad as they did
 
 # [[Chapter 13]]
 A few days pass, trouble goes out with both others once and becomes a bit more comfortable with existing out and about
+Brun POV
+At the reception with Beth Wednesday night
+Beth has come I. Early to get started on the monthly review of the security footage
+Mentions that it's gonna be a long haul since they've got their sanctuary case she needs to do a more though job of viewing the tapes to see if the suspicious guy came back
+Brun recalls how she felt seeing Trouble's new hair colour
+How they felt like a odd copy of Dee at first
+But after getting used to the colour she got over her apprehension and jealousy 
 Trouble POV
 Start at shops, wandering around in a mall with most of the shops closed
 debug meets old police friend as they leave a restaurant
