@@ -109,9 +109,11 @@ Trouble had no good memories that involved her hair. Her dad had disliked it for
 
 Compared to that, the sensation of gentle fingertips running through her short hair sent shivers down her spine. The fact she couldn't see what Bug was doing and could trust them to keep her safe gave her butterflies. She squirmed a little in her seat, the fact she was enjoying this so much making her very embarrassed. She both wanted Bug to not stop so they wouldn't see how much of a mess she was turning into and to stop because she might start making mysterious noises if this went on much longer.
 
-Thankfully, she was saved any further embarrassment as Bug finished. The sound of the gloves being taken off signaling that this step was done.
+Trouble closed her eyes, letting the sensations of fingers running through her hair wash over her. Bug's fingers drawing small circles spiralled across her scalp, their gentle touch eliciting the need to be hugged and squeezed as a shiver ran up her spine. Was this too decadent? Did she deserve to be spoiled like this? Was it right for her to like this kind of touch?
 
-"Stay still for a sec, Love." Bug's low voice spoke quietly right next to her ear. The low tones doing things she didn't want to acknowledge. 
+Her spiralling thoughts were quickly drowned out by the Bug being a little silly and playing with her hair. The fact they were having fun helped absolve Trouble of her concerns. Thankfully, she was saved any further consternation as Bug finished. The sound of the gloves being taken off signaling that this step was done.
+
+"Stay still for a sec, Love." Bug's low voice spoke quietly right next to her ear. The low tones doing things she didn't want to acknowledge to her insides. 
 
 A silent pause strung out, Trouble not sure what she was staying still for or for how long. She felt the hairs on her arm prick up in anticipation and her ears strained to get a hint as to what would come next.
 
