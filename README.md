@@ -39,8 +39,8 @@ Total length: 32,000-ish words
 | Intermission 1 | 1300          | Written          | Fel, brun     | 28.2k         |
 | Act            | 1             | Complete         | Yay           | Woo           |
 | 11             | 2900          | Written          | Fel, De       | 31.1k         |
-| 12             | 2100          | Written          |               | 33.2k         |
-| 13             |               | Writing          |               |               |
+| 12             | 2100          | Written          | Fel, De       | 33.2k         |
+| 13             | 1200          | Writing          | Brun, Fel     |               |
 approx. page length (assuming the average page length of 275 words per page): 120
 
 Latest posted chapter:
