@@ -64,7 +64,7 @@ Brun stopped in place like an unfair crane game arm, a single cream puff in her 
 
 "I'm not Barry, Miss Brown. Barry doesn't work weekends, I'm Daveo. We talk almost every weekend." Daveo's voice stayed monotone the entire time and they seemingly never stopped cutting and dicing.
 
-"Well you're a tosspot, Daveo. Couldn't even let me have this." Brun flashed a smile at him. "Now I owe Barry $20 cause he said you'd let that slide and I believed him." Brun picked up the two plates of food and made to leave.
+"Well you're a tosspot, Daveo. Couldn't even let me have this." Brun flashed a smile at him. "Now I owe Barry twenty bucks cause he said you'd let that slide and I believed him." Brun picked up the two plates of food and made to leave.
 
 "Before you go." Daveo interrupted, before quickly cutting an apple into a pair of delicate looking flowers. "This is a second fruit to feed your friend."
 

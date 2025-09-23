@@ -31,7 +31,7 @@ She answered.
 
 "I never knew what a sedan meant, is it just the generic looking car?" Debug's confident voice changing to much more casual.
 
-"Number 17, same as your room at the hotel." Brunhilde squeezed her hand as they pointed to the blue door she had been trapped behind until recently.
+"Number seventeen, same as your room at the hotel." Brunhilde squeezed her hand as they pointed to the blue door she had been trapped behind until recently.
 
 "Okay furtive criminals!" Debug barked.
 

@@ -383,7 +383,7 @@ almost forget they wanted to make Debug feel as bad as they did
 A few days pass, trouble goes out with both others once and becomes a bit more comfortable with existing out and about
 Brun POV
 At the reception with Beth Wednesday night
-Beth has come I. Early to get started on the monthly review of the security footage
+Beth has come in Early to get started on the monthly review of the security footage
 Mentions that it's gonna be a long haul since they've got their sanctuary case she needs to do a more though job of viewing the tapes to see if the suspicious guy came back
 Brun recalls how she felt seeing Trouble's new hair colour
 How they felt like a odd copy of Dee at first

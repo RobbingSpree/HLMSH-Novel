@@ -129,7 +129,7 @@ Looking ahead again and realizing they were still ten doors away from the room, 
 
 Brun wrestled her mind out of her own self obsessive thoughts and counted the steps out as they arrived at the room.
 
-"Three, two, one, this door. We've given you suite 17." Brun announced, hip checking the security pad with her master key to momentarily unlock it. And when Trouble made no moves to open the door and Brun still had no free hands, she lost her cool. Kicking out and delicately swiping the door handle down with her foot while at the same time pushing it open in the brief window where it could move before the lock re-armed. Brun pulled herself together again while silently reprimanding herself for the violence and trying to not congratulate herself on the successful trick.
+"Three, two, one, this door. We've given you suite seventeen." Brun announced, hip checking the security pad with her master key to momentarily unlock it. And when Trouble made no moves to open the door and Brun still had no free hands, she lost her cool. Kicking out and delicately swiping the door handle down with her foot while at the same time pushing it open in the brief window where it could move before the lock re-armed. Brun pulled herself together again while silently reprimanding herself for the violence and trying to not congratulate herself on the successful trick.
 
 She lead Trouble into the room, pointing out the bathroom and kitchenette, placing the food down on the counter in the latter, before leading them to the bed. The bed was enormous, part of why this room was set aside for use in sanctuary cases was very few guests ever asked for the room with the bed that could easily fit three people side by side. Trouble still looked exhausted on top of injured, even if Brun had just taken them out of a room with a bed, they still looked like they needed more rest. Even if they'd just been sleeping and resting they looked like they needed another whole week's worth of rest. Fetching her, now cooling, plate of food Brun tried to get Trouble's attention again.
 
@@ -147,7 +147,7 @@ Trouble said something, but it was too quiet for Brun to hear. She sat up and sh
 
 "Pardon, Love, I didn't catch that."
 
-"Felicity" Trouble muttered. Brun, having been awake for 18 hours at this point and just finished a 9 hour graveyard shift, took a moment to connect the dots. Brun furrowed her brow, and tried as hard as she could to overwrite where she had stored Trouble's name to replace it with Felicity.
+"Felicity" Trouble muttered. Brun, having been awake for eighteen hours at this point and just finished a nine hour graveyard shift, took a moment to connect the dots. Brun furrowed her brow, and tried as hard as she could to overwrite where she had stored Trouble's name to replace it with Felicity.
 
 "Lovely to hear, Felicity." Brun announced, doing her darnedest to not think the world trouble.
 

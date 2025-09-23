@@ -32,19 +32,19 @@ Total length: 32,000-ish words
 | 4              | 2900          | released         | De, Brun, Fel | 11.6k         |
 | 5              | 3100          | released         | De, Brun, Fel | 14.7k         |
 | 6              | 2300          | released         | De, Fel       | 17k           |
-| 7              | 2600          | pending          | Brun, Fel, De | 19.6k         |
+| 7              | 2600          | released         | Brun, Fel, De | 19.6k         |
 | 8              | 2600          | pending          | Brun, Fel, De | 22.2k         |
 | 9              | 2000          | pending          | Brun, Fel     | 24.2k         |
 | 10             | 2700          | pending          | Brun, Fel, De | 26.9k         |
-| Intermission 1 | 1300          | Written          | Fel, brun     |               |
+| Intermission 1 | 1300          | Written          | Fel, brun     | 28.2k         |
 | Act            | 1             | Complete         | Yay           | Woo           |
-| 11             | 2900          | Written          | Fel, De       | 29.4k         |
-| 12             | 2100          | Writing          |               |               |
-| 13             |               | Planned          |               |               |
-approx. page length (assuming the average page length of 275 words per page): 116
+| 11             | 2900          | Written          | Fel, De       | 31.1k         |
+| 12             | 2100          | Written          |               | 33.2k         |
+| 13             |               | Writing          |               |               |
+approx. page length (assuming the average page length of 275 words per page): 120
 
 Latest posted chapter:
-5
+7
 to:
 Royal Road: https://www.royalroad.com/fiction/129272/her-love-makes-safe-harbors
 Wattpad: https://www.wattpad.com/myworks/395478580-her-love-makes-safe-harbors
