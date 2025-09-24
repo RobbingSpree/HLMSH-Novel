@@ -401,6 +401,26 @@ have them send trouble away
 get cornered by beth about their proclivities
 have the security footage of debug and trouble kissing in the reception while brun seemingly watches put in front of them
 
+## Chapter 14
+
+Debug POV
+Have a lot of flashbacks to childhood
+Get very fidgety and strongly consider self harm to stop it
+Think about how small they let their world get as they tried to stay safe
+Think they have no one they can rely on (Trouble can't be relied on, Brun wouldn't care enough) 
+Think the issue might have occured because they didn't flee from Sinéad
+{More needed}
+Brun POV
+Beth calls and asks if they've heard from Debug today
+Beth says no, Brun asks what's up
+Beth says she's at Debug's house and there signs she fled
+Brun is curious where Debug lives cause they had always been very skittish letting anyone know anything about them
+Beth says she's her boss so is allowed to know Debug more intimatly than a coworker
+Brun doesn't notice the obvious flex/threat
+Brun worries how she'll break the news to Trouble
+Trouble POV
+Wakes up in a panic, thinks she's both still asleep and back at home sleeping on her couch
+Takes a while to realize what's going on, keeps jumping at shadows
 
 
 ##  Act 2 arcs

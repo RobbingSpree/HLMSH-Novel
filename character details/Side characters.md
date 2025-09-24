@@ -36,6 +36,11 @@ they had debug live with them for a while rather than have her go back into fost
 saw debug fairly regularly for the 8 years or so while the case went through the courts
 having seen Debug grow up they feel like an aunt to them
 wants to pry and catch up but knows that's not safe since some of debug's abusers are out of jail
+Physical description:
+Built like a brick
+Broad chested and arms like over inflated tires.
+They hilariously don't have nearly as much muscle from their waist down
+
 
 ## Weedy day-shifter (Gary Guy)
 the bloke who is starting the day shift around 4-5am in chapter 8

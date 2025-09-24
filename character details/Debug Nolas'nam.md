@@ -40,14 +40,14 @@ Got a new name as there was no record of her being born due to her initial kidna
 Got harassed as part of the criminal trial where she came in as a witness and then got stalked back to her current foster family
 Was abandoned by the foster family due to the negligence of the police putting them at risk
 Got another new name 
-(New name 2: Daphne Smith)
+(New name 2: Deborah Smith)
 Volunteered to live alone with regular police check-ins due to not wanting to bring more trouble
 Due to a lack of birth cert and original family details and her record being sealed a system audit assumed she was a false identity a crooked cop made to sell
 Debug misunderstood their intentions as more stalking and harassment and fled, breaking all contact with the police who were checking on her
 Did some identity theft to get a more trustworthy name
 Got a job at Dept of BD&M
 Forged her own new identity 
-(New name 3: Debug Nolastnam)
+(New name 3: Debug Nolas'nam)
 Has been living quietly since to not stir trouble and attract attention
 According to her forged identity her previous identities are her parents
 
