@@ -40,8 +40,10 @@ Total length: 32,000-ish words
 | Act            | 1             | Complete         | Yay           | Woo           |
 | 11             | 2900          | Written          | Fel, De       | 31.1k         |
 | 12             | 2100          | Written          | Fel, De       | 33.2k         |
-| 13             | 1200          | Writing          | Brun, Fel     |               |
-approx. page length (assuming the average page length of 275 words per page): 120
+| 13             | 3400          | Written          | Brun, Fel     | 36.6k         |
+| 14             |               | Writing          | De            |               |
+| 15             |               | planning         |               |               |
+approx. page length (assuming the average page length of 275 words per page): 133
 
 Latest posted chapter:
 7

@@ -114,5 +114,45 @@ Frank.
 
 Frank had said that name.
 
-One of the police officers he hung out with was called Gross, cause he was a whole grossload of a person being that tall.
+One of the police officers he hung out with was called Gross, cause he was a whole gross-load of a person being that tall.
+
+Trouble tried to recall if she had ever met them before.
+
+She couldn't think of anything.
+
+She barely went out much, even before Frank had started being possessive.
+
+As they walked past the food court Trouble watched as a small group of teenagers all gathered around a cake taking photos with their phones, and a memory she very much didn't want to remember lurched to the surface of her mind.
+
+For a birthday, Frank had forced her to pose for photographs.
+
+Photographs she didn't want to exist let alone let anyone to see.
+
+Frank had threatened to show his friends those photos on a lot of occasions.
+
+Felicity had hated it. That every single small injury he had done was all somehow in an effort to hurt her more.
+
+For once her emotions didn't turn inward and make her want to not exist. Instead they raged and burned. Her skin felt like it was on fire. Tears stung her eyes like someone had crushed an onion directly into them. Breathing was difficult and painful, but required. 
+
+That someone who had balked at her descriptions of how her dad had treated her when they first met would in turn do the same was such an incomprehensible betrayal.
+
+The one thing her few weeks of peace had given Felicity was rage.
+
+The permission to be angry.
+
+To hate how her life had treated her. How so much of her life had been stolen from her.
+
+That anyone could bare to hurt others as much as she had been. Could stand to hurt her until her bones broke and her spirit gave out.
+
+Felicity could feel someone trying to hold her head still.
+
+She raised her broken arm up, fingers furiously trying to ball into a fist, pain roaring loud enough to mute her other senses.
+
+She needed to get somewhere safe so she could scream and let all this anger out.
+
+Felicity took a moment to try and relax. She took a deep breath.
+
+She didn't feel her legs give out. But they did.
+
+She didn't feel her head hit the ground, but she did see it rush towards her.
 
