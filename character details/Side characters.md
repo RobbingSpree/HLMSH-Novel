@@ -46,3 +46,5 @@ They hilariously don't have nearly as much muscle from their waist down
 the bloke who is starting the day shift around 4-5am in chapter 8
 Brun talks to them in the intermission and comes to the conclusion Debug is straight cause all she knows is Dee was kissing someone at the front desk and doesn't assume it's Trouble.
 
+## Gavin "Gross" Mitchels
+a police officer that is friends with Frank and has been smoozing with management aiming for a promotion. 

@@ -74,11 +74,11 @@ After an extended moment of Debug muttering quietly to themselves about what sou
 
 Despite feeling like a powerful presence, their new company was just shorter than both Trouble and Debug. Something about how they stood and as though at attention made the hairs on Trouble's neck stand on end.
 
-"Miss Bruce, it's nice to see you again." Bug said, Trouble recognised the pattern as what they'd been practicing a moment ago.
+"Miss Bruce, it's nice to see you again." Bug said, Trouble recognized the rhythm as what they'd been rehearsing a moment ago.
 
-"Miss Bruce?! Ha haa. You're an adult now Deh, you're allowed to call me Sinéad." Sinéad turned and looked Trouble over. "Are you trying to match your underfed friend here? You two look cute together." Trouble felt themselves blushing very hard. This lady was very disarming, she could understand why Bug was nervous. Someone this aggressive in a conversation couldn't be mislead with their guile, and that lack of control probably scared them, even if they were friends. 
+"Miss Bruce?! Ha haa. You're an adult now Deh, you're allowed to call me Sinéad." They turned and looked Trouble over before continuing with Debug. "Are you trying to match your underfed friend here? You two look cute together." Trouble felt themselves blushing very hard. This lady was very disarming, she could understand why Bug was nervous. Someone this aggressive in a conversation couldn't be mislead with their guile, and that lack of control probably scared them, even if they seemed like they were friends. 
 
-"This is my friend, Princess." Debug said matter-of-factly. "They've got some issues with their ex who's a...swine heard. Their completion is a lot more vibrant under their makeup." Trouble lost track of what Bug was trying to say, she was stuck on the fact both her and Bug had picked the same fake name. Now Trouble understood better the smile Brun had when she had blurted the same name out all that time ago.
+"This is my friend, Princess." Debug said matter-of-factly. "They've got some issues with their ex who's a...swine heard. Their complexation is a lot more vibrant under their makeup." Trouble lost track of what Bug was trying to say, she was stuck on the fact both her and Bug had picked the same fake name. Now Trouble understood better the smile Brun had when she had blurted the same name out all that time ago.
 
 "Ohh, we'll do let me know if I can help. I'm working out at the head office now. They kept promoting me for some reason. So I can boss a lowly swine heard around, if you've got the dirt." Trouble felt entirely lost as she refocused back on the conversation, unsure how it had changed to being about farm workers. One thing Trouble did know was where she had heard that commanding tone from before, it was so similar to how Bug spoke when she thought things were serious. Trouble was immediately taken aback when Sinéad spoke without that tone. "Pet, I missed you. You didn't call, or write."
 
@@ -86,14 +86,33 @@ Trouble felt Debug tense up and their breath hitched as Sinéad gently touched t
 
 "I...I kept having my past catch up to me...and you were part of that past." Bug's voice was very quiet, almost inaudible in the comparative din of the mall around them. "I had to make sure I was safe first. Out of reach..."
 
-"Deborah, you know I just wanted you to be safe...I'm sorry...I tried to help cover your tracks when I saw what you did at the records office. That was foolish, Pet." Trouble felt she shouldn't be privy to such a personal conversation, she knew how fiercely protective Bug was their past and personal details. But she also knew how much just having a friendly silent companion was when it felt like the world was crashing down around her.
+"Deborah, you know I just wanted you to be safe...I'm sorry...I tried to help cover your tracks when I saw what you did at the records office. That was foolish, Pet." Trouble felt she shouldn't be privy to such a personal conversation, she knew how fiercely protective Bug was about their past and personal details. But she also knew how much just having a friendly silent companion was when it felt like the world was crashing down around her.
 
-Trouble clasped her other hand over Bug's hand she was already holding and squeezed in a way she hopped was reassuringly. Debug looked at her, searching her face for some sort of answer. Before with her free hand pulling a brick of a mobile phone out of her pocket and handing it to Sinéad.
+Trouble clasped her other hand over Bug's hand her fingertips could barely reach around the cast to add to the touch in a way she hopped was reassuringly. Debug looked at her, searching her face for some sort of answer. Before with her free hand pulling a brick of a mobile phone out of her pocket and handing it to Sinéad.
 
 "I'll need your number to give you a call. Can't say when, but it won't be never." Debug tried looking Sinéad in the eye but broke eye contact after a moment. "Just give yourself a call from my phone so you have my number too, so you don't think it's not a telemarketer."
 
 "What...what name should I put you under, Pet?" Sinead asked as she manhandled the old phone. "Starts with a D?"
 
-"Debug Nolas'nam. Spelt how it sounds." Bug said cooly.
+"Debug Nolas'nam. Spelt how it sounds." Bug said coolly.
 
-"Sinner! Who's the friend? You walked off." {Cop related to Frank approaches}
+"Sinner! Who's the friend? You walked off without saying anything." A towering man came over and Trouble immediately felt the need to disappear. Compared to how Brun felt like a gap in the clouds, a presence who's height lead them to cast more safety and shade, this guy felt like a wave threatening to crash over her. This was the person Sinéad had been ignoring when they first spotted Debug.
+
+Looking to Debug for their opinion, Trouble saw only disinterest and mild annoyance. Debug took their phone back from Sinéad, and gave Trouble's hand the same squeeze they'd been using all evening to mean they were going to start walking again.
+
+"It was nice to catch up again Sergeant Bruce. We'll talk later." Bug's tone had shifted to her customer service voice, sheading all the vulnerability it had mere moments ago. Trouble nodded to Sinéad as Debug changed how they were touching, letting go of her hand and slipping a hand around her waist to sit on her hip.
+
+"Call me later Deborah, we should do brunch." Sinéad said while Bug started to lead Trouble away.
+
+"I always thought Deborah was an old lady's name. It's weird to see a young person with it." The person next to Sinéad said, seemingly trying to strike up a conversation with them again.
+
+"Officer Gross if this is how you compose yourself while on duty..." As their conversation faded into the rest of the background noise of the mall as Debug steered her away, Trouble couldn't shake the feeling she knew their interrupting annoyance. But from what she could hear Sinéad saying at the end, they sounded like a police officer and she didn't know anyone who worked for the police.
+
+Giving Bug another side-eye look they also seemed deep in thought, their anxiety coming through in how they kept kneading Trouble's hip, gripping and relaxing over and over like they were trying to ball a fist. Trouble was also impressed the two of them could walk while being so close without any issues. She concluded it must be due to how similar in height they two of them were. When she had first dated Frank, before he had gotten as angry, bitter and possessive he had lamented over how any time they tried to do exactly this it always ended with one of them tripping or in pain.
+
+Frank.
+
+Frank had said that name.
+
+One of the police officers he hung out with was called Gross, cause he was a whole grossload of a person being that tall.
+
