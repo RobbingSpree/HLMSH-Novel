@@ -55,3 +55,7 @@ Voice sounds like:
 Gruff
 Low
 Authoritative/confident 
+
+demonstrated behaviors:
+after chapter 14 settles on the pet name Pet for use on those she holds affection for
+before she never uses the same one twice

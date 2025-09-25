@@ -394,14 +394,30 @@ debug meets old police friend as they leave a restaurant
 panics a little
 police person is with a colleague
 they mention trouble and debug is a little vague about them
+
+## [[Chapter 14]]
+
 Debug POV
-return from shops
+Out of her mind stressed
+First seeing what is in essence her adoptive mom for the first time in 8 years
+Then getting spooked by a random police officer trying to schmooze with her adoptive mom
+Then Trouble fainting once she'd walker her around the corner
+Tries to get Trouble into a seat in the food court 
+asks teens to help her put Trouble on her back so she can carry her "to the car" and intend to take her somewhere she can recover
+Brun POV
+Arrives at work to find Beth still there from the morning
+questions if she needs a break
+Beth is dismissive and asks Brun to do a chore that would put her all the way at the far end of the hotel claiming they'll watch the front desk
+Brun thinks it's fine since she wants some more alone time to think about how she wants to talk to Debug about how she's been feeling
+Debug POV again
+Has finally made it back to the hotel with an exhausted Trouble
+Before Brun can have a word with them Beth interrupts and asks to have a moment
 get singled out by Beth for a work question
 have them send trouble away
 get cornered by beth about their proclivities
 have the security footage of debug and trouble kissing in the reception while brun seemingly watches put in front of them
 
-## Chapter 14
+## Chapter 15 
 
 Debug POV
 Have a lot of flashbacks to childhood
