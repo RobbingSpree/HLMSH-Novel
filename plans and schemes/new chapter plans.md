@@ -437,7 +437,31 @@ Brun worries how she'll break the news to Trouble
 Trouble POV
 Wakes up in a panic, thinks she's both still asleep and back at home sleeping on her couch
 Takes a while to realize what's going on, keeps jumping at shadows
-
+Brun comes in
+Says they have something serious to talk about
+Felicity has some bad thoughts about being abandoned 
+Brun talks about how they feel they are broken and missing a core element of being human
+How they can't do sex, and they think it might be cause they are truely unattractive, both physically but also in their personality 
+Fel has been fidgeting until it becomes clear this is entirely not a reflection on her
+Weaps for relief 
+Moves closer to Brun
+Feels the same she did earlier where she wants to take care of her friend like they have done for her
+That she feels she finally has a strong enough footing she can support the emotional weight of someone else as well as herself
+Maybe not for long
+But it's an improvement 
+Moves closer sees Brun is also crying
+Wipes brun's tears
+Sadles Brun (sitting facing them in their lap)
+Gives Brun the same gentleness and furtive touches and slightly possessive touches that she learned kissing Debug
+Starts trying to shower Brun in compliments
+Reassures them that even if they disagree with these opinions and compliments they don't have to agree at first
+But these are strong opinions that she very strongly feels and believes and she will impress how serious they are until Brun understands
+Punctuated by big forehead kiss
+Trouble tried to explain that sex doesn't have to be lead by lust 
+Like having angry sex
+Or it can be a follow on from a very good joke or game
+There's not a wrong way to do it
+And the only thing she SHOULD seek out is a partner who'll not pressure her to do sex a way she doesn't like
 
 ##  Act 2 arcs
 
