@@ -41,7 +41,7 @@ Total length: 32,000-ish words
 | 11             | 2900          | Written          | Fel, De       | 31.1k         |
 | 12             | 2100          | Written          | Fel, De       | 33.2k         |
 | 13             | 3400          | Written          | Brun, Fel     | 36.6k         |
-| 14             |               | Writing          | De            |               |
+| 14             | 2800          | Writing          | De, Brun      | 39.4k         |
 | 15             |               | planning         |               |               |
 approx. page length (assuming the average page length of 275 words per page): 133
 

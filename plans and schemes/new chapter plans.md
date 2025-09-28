@@ -425,7 +425,7 @@ Get very fidgety and strongly consider self harm to stop it
 Think about how small they let their world get as they tried to stay safe
 Think they have no one they can rely on (Trouble can't be relied on, Brun wouldn't care enough) 
 Think the issue might have occured because they didn't flee from Sinéad
-{More needed}
+Flees in company car
 Brun POV
 Beth calls and asks if they've heard from Debug today
 Beth says no, Brun asks what's up
@@ -476,39 +476,11 @@ Brun and Fel investigate De vanishment, no de
 
 ## Act 3 arcs
 
-downfall Frank
-Downfall beth
+Debug reappears
+downfall Frank planned
+Downfall beth planned
 lets live in a house together
 break back into Fel's house
-
-# Major plot points to hit not covered in work yet
-Frank visits hotel asking after Fel debug is behind the counter (not sure about this)
-**for chapter 8+**
-Fel asks debug if she can get another kiss from them when she's particularly anxious, gets a yes
-Beth sees debug and Fel kiss on the security camera
-Asks debug if Fel has blackmail on her, cause Beth suspects Fel of also being abusive
-Beth tries to reassure debug, who relaxes for a moment and then when Beth finally gets debug to let her touch her asks if that was how Fel to got her too
-Beth sees the normally confident debug looking panicked and lets her lust get a bit too heavy handed
-Debug flees from emotional damage
-Beth doesn't understand her mistake since Debug has been very obviously flirting with Brun and made out with Trouble
-Brun sees debug leave through a window and is confused 
-With debug gone Fel has to ask Brun for a kiss when they get too anxious
-Brun puts two and two together and feels a lot of emotions knowing the person she saw debug with was fel
-Monday work goes normally for Fel who has her stuff now
-Goes to sleep as soon as work day finishes 
-Brun comes in while she's asleep just to check on her
-Fel has a sexy dream about it after half waking up
-Small time skip (like a day or two)
-Debug takes Trouble out clothes shopping since they only stole a few garments
-Trouble is conflicted about wanting to use this as an excuse to let debug see her a bit naked
-Cause of both reassuring one another while out and about when each's PTSD flares up
-Some sweet scenes about hanging out while not sleep deprived and how you can feel unworthy of relaxing after trauma
-Brun and Beth have a chat and think the other understands what's going on
-
-
-Long term goals
-Destroy frank
-Get Trouble's house deed
-Have Fel find her house feels empty and unsafe after all that's happened
-Ask both Brun and debug to move in with her
-Become an actual thruple
+Invite Sinéad to live with them as a way to keep their stalkers at bay
+Enact all downfalls
+Happy end

@@ -1,0 +1,133 @@
+Debug felt like her childhood self all over again, cuff marks and all.
+
+The familiar bite of metal into her wrists, the same powerless situation of needing to play possum to bore her captor, the same oddly similar choice to trap her somewhere underground.
+
+One thing her poor upbringing had given her of value: narrow wrists. Once Beth had decided they were satisfied, they'd taken a few more photos and left. Then having waited dozens of minutes in silence; confident Beth wouldn't come right back Debug stood back up, wriggled free of the low handcuff and picked the high one with a pick sewn into her shirt hem. 
+
+She couldn't consider herself paranoid if it had worked. A trick she had wished she'd had as a child now earned her freedom as what some would describe as an adult. She had never wished to be put in this sort of situation again, but when she was tormented by her memories she would try to think how she could have maybe escaped sooner back then.
+
+Some of Beth's words that they'd spat at her while attacking her made her whole life sound like some kind of bad joke.
+
+"Your first time is for someone who loves you. It's for me. You are for me."
+
+She vaguely recalled being sold several times by her mother to older men to have her first time. The fact it had all been a scam back then was what had helped her get tools to mentally overcome that trauma. Sinéad had told her she wasn't over it, that she still needed to go to therapy, but they weren't the one who had to deal with it all every day, they didn't get to decide how she felt.
+
+Sinéad had tried to be helpful, she knew that logically. But Debug didn't need more women claiming the title of her mother. So she had pushed them away, and then run away rather than ask for help.
+
+The corridor she had been trapped in was half underground, with windows at a normal person's shoulder height right but right at ground level outside. Debug's escape planning was interrupted by the mental image of punching the windows out and crawling through the broken glass to freedom. 
+
+"Ohh good. Yes, self harm is a necessary step in escape, Brain." She muttered to herself. 
+
+After a bit of testing, climbing up to stand on the hand rail and pushing on each window in turn, she found one that was loose in its frame. With a bit of a shove, the whole window frame came out and left her a hole she could wriggle through and not cut herself up.
+
+Or that was the plan, anyway.
+
+Actually getting up and out was a challenge, and the rough bricks she had to slide over with only mangled and cut up clothes to protect her skin meant that she did end up getting cut up regardless. It was all good until she had to commit to pulling herself with her arms and not standing on the rail. As soon as her chest had all her weight on it and her noodly, weak arms were the only thing lifting her above the punishing stone and concrete, that was when her brain's desire to punish her for getting caught up in this mess kicked into overdrive.
+
+The need to somehow cleanse or overwrite the harm someone else did with worse harm she could do. Debug knew it was mad, knew if she said it aloud to anyone they would try to get her committed to an asylum. But it worked. No one could claim to own or control her with threats of violence if she could threaten herself with worse violence.
+
+Her stomach and hips got the worst deal out of the struggle. Countless grazes and small cuts decorated her skin, but the thrill of once again besting some controlling freak and showing what real pain was ran through her veins and leaked from her skin.
+
+Getting her bearings, Debug realised it was night time. So either Beth had kept her trapped for a while day or had gotten bored of her quite quickly. Regardless, the cover of darkness meant she could scuttle through the carpark to the hotel car. 
+
+Back when they had first claimed ownership of it, Debug had spent several days practicing breaking into it. Not in an effort to get better at breaking into cars, but because she was trying to reverse engineer a remote that would work on it and kept locking her tools inside.
+
+The shim she had used all that time ago was still hidden in a bush near the car, so she wouldn't need to go get the keys she made for it from inside.
+
+Thankfully it was a warm night, so Debug barely noticed she was mostly naked as she streaked towards freedom.
+
+Trying to make no noise as she pitter patted to a halt next to the dilapidated vehicle. With swift practice she fetched the shim, jammed it through the gap in the driver side window and pulled the latch open. Making sure not to be too hasty and attract attention, Debug sat in the car and pulled the door closed, pulling again until it made the sound of the latch closing all the way.
+
+In the front passenger seat, right where she had left them weeks prior, was her lockpick set.
+
+The car barely needed encouragement to start without the key.
+
+With a car and her picks, she could technically go anywhere. But where could she go that was safe?
+
+***
+
+Brun had waited all shift for Dee to return, perhaps all her imagining of them coming to hate her had made it real.
+
+She felt she knew Debug well enough that if they said they would do something, it would happen. They said they were coming back, which meant it would happen. They were one of the most reliable people she knew, even if they were a bit stand-offish from time to time. 
+
+As usual for this week, rather than be left alone with her thoughts, something interrupted them. The reception desk phone rang.
+
+The readout on the phone said it was Manager Beth's number.
+
+"Beth, I thought you went home. Shouldn't you be-"
+
+"Have you heard from Debug tonight?" Beth almost shouted through the phone.
+
+"What? Umm, no. Not since I say her and you walk off earlier." Brun could only imagine the worst.
+
+"I'm at her house and she's not here." Beth said, sounding very on edge.
+
+"You...know where she lives? Tell me. All she ever told me was it was a windowless apartment." None of this made any sense. Why was Beth worried about Debug? What had happened after they talked? Why was she at her house?
+
+"I'm her boss. We have a bit more of a close relationship, I'm privy to more of her than a mere coworker." Brun couldn't work out what emotion was being carried on Beth's voice, but she didn't like it.
+
+"But you think she would call me?" There was only one conclusion she could come to after what she had seen tonight. "Did you two have a fight?"
+
+As suddenly as the conversation started, it stopped. The call ended and Brun was left with only questions.
+
+***
+
+Felicity woke with a start, the darkness clawing at her and the sensation of someone looking over her weighing on her mind.
+
+She tried to sit up, but she couldn't find the edge of the couch.
+
+She couldn't find the back either.
+
+She wasn't on her couch.
+
+Her worst fears of being kidnapped while she slept immediately and unhelpfully spang to mind. 
+
+The normal thrum of washing machines and dishwashers was missing. The hum she couldn't stop her computer from making was gone.
+
+The ground was impossibly soft.
+
+As her eyes started to become accustomed to the darkness a door opened and harsh light spilled in, blinding her anew.
+
+Felicity couldn't make out who the intruder was and screamed in panic.
+
+They yelled something at her, so she scrambled away.
+
+Felicity fell backwards, the ground suddenly vanishing beneath her hands.
+
+As she struggled to right herself and find a way to defend against her assailant, they stepped back into view. The light from the hall illuminating Brun's shiluette.
+
+The haze of fear in Trouble's mind faded. She had simply forgotten where she was.
+
+Tears and apologies flowed in equal measure.
+
+Brun picked her up, carrying her like a delicate princess. She normally felt so safe in their arms, but now she just felt broken.
+
+Even with weeks of safety, all it took was a moment of sleep addled confusion for her to lose herself to panic.
+
+Brun was murmuring kind words into her hair and stroking her. Once again she had been saved by her friends.
+
+"Sorry for bursting in, I forgot to knock." Brun said after Trouble had calmed down entirely. "I have had a few things on my mind recently and jumped the gun." Despite her calm demeanour, Brun felt on edge. Their movements felt robotic and forced.
+
+Trouble pulled themself together, aggressively ignoring the issues that weighed on their mind. She was quite often the one being supported, and now Brun needed help; so was determined to be the one to provide it.
+
+"I'm not important right now." Trouble announced as they climbed out of Brun's lap and sat a polite distance from them. "What's bothering you?" Not know what to do with her hands, she placed them in her lap once she settled back on the edge of the bed.
+
+"What...no..." Brun tried to argue, but when words failed her, they just ended up sitting in silence.
+
+Trouble let the silence continue, she knew Brun had a bad habit of letting words fall out of her mouth, so if they were trying to avoid starting off on the wrong foot she would give them as much time as they needed.
+
+Brun walked over to the door and closed it, and sat back down a little closer but still what Trouble would call a polite distance.
+
+"I've been trying to find a way to talk to you and Dee..." They started, faltering at the starting line as they went silent again.
+
+"I think..." Brun said after several minutes of silence. "That I am missing something. I'm not some blushing virgin, but I also don't see the big whoop in sex." 
+
+Trouble was entirely lost. 
+
+She hoped if she made agreeing noises and Brun kept talking it would start to make sense.
+
+"Like, I've had boyfriends." Trouble's heart sank, she hadn't been holding out realistic hope that she could get more kisses. But now she'd feel bad remembering how Brun held her in their sleep and thinking fondly of it. "I didn't like dating them. But I did it. Cause it's what you do." Trouble stopped herself from getting excited, she couldn't handle a rollercoaster of emotional of Brun continuing to threaten the possibility they were bi at her. "And the way they...kinda forced sex into all sorts of situations...I don't know if I hated it before I was a teenager...but I do now."
+
+Trouble could understand Brun's perspective. There had been times both Brun and Trouble had given her the creeps accidentally when they reminded her of how Frank would come onto her. She knew she was just jumping at shadows, she trusted her friends, but that didn't stop her from getting those emotions. But it was the same as ignoring the voice that suggested she walk into traffic. It was very obvious is wasn't something she wanted, it was just her mind trying to deal with a change.
+
+Trouble realised Brun had stalled again and tried making another agreeing noises to prompt them to continue, but when she looked over at her tall friend, normally unphased and stoic. In the darkness, 
