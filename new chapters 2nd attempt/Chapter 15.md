@@ -128,6 +128,42 @@ She hoped if she made agreeing noises and Brun kept talking it would start to ma
 
 "Like, I've had boyfriends." Trouble's heart sank, she hadn't been holding out realistic hope that she could get more kisses. But now she'd feel bad remembering how Brun held her in their sleep and thinking fondly of it. "I didn't like dating them. But I did it. Cause it's what you do." Trouble stopped herself from getting excited, she couldn't handle a rollercoaster of emotional of Brun continuing to threaten the possibility they were bi at her. "And the way they...kinda forced sex into all sorts of situations...I don't know if I hated it before I was a teenager...but I do now."
 
-Trouble could understand Brun's perspective. There had been times both Brun and Trouble had given her the creeps accidentally when they reminded her of how Frank would come onto her. She knew she was just jumping at shadows, she trusted her friends, but that didn't stop her from getting those emotions. But it was the same as ignoring the voice that suggested she walk into traffic. It was very obvious is wasn't something she wanted, it was just her mind trying to deal with a change.
+Trouble could understand Brun's perspective. There had been times both Brun and Trouble had given her the creeps accidentally when they reminded her of how Frank would come onto her. She knew she was just jumping at shadows, she trusted her friends, but that didn't stop her from getting those emotions. But it was the same as ignoring the voice that suggested she walk into traffic. It was very obvious is wasn't something she wanted, it was just her mind trying to deal with a itself.
 
-Trouble realised Brun had stalled again and tried making another agreeing noises to prompt them to continue, but when she looked over at her tall friend, normally unphased and stoic. In the darkness, 
+Trouble realised Brun had stalled again and tried making another agreeing noises to prompt them to continue, but when she looked over at her tall friend, normally unphased and stoic looked small and fragile. Not sure what her plans was, but knowing she had to do something, Trouble knelt on the bed and got closer than she considered polite. 
+
+"Do I make you uncomfortable if I'm this close?" Trouble asked, trying to get a baseline for what Brun was trying to convey.
+
+"No, but I don't think of you as a person." Brun said finally sticking her foot on her mouth. "You're more like a cute pet." Trouble was, to her own surprise, happy with that.
+
+"So if I'm your pet, I can be closer?" Trouble asked as she bonked her forehead on Brun's shoulder. 
+
+"I didn't mean...yeah this is fine, you're fine."
+
+"What if I'm in your lap?" Trouble asked, starting to lose grip on her line of questioning and mounting Brun's legs. She ended up half kneeling and half sitting while facing Brun looking slightly up into her eyes. Of she had the courage to do this to Debug this would have been perfect height to push her down, but Brun's height had them almost at eye level.
+
+Brun looked conflicted, but before Trouble to see deeper they were pulled into a hug and their head was guided down onto Brun's shoulder.
+
+"This is a great example. Normally I wouldn't think anything of that. I would just know you need physical closeness, like everyone needs." Trouble nodded as Brun continued, closing her eyes and focusing on their voice. "But a few weeks back I saw something, and now I keep worrying in doing stuff wrong. I don't want to be the one to say, and I wanted to talk to Dee about this first, but I can't keep putting this discussion off."
+
+Brun took a shaky breath.
+
+"I saw Debug making out with someone who works here." 
+
+Trouble froze.
+
+She had thought she was special.
+
+She had tricked herself into thinking she mattered.
+
+Felicity broke free from Brunhilde's grip and knelt to look them in the eyes again.
+
+"What?" As she spoke she realised she was crying. Tears flowed freely down her face and she could see a serious wet patch on Brun's shoulder.
+
+"I didn't think you'd react that poorly to that news. I might have said it wrong, there's nothing wrong with kisses, I'm the..."
+
+"If it's so fine, then kiss me." Felicity almost spat her words, she had so many emotions and no idea what to do with any of them. "If a kiss means so little, what's one or two between friends?"
+
+Felicity couldn't see Brunhilde's reaction to her words through the wall of tears that kept welling up.
+
+""
