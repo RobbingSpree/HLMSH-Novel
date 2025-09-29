@@ -439,11 +439,9 @@ Wakes up in a panic, thinks she's both still asleep and back at home sleeping on
 Takes a while to realize what's going on, keeps jumping at shadows
 Brun comes in
 Says they have something serious to talk about
-Felicity has some bad thoughts about being abandoned 
 Brun talks about how they feel they are broken and missing a core element of being human
 How they can't do sex, and they think it might be cause they are truely unattractive, both physically but also in their personality 
-Fel has been fidgeting until it becomes clear this is entirely not a reflection on her
-Weaps for relief 
+Fel pushes her own anxieties aside and focuses on Brun
 Moves closer to Brun
 Feels the same she did earlier where she wants to take care of her friend like they have done for her
 That she feels she finally has a strong enough footing she can support the emotional weight of someone else as well as herself

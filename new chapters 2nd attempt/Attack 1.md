@@ -1,3 +1,9 @@
+---
+tags:
+  - Debug
+  - trigger
+  - Sexy
+---
 Debug was unsure what was going on as she followed Beth through the back rooms of the hotel. 
 
 They normally didn't ask anything of her unless something technical broke, and it was normally just to find and explain what was broken so Beth wouldn't get price gouged by repairmen. But from where she was leading her, the only thing out this way was the fire escape and utility rooms.

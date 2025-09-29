@@ -123,7 +123,7 @@ Trouble pulled themself together, aggressively ignoring the issues that weighed 
 
 Trouble let the silence continue, she knew Brun had a bad habit of letting words fall out of her mouth, so if they were trying to avoid starting off on the wrong foot she would give them as much time as they needed.
 
-Brun walked over to the door and closed it, and sat back down a little closer but still what Trouble would call a polite distance.
+Brun walked over to the door and closed it, and sat back down a little closer but still at what Trouble would call a polite distance.
 
 "I've been trying to find a way to talk to you and Dee..." They started, faltering at the starting line as they went silent again.
 
@@ -137,7 +137,7 @@ She hoped if she made agreeing noises and Brun kept talking it would start to ma
 
 Trouble could understand Brun's perspective. There had been times both Brun and Trouble had given her the creeps accidentally when they reminded her of how Frank would come onto her. She knew she was just jumping at shadows, she trusted her friends, but that didn't stop her from getting those emotions. But it was the same as ignoring the voice that suggested she walk into traffic. It was very obvious is wasn't something she wanted, it was just her mind trying to deal with a itself.
 
-Trouble realised Brun had stalled again and tried making another agreeing noises to prompt them to continue, but when she looked over at her tall friend, normally unphased and stoic looked small and fragile. Not sure what her plans was, but knowing she had to do something, Trouble knelt on the bed and got closer than she considered polite. 
+Trouble realized Brun had stalled again and tried making another agreeing noises to prompt them to continue, but when she looked over at her tall friend, the normally unphased and stoic Brun looked small and fragile. Not sure what her plans was, but knowing she had to do something, Trouble knelt on the bed and got closer than she considered polite. 
 
 "Do I make you uncomfortable if I'm this close?" Trouble asked, trying to get a baseline for what Brun was trying to convey.
 
@@ -147,7 +147,7 @@ Trouble realised Brun had stalled again and tried making another agreeing noises
 
 "I didn't mean...yeah this is fine, you're fine."
 
-"What if I'm in your lap?" Trouble asked, starting to lose grip on her line of questioning and mounting Brun's legs. She ended up half kneeling and half sitting while facing Brun looking slightly up into her eyes. Of she had the courage to do this to Debug this would have been perfect height to push her down, but Brun's height had them almost at eye level.
+"What if I'm in your lap?" Trouble asked, starting to lose grip on her line of questioning and mounting Brun's legs. She ended up half kneeling and half sitting while facing Brun looking slightly up into her eyes. If she had the courage to do this to Debug this would have been perfect height to push her down, but Brun's height had them almost at eye level.
 
 Brun looked conflicted, but before Trouble to see deeper they were pulled into a hug and their head was guided down onto Brun's shoulder.
 

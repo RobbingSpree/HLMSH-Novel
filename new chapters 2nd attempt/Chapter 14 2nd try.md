@@ -2,7 +2,6 @@
 tags:
   - Debug
   - Brunhilde
-  - trigger
   - Sexy
 ---
 Debug was done with today. She just wanted to turn herself off like a computer and handle the rest of what was left of today after a relaxing coma.
