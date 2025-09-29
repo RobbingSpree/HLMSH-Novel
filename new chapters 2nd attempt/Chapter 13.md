@@ -1,3 +1,8 @@
+---
+tags:
+  - Brunhilde
+  - Felicity
+---
 Brun looked at her own reflection in the reception monitor, it felt like she couldn't meet it's gaze.
 
 The last few weeks had been a lot for her emotionally, and the quiet Wednesday morning shift was exactly the place to linger with her thoughts uninterrupted.

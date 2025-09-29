@@ -1,10 +1,17 @@
+---
+tags:
+  - Debug
+  - Brunhilde
+  - trigger
+  - Felicity
+---
 Debug felt like her childhood self all over again, cuff marks and all.
 
-The familiar bite of metal into her wrists, the same powerless situation of needing to play possum to bore her captor, the same oddly similar choice to trap her somewhere underground.
+The familiar bite of metal into her wrists, the same powerless situation of needing to play possum to bore her captor, the same odd choice to trap her somewhere underground.
 
 One thing her poor upbringing had given her of value: narrow wrists. Once Beth had decided they were satisfied, they'd taken a few more photos and left. Then having waited dozens of minutes in silence; confident Beth wouldn't come right back Debug stood back up, wriggled free of the low handcuff and picked the high one with a pick sewn into her shirt hem. 
 
-She couldn't consider herself paranoid if it had worked. A trick she had wished she'd had as a child now earned her freedom as what some would describe as an adult. She had never wished to be put in this sort of situation again, but when she was tormented by her memories she would try to think how she could have maybe escaped sooner back then.
+She couldn't consider herself paranoid if it had worked and she'd been right to be concerned. A trick she had wished she'd had as a child now earned her freedom as what some would describe as an adult. She had never wished to be put in this sort of situation again, but when she was tormented by her memories she would try to think how she could have maybe escaped sooner back then.
 
 Some of Beth's words that they'd spat at her while attacking her made her whole life sound like some kind of bad joke.
 
@@ -158,7 +165,7 @@ She had tricked herself into thinking she mattered.
 
 Felicity broke free from Brunhilde's grip and knelt to look them in the eyes again.
 
-"What?" As she spoke she realised she was crying. Tears flowed freely down her face and she could see a serious wet patch on Brun's shoulder.
+"What?" As she spoke she realized she was crying. Tears flowed freely down her face and she could see a serious wet patch on Brun's shoulder.
 
 "I didn't think you'd react that poorly to that news. I might have said it wrong, there's nothing wrong with kisses, I'm the..."
 
@@ -166,4 +173,3 @@ Felicity broke free from Brunhilde's grip and knelt to look them in the eyes aga
 
 Felicity couldn't see Brunhilde's reaction to her words through the wall of tears that kept welling up.
 
-""

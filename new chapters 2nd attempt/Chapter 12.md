@@ -1,3 +1,8 @@
+---
+tags:
+  - Felicity
+  - Debug
+---
 She had been wrong. Trouble had been very wrong. There was apparently still a limit to how much she could keep under wraps.
 
 About when Bug had started putting lip gloss on her it tipped from being overwhelming in a fun and exciting way to overwhelming in a scary way. All of her senses started feeling a little off, like they had slipped off the mark and landed somewhere several meters away. Her normal technique of forcing control over her breathing, and by extension herself, didn't work as she had forgotten how to directly control any of her muscles. The overwhelming sensations had scrambled her control.
