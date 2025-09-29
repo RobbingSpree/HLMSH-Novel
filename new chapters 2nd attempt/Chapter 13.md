@@ -75,7 +75,7 @@ Trouble relaxed a little, assuming that while this might get awkward it shouldn'
 
 After an extended moment of Debug muttering quietly to themselves about what sounded like practice for greeting someone. The mystery woman began striding purposefully towards them.
 
-"Deh! It's been so long." Their voice almost felt like a slap compared to how gentle Debug normally spoke. "I love what you've done with your hair. Very grunge." 
+"Deh! It's been so long." Their voice almost felt like an energetic slap compared to how constrained Debug had been talking all day. "I love what you've done with your hair. Very grunge." 
 
 Despite feeling like a powerful presence, their new company was just shorter than both Trouble and Debug. Something about how they stood and as though at attention made the hairs on Trouble's neck stand on end.
 
@@ -85,7 +85,7 @@ Despite feeling like a powerful presence, their new company was just shorter tha
 
 "This is my friend, Princess." Debug said matter-of-factly. "They've got some issues with their ex who's a...swine heard. Their complexation is a lot more vibrant under their makeup." Trouble lost track of what Bug was trying to say, she was stuck on the fact both her and Bug had picked the same fake name. Now Trouble understood better the smile Brun had when she had blurted the same name out all that time ago.
 
-"Ohh, we'll do let me know if I can help. I'm working out at the head office now. They kept promoting me for some reason. So I can boss a lowly swine heard around, if you've got the dirt." Trouble felt entirely lost as she refocused back on the conversation, unsure how it had changed to being about farm workers. One thing Trouble did know was where she had heard that commanding tone from before, it was so similar to how Bug spoke when she thought things were serious. Trouble was immediately taken aback when Sinéad spoke without that tone. "Pet, I missed you. You didn't call, or write."
+"Ohh, we'll do let me know if I can help. I'm working out at the head office now. They kept promoting me for some reason. So I can boss a lowly swine heard around, if you've got the dirt." Trouble felt entirely lost as she refocused back on the conversation, unsure how it had changed to being about farm workers. One thing Trouble did know was where she had heard that commanding tone from before, it was so similar to how Bug spoke when she thought things were serious. Trouble was immediately taken aback when Sinéad changed tact, leaned in a little and spoke without that tone. "Pet, I missed you. You didn't call, or write."
 
 Trouble felt Debug tense up and their breath hitched as Sinéad gently touched their free arm.
 

@@ -55,23 +55,23 @@ Reaching the bus stop finally, and with great difficulty set Trouble down on the
 
 ***
 
-Brun refused to lose every argument she had with herself. One would think she was winning the arguments since it was with herself. But the side she wanted to win simply wasn't.
+Brun refused to lose every argument she had with herself. One would think she was also winning the arguments since it was with herself. But the side she wanted to win simply wasn't.
 
-She had spent her whole previous shift fretting about how to talk to either Debug or Trouble about how she had been feeling, and every time she tried to imagine what they might say she could never find words to explain herself or how she felt to herself, let alone other people.
+She had spent her whole previous shift fretting about how to talk to either Debug or Trouble about how she had been feeling, and every time she tried to imagine what they might say she could never find words to explain how she felt to herself, let alone to other people.
 
 As she walked back into the hotel for her next shift, hoping that by being in the building she was expecting to have a fight in she could imagine a better outcome than her friends rebuffing her and decrying her lacking of positive emotion around sexual interests. 
 
-Having spent all day while awake thinking on the subject, she was feeling less dread about the prospect of romance. She could imagine happy scenarios where someone did nice things for her and gave her a chaste kiss, or a warm embrace. Where she could be physically intimate in a chaste way. But trying to imagine anything more serious was off-putting.
+She had spent all her waking hours thinking on the subject and was feeling less dread about the prospect of romance. She might have been conflating too many things with something she didn't like. She could imagine happy scenarios where someone did nice things for her and gave her a gift or a chaste kiss, or a warm embrace. Where she could be physically intimate in a kind way. But trying to imagine anything more serious was off-putting.
 
 Maybe part of the problem was how inexperienced she was. 
 
-"But it's just sex. What else is there? You have the primal urge and do the deed." She muttered to herself and the nearby crow she had befriended that frequented their car park. "It's not like you can add rules like it's football or something fun." 
+"But it's just sex. What else is there? You have the primal urge then you do the deed." She muttered to herself and the nearby crow she had befriended that frequented their car park. "If you don't get the urge you don't do the deed. It's not like you can add rules like it's football or something fun." 
 
 Setting her internal discussion aside, Brun walked through the front door to meet the eye of Gary. One of the few staff she now dreaded doing a handover with.
 
 Minutes later, as she walked into the staff room behind the reception she found an odd situation: Manager Beth was still where she had last seen her, eight hours ago, sitting in front of the management computer. Except now she had notes and what looked like timelines strewn about the desk.
 
-"You find that guy you were looking for?" Brun asked, now a little concerned Trouble wasn't safe.
+"You find that guy you were looking for?" Brun asked, now a little concerned this meant Trouble wasn't safe.
 
 "What?" Beth scrambled to cover her notes. "Ahh, no. There was a guest taking something that didn't belong to them. So I was tracking their movements to see what they took." They got up from their seat and faced Brun. "What are you doing here?"
 
@@ -81,7 +81,7 @@ Minutes later, as she walked into the staff room behind the reception she found 
 
 "Is it worth being a total wreck?" She didn't particularly care what Beth looked like, and they were surprisingly put together for someone who was approaching 26 hours awake. But she knew Beth would judge herself harshly if they thought they weren't presentable for others.
 
-"I'll go lay down in the nap room for a hot minute. But this is important." They appeared to re-inflate with the reassurance to themselves they could continue their vendetta.
+"I'll go lay down in the nap room for a hot minute. But this...this is important." They appeared to re-inflate with the reassurance to themselves they could continue planning their vendetta.
 
 "What did the guest even steal? What's worth this much effort?" Brun was a little worried, the hotel didn't have anything of actual value and began thinking someone had started stripping the copper pipes and wires from the rooms.
 
@@ -97,11 +97,11 @@ Debug felt wrung dry and sun bleached, which was odd for someone who'd not been 
 
 They could march for a long while still, but they were very glad they hadn't needed to carry Trouble any further than the bus stop. 
 
-Debug had muscles, just not a lot of them. She was used to using engineering to multiply her strength rather than simply being as strong as needed. She strongly suspected her terrible eating habits were part of why she had stayed short and never put on muscle, but it could be inherited for all she knew.
+Debug had muscles, enough to get herself into mischief; apparently not enough to get herself back out of it. She was used to using engineering to multiply her strength rather than simply being as strong as needed. She strongly suspected her terrible eating habits were part of why she had stayed short and never put on muscle, but it could be inherited for all she knew since she didn't share a drop of blood with anyone who had called themself her parent.
 
-Trouble firmly held her hand and walked by her side rather than trailing behind her as they had done when they had left the hotel several hours earlier. She wasn't sure what about fainting from seemingly nowhere had given them a confidence boost. That or they knew it had been as bad as it was because Debug hadn't seen anything leading up to the problem, so if they stayed in her peripheral vision she'd be able to help quicker.
+Trouble firmly held her hand and walked by her side rather than trailing behind her as they had done when they had left the hotel several hours earlier. She wasn't sure what about fainting from seemingly nowhere had given them a confidence boost, but since waking back up at the bus stop they hadn't hidden behind Debug since. That or they knew it had been as bad as it was because Debug hadn't seen anything leading up to the problem, so if they stayed in her peripheral vision Debug would be able to help quicker.
 
-Either way, as they approached the hotel front door, Debug stopped and bowed to her companion gently kissing their hand. The act being the furthest thing from chaste purity they'd done all day. As debug looked back up to see their reaction she caught a sly smile being smothered.
+Either way, as they approached the hotel front door, Debug stopped and bowed to her companion gently kissing their hand. The act being the furthest thing from chaste purity they'd done all day. As debug looked back up to see their reaction she caught a sly smile being smothered. Hopefully being playful would help smooth over their rough evening.
 
 "Good evening then. It has been most wonderful, except for the minor hiccough towards the end." Trouble said through an incredibly thick fake British accent. Before taking the lead and entering the hotel.
 
