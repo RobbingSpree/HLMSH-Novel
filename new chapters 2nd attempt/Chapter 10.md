@@ -40,7 +40,7 @@ With a bit of sunlight coming through around the edge of the blinds she could se
 
 "Oh no...I am gay. This explains...nothing, huh." Trouble tried to recall if she had similar feelings when she was younger, but all that came to mind was making excuses to never let people visit her house or ask anything she'd need her dad's permission for. "I did always enjoy watching the Volleyball when the big sports things were on TV. So maybe there were signs." She muttered to herself.
 
-Looking at Brun again in this new light, they were quite beautiful. the delicate lines from their collarbones and neck that lead to their kind face. While gazing at her friend, Trouble was struck by the thought that if the reason Debug was as keen to help was because they had similar hurt in their past, what could have happened to Brun to make them as kind and gentle as they were.
+Looking at Brun again in this new light, they were quite beautiful. The delicate lines from their collarbones and neck that lead to their kind face. While gazing at her friend, Trouble was struck by the thought that if the reason Debug was as keen to help was because they had similar hurt in their past, what could have happened to Brun to make them as kind and gentle as they were.
 
 Realizing she was avoiding work, Trouble shifted and tried to refocus. Only to immediately turn to look at Debug, wondering if now that she was aware she was gay she could work out why she had found their kiss to be so electric. They were about the same height and build and had similar pale skin tones, and since Trouble had never found herself attractive it was unlikely that was what had made their embrace so wonderful. Maybe it had just been the ease at which their reassurance had turned passionate?
 

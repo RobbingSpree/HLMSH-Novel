@@ -105,11 +105,9 @@ As she struggled to right herself and find a way to defend against her assailant
 
 The haze of fear in Trouble's mind faded. She had simply forgotten where she was.
 
-Tears and apologies flowed in equal measure.
+Without the wall of fear keeping her emotions from spilling forth tears and apologies flowed in equal measure.
 
-Brun picked her up, carrying her like a delicate princess. She normally felt so safe in their arms, but now she just felt broken.
-
-Even with weeks of safety, all it took was a moment of sleep addled confusion for her to lose herself to panic.
+Brun picked her up, carrying her like a delicate princess. She normally felt so safe in their arms, but right now she just felt broken. Even with weeks of safety and reassurance, all it took was a moment of sleep addled confusion for her to lose herself to panic.
 
 Brun was murmuring kind words into her hair and stroking her. Once again she had been saved by her friends.
 
@@ -123,11 +121,11 @@ Trouble pulled themself together, aggressively ignoring the issues that weighed 
 
 Trouble let the silence continue, she knew Brun had a bad habit of letting words fall out of her mouth, so if they were trying to avoid starting off on the wrong foot she would give them as much time as they needed.
 
-Brun walked over to the door and closed it, and sat back down a little closer but still at what Trouble would call a polite distance.
+Brun walked over to the door and closed it, and sat back down in the dark a little closer but still at what Trouble would call a polite distance. As the silence stretched, Trouble's eyes adjusted and she could make her friend's outline in the dark.
 
 "I've been trying to find a way to talk to you and Dee..." They started, faltering at the starting line as they went silent again.
 
-"I think..." Brun said after several minutes of silence. "That I am missing something. I'm not some blushing virgin, but I also don't see the big whoop in sex." 
+"I think..." Brun said after several minutes of silence. "That I am missing something. That something is missing from me. Like I'm not some blushing virgin, but I also don't see the big whoop in sex." 
 
 Trouble was entirely lost. 
 
@@ -151,13 +149,15 @@ Trouble realized Brun had stalled again and tried making another agreeing noises
 
 Brun looked conflicted, but before Trouble to see deeper they were pulled into a hug and their head was guided down onto Brun's shoulder.
 
-"This is a great example. Normally I wouldn't think anything of that. I would just know you need physical closeness, like everyone needs." Trouble nodded as Brun continued, closing her eyes and focusing on their voice. "But a few weeks back I saw something, and now I keep worrying in doing stuff wrong. I don't want to be the one to say, and I wanted to talk to Dee about this first, but I can't keep putting this discussion off."
+"This is a great example. Normally I wouldn't think anything of that. I would just know you need physical closeness, like everyone needs." Trouble nodded as Brun continued, closing her eyes and focusing on their voice. "But a few weeks back I saw something, and now I keep worrying in doing stuff wrong or leading people on. And I'm a bit scared about it. I don't want to be the one to say, and I wanted to talk to Dee about this first, but I can't keep putting this discussion off."
 
 Brun took a shaky breath.
 
 "I saw Debug making out with someone who works here." 
 
 Trouble froze.
+
+Brun's words echoed in her mind.
 
 She had thought she was special.
 
@@ -173,3 +173,30 @@ Felicity broke free from Brunhilde's grip and knelt to look them in the eyes aga
 
 Felicity couldn't see Brunhilde's reaction to her words through the wall of tears that kept welling up.
 
+"I'm not going to force someone to kiss me to make a point." Brunhilde yelled. "This isn't a joke." Trouble could feel them leaning back, as though trying to escape. She didn't know what to do with these emotions, this fierce desire to protect. But how could she protect someone from themselves? How could she protect herself from those she didn't expect could hurt her?
+
+Trouble felt themselves move before they understood what was happening.
+
+With a muffled thud Trouble put their hands on Brun's shoulders and pushed them down on the bed, her arm stinging as it suddenly had to take her weight. 
+
+"You! Are! The! Most! Beautiful! Woman! I have! Ever! Seen!" Trouble horsely shouted, punctuating each word with a kiss to Brunhilde's forehead or cheek. "Is it a problem for me to kiss you?" Trouble knew they sounded manic.
+
+"What has gotten into you? Where did this come from?" Brun tried preparing to dodge any more incoming kisses. 
+
+"How do is this different from Debug kissing someone else? Is it different if you think they're a slut?" Trouble's voice wavered and broke as she tried not to yell but she had so much emotions trying to escape it was hard to think.
+
+"I don't think she's a slut. I just don't know what to think." Brun got their arms free and tried pushing Trouble off them.
+
+"Is it that she might kiss you? Do you think she'd take advantage of you? That she would attack you? Someone that scared of being seen, of having people know what they're thinking and feeling? Them?" Trouble realised they'd lost the plot and were just saying what she was concerned about.
+
+If she was finding anxiety relief in kisses, who's to say Debug didn't also need that. For all she knew, she had been the one to show her it's effectiveness.
+
+With a heave, Brun managed to throw Trouble well off her. Trouble bounced off the edge of the bed and ended up in a sad pile on the floor.
+
+As quickly as the whole situation started, Brun bolted for the door and opened it, bathing the room in blinding light again.
+
+Then darkness returned. It's cruel fingers weighing on Trouble. 
+
+The emotions she had been trying to shout out, to remove like a poison, now with nowhere to go, wracked her body with heavy sobs.
+
+Everything Felicity held dear had either not existed or had left.

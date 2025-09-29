@@ -461,6 +461,17 @@ Or it can be a follow on from a very good joke or game
 There's not a wrong way to do it
 And the only thing she SHOULD seek out is a partner who'll not pressure her to do sex a way she doesn't like
 
+## chapter 16
+
+Brun POV
+She had only just gone outside the door to think
+She realised trouble was right, way too keen, but right
+She had been avoiding actually thinking about stuff since she had some kind of mental block or trauma about it
+She tries imagining kissing Debug
+It's fine, cause she trusts her and knows her 
+She tries to imagine Trouble kissing her and with only the recent kiss attack as reference just sees them as a pet essentially still
+Not giving much time to her thoughts and wanting to check back in with Trouble they return to find them on the floor
+
 ##  Act 2 arcs
 
 De and Fel hang out, no Brun

@@ -43,7 +43,8 @@ Total length: 32,000-ish words
 | 13             | 3400          | Written          | Brun, Fel     | 36.6k         |
 | 14             | 2700          | Written          | De, Brun      | 39.3k         |
 | Attack 1       | 800           | Written          | De            | 40.1k         |
-| 15             |               | writing          |               |               |
+| 15             | 2800          | Written          | De, Fel       | 42.9k         |
+| 16             |               | Planning         | Brun          |               |
 approx. page length (assuming the average page length of 275 words per page): 133
 
 Latest posted chapter:
