@@ -9,9 +9,9 @@ Debug felt like her childhood self all over again, cuff marks and all.
 
 The familiar bite of metal into her wrists, the same powerless situation of needing to play possum to bore her captor, the same odd choice to trap her somewhere underground.
 
-One thing her poor upbringing had given her of value: narrow wrists. Once Beth had decided they were satisfied, they'd taken a few more photos and left. Then having waited dozens of minutes in silence; confident Beth wouldn't come right back Debug stood back up, wriggled free of the low handcuff and picked the high one with a pick sewn into her shirt hem. 
+One thing that her poor upbringing had given her of value: narrow wrists. Once Beth had decided they were satisfied, they'd taken a few more photos and left. Then having waited dozens of minutes in silence; confident Beth wouldn't come right back Debug stood back up, wriggled free of the low handcuff and picked the high one with a pick sewn into her shirt hem. 
 
-She couldn't consider herself paranoid if it had worked and she'd been right to be concerned. A trick she had wished she'd had as a child now earned her freedom as what some would describe as an adult. She had never wished to be put in this sort of situation again, but when she was tormented by her memories she would try to think how she could have maybe escaped sooner back then.
+She couldn't consider herself paranoid if it had worked and she'd been right to be concerned. A trick she had wished she'd had as a child now earned her freedom as what some would describe as an adult. She had never wished to be put in this sort of situation again, but when she was tormented by her memories at night she would try to think how she could have maybe escaped sooner back then.
 
 Some of Beth's words that they'd spat at her while attacking her made her whole life sound like some kind of bad joke.
 
