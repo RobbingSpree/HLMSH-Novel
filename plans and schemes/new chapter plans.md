@@ -469,8 +469,15 @@ She realised trouble was right, way too keen, but right
 She had been avoiding actually thinking about stuff since she had some kind of mental block or trauma about it
 She tries imagining kissing Debug
 It's fine, cause she trusts her and knows her 
-She tries to imagine Trouble kissing her and with only the recent kiss attack as reference just sees them as a pet essentially still
+is surprised cause in her imagination she's the one that goes on the attack
+goes back in
 Not giving much time to her thoughts and wanting to check back in with Trouble they return to find them on the floor
+{more scene please}
+Trouble POV
+follow Brun back downstairs to check when Debug will next be on shift
+see she's been taken off all the shifts and the roster entierly
+Brun says she had a weird call from Beth about debug going missing
+but that taking them off all shifts is a bit much
 
 ##  Act 2 arcs
 

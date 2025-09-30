@@ -14,15 +14,13 @@ So I've started fresh, [writing from chapter 1](https://github.com/RobbingSpree/
 Current length of rehash:
 
 act 1 planning complete (10 chapters) 27000-ish words
-- 5 chapter(s) complete. (1-5)
-- 5 chapter pending upload (6-10)
-intermission
-- 3 short chapter/scenes planned (10.1-10.3)
-act 2 planning in progress 5000-ish words
-- 1 chapter in editing hell (11)
-- 1 chapter being written (12)
+- 5 chapter(s) complete. (1-8)
+- 5 chapter pending upload (9-10.5)
+act 2 planning in progress 13000-ish words
+- 1 chapter in editing hell (11-15)
+- 1 chapter being written (16)
 
-Total length: 32,000-ish words
+Total length: 42,000-ish words
 
 | Chapter        | approx length | chapter Progress | POVs included | running total |
 | -------------- | ------------- | ---------------- | ------------- | ------------- |
@@ -48,7 +46,7 @@ Total length: 32,000-ish words
 approx. page length (assuming the average page length of 275 words per page): 133
 
 Latest posted chapter:
-7
+8
 to:
 Royal Road: https://www.royalroad.com/fiction/129272/her-love-makes-safe-harbors
 Wattpad: https://www.wattpad.com/myworks/395478580-her-love-makes-safe-harbors
