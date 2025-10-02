@@ -37,11 +37,11 @@ She answered.
 
 "Furtive? Have you been reading Beth's stories?"
 
-"Shut it. Eyes on me and focus. Crimes are serious business, and while this technically isn't a crime cause you live here Cuddlepot and you asked me to do this. We don't want to look suspicious and get the cops called on us." Debug turned in their seat to face the pair in the back. "I'll head over, pick the lock, open the door, then signal you two to come over. Then we grab everything on our list and bolt back to the car. Trouble, you stay somewhere central so we can find and ask you were to find something ASAP. Don't grab anything, just tell us to do it." Felicity had to wonder just how many times Debug had been forced to do this sort of thing before to have this sensible a plan ready at the drop of a hat.
+"Shut it. Eyes on me and focus. Crimes are serious business, and while this technically isn't a crime cause you live here Cuddlepot and you asked me to do this. We don't want to look suspicious and get the cops called on us." Debug turned in their seat to face the pair in the back. "I'll head over, pick the lock, open the door, then signal you two to come over. Then we grab everything on our list and bolt back to the car. Trouble, you stay somewhere central so we can quickly ask you were to find something. Don't grab anything, just tell us to do it." Felicity had to wonder just how many times Debug had been forced to do this sort of thing before to have this sensible a plan ready at the drop of a hat.
 
 Barely waiting for her response, Debug leapt out of the car and strode across the quiet street to that blue door.
 
-The street felt unnaturally quiet, but for someone who had been a homebody for the last few years, she didn't know how the street naturally looked at this time of day. She was normally asleep. Frank had barely been staying at her house before she'd escaped, and for his own debt problems he couldn't afford to skip work. So with no sign of his car they were hopefully safe from him for now.
+It felt unnaturally quiet, but for someone who had been a homebody for the last few years, she didn't know how the street naturally looked at this time of day, she was normally asleep around now. Frank had barely been staying at her house before she'd escaped, and for his own debt problems he couldn't afford to skip work. So with no sign of his car they were hopefully safe from him for now.
 
 Trouble couldn't see what Debug was up to, but in what seemed like no time she had the front door open and was beckoning for everyone else to follow.
 
@@ -49,7 +49,7 @@ Once out of the car, Brun hurried around to her side and helped lead her over th
 
 Her home and prison looked cold and empty, all the lights off and the early morning light creeping through the windows up its walls. Debug was standing in the doorway with a handful of blue stuff.
 
-"Disposable gloves, you said he had police contacts so I found these under your bathroom sink. Let's not give them anything to use to find us." They held a hand full of gloves she recognized out.
+"Disposable gloves, you said he had police contacts so I found these under your bathroom sink. Let's not give them anything to use to find us." They held a hand full of gloves she recognized buying out.
 
 Trouble could sense how well Brun and Trouble worked together, they never stood too close to the other or got in one another's way as they essentially danced around a house they'd never been in before. She felt a twinge of jealousy of how in sync the two were, she had never had that with anyone before, if she excluded Frank and her Dad where she made herself as small as possible in their presence so they'd never notice her.
 
@@ -91,7 +91,7 @@ Brun paused for a moment, taking in the streets and the cramped close rows of ho
 
 "Before Beth separates us for good, you mean?"
 
-"I didn't mean that..." She could hear Dee being bitter about the news. "We can always hang out outside of work, you know. We don't have to be just work friends." She had tried in the past to get Debug to spend time with her outside the rigid structure and responsibilities of their jobs, but had gotten incredibly sick that whole week instead. Dee hadn't believed her excuses and they was nothing if not a solid example of the saying 'once bitten twice shy'.
+"I didn't mean that..." She could hear Dee being bitter about the news. "We can always hang out outside of work, you know. We don't have to be just work friends." She had tried in the past to get Debug to spend time with her outside the rigid structure and responsibilities of their jobs, but had gotten incredibly sick that whole week instead. Dee hadn't believed her excuses and they were nothing if not a solid example of the saying 'once bitten twice shy'.
 
 "Being on opposite shifts doesn't help. I looked forward to any time I had a shift following yours so I could enjoy the handover window with you. It was the highlights of my week." Debug was being a lot more forthcoming with conversation than they normally were, maybe this was how they were when tired. "Trouble really is out of it back here...are we just gonna let her sleep...is she asleep?"
 
@@ -132,7 +132,7 @@ She reached the car, and opened Trouble's door to find them still dozing and cov
 
 "Yep, I had Brun drive cause I was as close to a nap as you were." Lightly pulling on their sleeve to remind them they needed to get out of the car. "Let's put you to bed first."
 
-Trouble stumbled out of the car, drew themselves to their full height, slouched again and trudged towards the door. Debug took a few quick steps to catch up and trudged alongside them. The hint of early morning sunlight failing to cast any shadows as they trudged in unison through the car park.
+Trouble stumbled out of the car, drew themselves to their full height, slouched again and trudged towards the door. Debug took a few quick steps to catch up and walked alongside them. The hint of early morning sunlight failing to cast any shadows as they shuffled in unison through the car park.
 
 The reception was empty as they reached the main building, Debug's todo list pulled at her mind. She still needed to ask about the guy Beth had taken a photo of.
 
@@ -160,15 +160,15 @@ She tried to stop her body, have it listen to reason, anything but deepen the ki
 
 But she didn't listen to herself.
 
-The soft sensation of their continued kiss continued.
+The soft sensation of their kiss continued.
 
 Trouble wrapped an arm around her and made a desperate noise into her mouth.
 
 This was apparently something Trouble needed too. 
 
-Debug was sure they'd be sharp and painful to hold close, but instead they shockingly fit into her embrace very well.
+Debug was sure Trouble would be sharp and painful to hold close, all bones and knobby bits. But instead, they shockingly fit into her embrace very well.
 
-She was sure she was just playing stand-in for Brunhilde and Trouble was also her stand-in for the tall dark lady she crushed on too.
+She was sure she was just playing stand-in for Brunhilde but Trouble was also her stand-in for the tall dark lady she crushed on, so they were probably even.
 
 Her hand on Trouble's chest pushed a little harder and cause them to lean further and further back making the kiss easier to deepen.
 

@@ -8,11 +8,11 @@ Brun was familiar with this sensation of exhaustion, just yesterday she'd dragge
 
 She had sent Debug back to the car to fetch Trouble quite a while ago. And the longer she waited, the more likely she'd just go to sleep first. It wasn't that she didn't trust Debug, more that she knew how exhausted they were and was a bit worried they might not have made it all the way to the car without needing a sit down.
 
-Leaving Trouble's room behind and walking the halls of the hotel again, she let her mind wonder. In the car ride back, Debug had been a lot more talkative than normal, and honest. While she couldn't tell when Debug lied, they seemed much too practiced at that, she could generally tell when they told the truth. What kind of life must they have lived where the truth was such a difficult topic to broach.
+Leaving Trouble's room behind and walking the halls of the hotel again, she let her mind wonder. In the car ride back, Debug had been a lot more talkative than normal, and honest. While she couldn't tell when Debug lied, they seemed much too practiced at that, she could generally tell when they told the truth. What kind of life must they have lived where the truth was such a difficult topic to broach?
 
-And as much as she claimed to understand Trouble, she had been purposefully ignoring their circumstances. Trying to leave them space to feel safe first, get comfortable and come to find here as a real home. But that also meant that she knew next to nothing about them. 
+And as much as she claimed to understand Trouble, she had been purposefully ignoring their circumstances. Trying to leave them space to feel safe first, get comfortable and come to find here as a real home. But that also meant that she knew next to nothing about them. Being polite had some downsides, it seemed. If she wanted progress with them she might have to pursue it and make them uncomfortable.
 
-As she had walked around their house, she had seen all sorts of signs of the people who lived there. Trouble's stuff was all easy to find since it was crammed into the corners of only a few rooms. You could see how little space she was trying to take up, in comparison she might find the room here at the hotel too sparse, open and barren to be comfortable in.
+As she had walked around their house, she had seen all sorts of signs of the people who lived there. Trouble's stuff was all easy to find since it was crammed into the corners of only a few rooms. They had an untouched bed and a couch that had they had been clearly sleeping on, everything they had taken out of the house had been well worn. You could see how little space she was trying to take up, in comparison she might find the room here at the hotel too sparse, open and barren to be comfortable in.
 
 Brun wondered if this sort of consideration was why Debug had kept her at arms length. Was she just that bad at accommodating the wants or needs of others? She hadn't been the one Trouble had actually asked for help about her work stuff. It had been the reliable one of the two of them.
 
@@ -22,15 +22,15 @@ The car sat empty.
 
 How could they have gotten lost?
 
-It's a pretty straight shot from Trouble's room to the reception, and with how tired Debug was, Brun could see no way for them not be found.
+It's a pretty straight shot from Trouble's room to the reception, and with how tired Debug was, Brun could see no way for them to not be found.
 
-Brun turned around and started to head back to where she came from. If she was also out and looking, they could find the room empty and set out in search for her. But as she got part way through the reception again she heard an odd noise.
+Brun turned around and started to head back to where she came from. If she was also out and looking, they could find the room empty and set out in search for her. But as she got part way back through the reception again she heard an odd noise.
 
 It sounded like someone struggling to lift or push something, like they were doing serious work. 
 
 But it came from behind the reception desk.
 
-Brun hadn't seen anyone at the desk so she assumed the currently on shift people were doing stuff elsewhere, the time right before dawn was a great time to get chores and tasks done around the hotel.
+Brun hadn't seen anyone at the desk, she assumed the currently on shift people were doing stuff elsewhere The time right before dawn was a great time to get chores and tasks done around the hotel.
 
 She backtracked a few steps, leaning to see if she could spot who was back there and what they were doing. If it wasn't anything serious she could ask for help finding Debug and Trouble.
 
@@ -66,15 +66,15 @@ She'd never felt like that with anyone before.
 
 That a love as tender and sweet would be given to her so readily. She had never even considered the possibility of pursuing women romantically, but that might have explained why she hadn't ever felt the desire to pursue men in that way when she was younger.
 
-Sure, she had felt it was unsafe to make friends because her dad had made spending time in her house unsafe and she couldn't trust he wouldn't hit any friends she was seen with like he did her. But the idea of romance had been one of her few escapes. A fantasy where someone would love her with no conditions. Likely affected by the stories her mom had read her while she was still alive, she had thought her only option was men.
+Sure, she had felt it wasn't possible to make friends because her dad had made spending time in her house unsafe and she couldn't trust he wouldn't hit any friends she was seen with. But the idea of romance had been one of her few escapes. A fantasy where someone would love her with no conditions or restrictions, likely affected by the stories her mom had read her while she was still alive. She had thought her only option was men, no one had said she was allowed to kiss women like that.
 
-Debug had stirred her heart awake, then reminded her she still needed to properly rest before doing a day of work and had run off to get a breakfast snack she could have once she woke back up for work.
+Debug had stirred her heart awake, then reminded her she still needed to properly rest before doing a day of work and had swiftly left and returned with a breakfast snack she could have once she woke back up for work.
 
-They had stayed behind saying they needed to get started on submitting a restraining order. But they'd follow soon and that Brunhilde had organized something that might help with getting to sleep. Trudging back to her room alone wasn't what she wanted to do, she wanted more gentle touches. But time alone with her thoughts was probably what she needed.
+They had stayed behind saying they needed to get started on submitting a restraining order. But they'd follow soon and that Brunhilde had organized something that might help with getting to sleep. Trudging back to her room alone wasn't what she wanted to do, she wanted more gentle caresses. But time alone with her thoughts was probably what she needed.
 
 Walking up to her room's door she saw it open and the lights off. Peering into the dimly lit room from the bright hallway she could see what Debug had tried to describe.
 
-Brunhilde was walking towards her, having just looked up from pacing the room, gesturing behind her to the enormous bed the room had. They had arranged some extra blankets and pillows to turn the whole bed into some kind of giant, soft bird nest. They must have thought she enjoyed sleeping in the armchair at Brun's apartment last night, and she had, but the real detail that relaxed her was Brun being in the next room. Being so close.
+Brunhilde was walking towards her, having just looked up from pacing the room, gesturing behind her to the enormous bed the room had. They had arranged some extra blankets and pillows to turn the whole bed into some kind of giant, soft bird nest. They must have thought she enjoyed sleeping in the armchair at Brun's apartment last night, and she had, but the real detail that relaxed her was Brun being in the next room. Being so close. Close enough to keep her safe.
 
 Trouble put the small plate of food down on the kitchen counter and walked over to the bed. She hadn't enjoyed the bed much before, it was enormous compared to the couch she normally slept on at home. Climbing on with hands and knees she was reaffirmed in her opinion, this bed was much too big for one person.
 
@@ -108,9 +108,9 @@ Since Trouble barely had a pair of her own she was a bit unfamiliar with the sof
 
 Through Debug's shirt and bra she could feel an erratic heartbeat. She shuffled forward to try the same things they had done for her minutes ago and gently bonked foreheads together. 
 
-Over a few minutes Debug's heartbeat became less panicked and her grip on Trouble's arm loosened. They stopped making sad and pained noises like an apologetic puppy too.
+Over a few minutes Debug's heartbeat became less panicked and her grip on Trouble's arm loosened. They stopped making sad and pained noises like an apologetic puppy and their face relaxed again.
 
-She heard Brun shift behind her. She knew Brun was a deep sleeper, so they would probably be fine. But as she thought that, Brun's arm flopped over and landed on her hip with a slap that made them yelp. 
+She heard Brun shift behind her. She knew Brun was a deep sleeper, so they would probably be fine. But as that thought crossed her mind, Brun's arm flopped over and landed on her hip with a slap that made them yelp. 
 
 Bringing her hand back from Debug's cheek, she tried to lift Brun's arm off them. They could probably relax and get to sleep with Debug holding one arm hostage, but this was a lot more stimulating.
 
@@ -124,15 +124,13 @@ She didn't know it was something she had wanted.
 
 She didn't know it was something she was allowed to want.
 
-Since both the other ladies were asleep she couldn't exactly ask them either.
+Since both the other ladies were asleep she couldn't exactly ask them about it either.
 
-Was she selfish? Was enjoying this touch wrong?
-
-Would they hate her for taking pleasure from them being this close.
+Was she selfish? Was enjoying this touch wrong? Would they hate her for taking pleasure from them being this close.
 
 Brun's hand slid up from her hips, over her belly and up near her chest.
 
-She let out another pained noise. She wanted more.
+She let out another pained noise. She wanted more. 
 
 Brun held her close again, this time pulling her torso towards Brun's. She could feel the same softness her right arm could on her back now. She could feel Brun's breath on her neck. 
 
@@ -140,7 +138,7 @@ She had seen how tightly Brun had held a pillow when she slept last night. Was t
 
 "Brunhilde, can you let me go? I won't be able to sleep like this, it's too much excitement." 
 
-Trouble couldn't hear the response, but she could feel it. Brun was speaking directly into her skin, she could feel the gentle touches of lips against her neck. It was a lot of stimulation for such a small touch. Unable to move she wriggled to try and shimmy free, only to become very aware how close her rear was to Brun. Seemingly in response to her movement, Brun thrust their hips forward pressing into Trouble.
+Trouble couldn't hear the response, but she could feel it. Brun was speaking directly into her skin, she could feel the gentle touches of lips against her neck. It was a lot of stimulation for such a small touch. Unable to move she wriggled to try and shimmy free, only to become very aware how snugly her rear was to Brun's hips. Seemingly in response to her movement, Brun thrust their hips forward pressing into Trouble.
 
 More noises escaped from Trouble's lips.
 

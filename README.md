@@ -14,10 +14,10 @@ So I've started fresh, [writing from chapter 1](https://github.com/RobbingSpree/
 Current length of rehash:
 
 act 1 planning complete (10 chapters) 27000-ish words
-- 5 chapter(s) complete. (1-8)
-- 5 chapter pending upload (9-10.5)
+- 8 chapter(s) complete. (1-8)
+- 3 chapter pending upload (9-10.5)
 act 2 planning in progress 13000-ish words
-- 1 chapter in editing hell (11-15)
+- 5 chapter in editing hell (11-15)
 - 1 chapter being written (16)
 
 Total length: 42,000-ish words

@@ -10,7 +10,7 @@ She didn't know how much time had passed, but she rarely slept longer than a few
 
 Taking her time to crawl down and out the bottom of the bed. She didn't know how much weight she could put on her broken arm, and didn't want to test it. As such, she felt like she moved at a glacial pace. 
 
-Once free of the bed Trouble took stock of the room. The clothes Brun and Debug had brought were all in a messy pile in a shelf of the wardrobe, nearby was a manila folder she didn't recognize that when opening she found all her important documents. Over on the countertop near the kitchenette she found her laptop, drawing tablet and what looked like every cable and accessory that was at her desk.
+Once over the wall of pillows Brun had built and free of the bed Trouble took stock of the room. The clothes Brun and Debug had brought were all in a messy pile in a shelf of the wardrobe, nearby was a manila folder she didn't recognize that when opening she found all her important documents. Over on the countertop near the kitchenette she found her laptop, drawing tablet and what looked like every cable and accessory that was at her desk.
 
 Grabbing the laptop, she scanned the room looking for a comfortable spot to sit down and start her work day.
 

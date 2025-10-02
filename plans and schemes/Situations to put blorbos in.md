@@ -19,7 +19,7 @@ Stuck in a cuddle that turns out to be uncomfortable, have to strip to leave beh
 Debug wants to try BDSM as a way to face her abusive past in a controlled way
 has to convince either Trouble or Brun that it's a good idea
 
-Brun gets a little too hung up on 3 hour foreplay workouts
+Brun gets a little too hung up on 3 hour foreplay workouts, she doesn't like letting other people be the top so she wants to see where the line in the sand is for letting someone else be in charge
 
 Trouble is a bit too into lip play and kissing
 

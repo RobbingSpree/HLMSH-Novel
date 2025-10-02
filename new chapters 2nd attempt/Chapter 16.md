@@ -22,4 +22,4 @@ Trouble wasn't difficult to find, they had ended up on the ground next to the be
 
 They sat in silence Brun petting the form in her lap, Trouble started to relax and doze off while Brun tried to have more dirty thoughts. 
 
-"What was so different about that than when I was imagining stuff before?"
+"What was so different about that than when I was imagining stuff before?" She mused. "Also, I missed. How did I miss? I tried to imagine Debug coming for me, and instead I..." In the utter darkness she knew she was blushing but was glad no one could see.
