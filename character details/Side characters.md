@@ -28,7 +28,7 @@ Absent so far, but from what Brun says in chapter 5, they're kind but harsh
 ## Daveo line cook
 The person Brun mistakes for Barry in chapter 5
 
-## Debug Police friend (Sioned Bruce)
+## Debug Police friend (Sinéad Bruce)
 
 about 40
 was a new procedural cop when they were part of Debug's case

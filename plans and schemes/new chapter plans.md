@@ -470,7 +470,6 @@ She had been avoiding actually thinking about stuff since she had some kind of m
 She tries imagining kissing Debug
 It's fine, cause she trusts her and knows her 
 is surprised cause in her imagination she's the one that goes on the attack
-goes back in
 Not giving much time to her thoughts and wanting to check back in with Trouble they return to find them on the floor
 {more scene please}
 Trouble POV
@@ -482,21 +481,30 @@ but that taking them off all shifts is a bit much
 ##  Act 2 arcs
 
 De and Fel hang out, no Brun
-De backstory
-De and Brun conflict, no fel
-Brun Backstory
-de gets blackmailed
-Beth backstory
-Brun and Fel investigate De vanishment, no de
+De meets old mom
+Fel discovers rage
+Brun tried to confront de, fails
+De is briefly kidnapped and assaulted and flees
+Brun mostly gets some of the idea to Fel
+Tries to check when De will be on shift next, roster now doesn't show de at all
+Tense few days pass
+Brun gets blackmailed to pick between giving up debug to keep Fel safe or leaving debug to Beth's eventual capture
 
 
 ## Act 3 arcs
 
-Debug reappears
+Debug reappears by contacting Beth via phone
+Debug tells them where to find a spare key for her apartment
+Brun keeps trouble on hand to keep her safe.
+Finds Debug's apartment trashed
+Get some more concrete details about Debug's past
+Reminded of the police lady trouble met recently 
+Contact Sinéad 
 downfall Frank planned
 Downfall beth planned
-lets live in a house together
+lets move out of the hotel cause tis not safe 
 break back into Fel's house
+Find debug already there
 Invite Sinéad to live with them as a way to keep their stalkers at bay
 Enact all downfalls
 Happy end
