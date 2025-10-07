@@ -28,5 +28,34 @@ They sat in silence Brun petting the form in her lap, their head resting on her 
 
 "What was so different about that than when I was imagining stuff before?" She mused. "Also, I missed. How did I miss? I tried to imagine Debug coming for me, and instead I..." In the utter darkness she knew she was blushing but was glad no one could see. "Maybe it's cause they're too cheeky, how can I get them to take the lead?" 
 
-Brun's mind cast back and immediately landed on Trouble kneeling over them and giving them attention like an enthusiastic puppy. She wasn't sure what they had meant
+Brun's mind cast back and immediately landed on Trouble kneeling over them and giving them attention like an enthusiastic puppy. She wasn't sure why they had gotten so upset about the whole situation. Sure, she had expected some pushback, maybe Trouble getting upset if she had talked about something as frivolous as sex and kissing with someone who'd been abused by the sort of person she would expect those things from.
 
+Instead she had gotten up in her face and scolded her for thinking poorly of herself. 
+
+"If it's so fine, then kiss me." Brun muttered, repeating what Trouble had said minutes ago. She looked down at the sleeping puppy in her lap, it's face serene and calm compared to how exhausted and upset they had looked when they woke up. The same, now mostly dried, streaks of tears still shone on their face, cutting into the layer of makeup on Trouble's cheek. Brun rubbed a thumb along the dried rivers, streaking the damp makeup and revealing some of Trouble's last bruises that had yet to fade.
+
+"You were so upset of my thinking poorly of my looks, I'd never seen you that angry. Why can you get angry for my sake but not your own?" Brun leaned her head down as far as she could and could only just put her lips on the top of Trouble's head. "I don't think this is what you meant when you said to kiss you."
+
+Brun did wonder how she would kiss Trouble. They were as short as Dee, so any intimate moment would be spoiled by Brun looming tall over the whole situation. But from how she had proven time after time, she could pick them up like a delicate puppy. What's to stop her from having her way with her Princess once she was trapped in her arms.
+
+She could hold them like now, in the crook of her arm. With her free hand, delicately run her finger tips from their hip up to their chest. The buttons on Trouble's shirt, spots of cold under the fingers, yielding to a small bit of pressure. She now had access to the delicate skin underneath. She could feel the tiny fuzz of body hair resisting her touch as she spread her fingers wide on Trouble's stomach. 
+
+Their calm heartbeat under her hand.
+
+As she dropped her hand lower she found their hip bone, sticking out against the flat expanse of their body. Brun hadn't taken a particularly long look at Trouble when she had first seen them naked and now regretted her unfamiliarity with her friend's body.
+
+Brun's breath quickened, the excitement of thinking about her friend starting to get to her.
+
+Her hand grazed against one of the bandaged.
+
+Brun opened her eyes.
+
+Her hand was all the way inside Trouble's shirt.
+
+She'd not been imagining anything.
+
+Her guts felt like they were trying to contain hundreds of butterflies. She couldn't stop feeling the excitement, the thrill of the physical closeness. But this was exactly the sort of thing she had been dreading happening to her.
+
+Brun retrieved her hand and put it back on Trouble's cheek.
+
+"Love, wake up, I need to ask you something."

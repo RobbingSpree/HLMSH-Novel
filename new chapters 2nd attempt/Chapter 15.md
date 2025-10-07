@@ -115,9 +115,9 @@ Brun was murmuring kind words into her hair and stroking her. Once again she had
 
 Trouble pulled themself together, aggressively ignoring the issues that weighed on their mind. She was quite often the one being supported, and now Brun needed help; so was determined to be the one to provide it. 
 
-"I'm not important right now." Trouble announced as they climbed out of Brun's lap and sat a polite distance from them. "What's bothering you?" Not know what to do with her hands, she placed them in her lap once she settled back on the edge of the bed. She could still feel echoes of her panic rattling around in her mind.
+"I'm not important right now." Trouble announced as they climbed out of Brun's lap and sat a polite distance from them. "What's bothering you?"   She could still feel echoes of her panic rattling around in her mind and seemingly wanting to escape through her fingers. Not know what to do with her hands, she placed them in her lap to mute their tingling sensations once she settled back on the edge of the bed. 
 
-"What...no..." Brun tried to argue, but when words failed her, they just ended up sitting in silence.
+"What...no..." Brun tried to argue, but when words failed her, they just ended up sitting in silence while Brun deflated.
 
 Trouble let the silence continue, she knew Brun had a bad habit of letting words fall out of her mouth, so if they were trying to avoid starting off on the wrong foot she would give them as much time as they needed. Instead she tried copying what Bug had done for her weeks ago and tried to breath in the most measured way possible.
 
@@ -145,9 +145,9 @@ Trouble realized Brun had stalled again and tried making another agreeing noises
 
 "I didn't mean...yeah this is fine, you're fine."
 
-"What if I'm in your lap?" Trouble asked, starting to lose grip on her line of questioning and mounting Brun's legs. She ended up half kneeling and half sitting while facing Brun looking slightly up into her eyes. If she had the courage to do this to Debug this would have been perfect height to push her down, but Brun's height had them almost at eye level.
+"What if I'm in your lap?" Trouble asked, starting to lose grip on her line of questioning and mounting Brun's legs. She ended up half kneeling and half sitting while facing Brun looking slightly up into her eyes. If she had the courage to do this to Debug this would have been perfect height to push her down, but Brun's height had them almost at eye level and Brun was much stronger than she was.
 
-Brun looked conflicted, but before Trouble to see deeper they were pulled into a hug and their head was guided down onto Brun's shoulder.
+Brun looked conflicted, but before Trouble could see deeper they were pulled into a hug and their head was guided down onto Brun's shoulder.
 
 "This is a great example. Normally I wouldn't think anything of that. I would just know you need physical closeness, like everyone needs." Trouble nodded as Brun continued, closing her eyes and focusing on their voice. "But a few weeks back I saw something, and now I keep worrying in doing stuff wrong or leading people on. And I'm a bit scared about it. I don't want to be the one to say, and I wanted to talk to Dee about this first, but I can't keep putting this discussion off."
 
@@ -173,13 +173,13 @@ Felicity broke free from Brunhilde's grip and knelt to look them in the eyes aga
 
 Felicity couldn't see Brunhilde's reaction to her words through the wall of tears that kept welling up.
 
-"I'm not going to force someone to kiss me to make a point." Brunhilde yelled. "This isn't a joke." Trouble could feel them leaning back, as though trying to escape. She didn't know what to do with these emotions, this fierce desire to protect. But how could she protect someone from themselves? How could she protect herself from those she didn't expect could hurt her?
+"I'm not going to force someone to kiss me to make a point." Brunhilde yelled. "This isn't a joke." Trouble could feel them leaning back, as though trying to escape. She didn't know what to do with these emotions, this fierce desire to protect, this crushing feeling of betrayal. But how could she protect someone from themselves? How could she protect herself from those she didn't expect could hurt her?
 
 Trouble felt themselves move before they understood what was happening.
 
 With a muffled thud Trouble put their hands on Brun's shoulders and pushed them down on the bed, her arm stinging as it suddenly had to take her weight. 
 
-"You! Are! The! Most! Beautiful! Woman! I have! Ever! Seen!" Trouble horsely shouted, punctuating each word with a kiss to Brunhilde's forehead or cheek. "Is it a problem for me to kiss you?" Trouble knew they sounded manic.
+"You! Are! The! Most! Beautiful! Woman! I have! Ever! Seen!" Trouble hoarsely shouted, punctuating each word with a kiss to Brunhilde's forehead or cheek. "Is it a problem for me to kiss you?" Trouble knew they sounded manic.
 
 "What has gotten into you? Where did this come from?" Brun tried preparing to dodge any more incoming kisses. 
 
@@ -187,7 +187,7 @@ With a muffled thud Trouble put their hands on Brun's shoulders and pushed them 
 
 "I don't think she's a slut. I just don't know what to think." Brun got their arms free and tried pushing Trouble off them.
 
-"Is it that she might kiss you? Do you think she'd take advantage of you? That she would attack you? Someone that scared of being seen, of having people know what they're thinking and feeling? Them?" Trouble realised they'd lost the plot and were just saying what she was concerned about.
+"Is it that she might kiss you? Do you think she'd take advantage of you? That she would attack you? Someone that scared of being seen, of having people know what they're thinking and feeling? Them?" Trouble realized she'd lost the plot and were just saying what she was concerned about.
 
 If she was finding anxiety relief in kisses, who's to say Debug didn't also need that. For all she knew, she had been the one to show her it's effectiveness.
 
