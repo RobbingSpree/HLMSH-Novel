@@ -28,3 +28,5 @@ They sat in silence Brun petting the form in her lap, their head resting on her 
 
 "What was so different about that than when I was imagining stuff before?" She mused. "Also, I missed. How did I miss? I tried to imagine Debug coming for me, and instead I..." In the utter darkness she knew she was blushing but was glad no one could see. "Maybe it's cause they're too cheeky, how can I get them to take the lead?" 
 
+Brun's mind cast back and immediately landed on Trouble kneeling over them and giving them attention like an enthusiastic puppy. She wasn't sure what they had meant
+

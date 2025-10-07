@@ -9,7 +9,7 @@ Debug felt like her childhood self all over again, cuff marks and all.
 
 The familiar bite of metal into her wrists, the same powerless situation of needing to play possum to bore her captor, the same odd choice to trap her somewhere underground.
 
-One thing that her poor upbringing had given her of value: narrow wrists. Once Beth had decided they were satisfied, they'd taken a few more photos and left. Then having waited dozens of minutes in silence; confident Beth wouldn't come right back Debug stood back up, wriggled free of the low handcuff and picked the high one with a pick sewn into her shirt hem. 
+One thing that her poor upbringing had given her that she did appreciate: narrow wrists. Once Beth had decided they were satisfied, they'd taken a few more photos and left. Then having waited dozens of minutes in silence; confident Beth wouldn't come right back Debug stood back up, wriggled free of the low handcuff and picked the high one with a pick sewn into her shirt hem. 
 
 She couldn't consider herself paranoid if it had worked and she'd been right to be concerned. A trick she had wished she'd had as a child now earned her freedom as what some would describe as an adult. She had never wished to be put in this sort of situation again, but when she was tormented by her memories at night she would try to think how she could have maybe escaped sooner back then.
 
@@ -19,7 +19,7 @@ Some of Beth's words that they'd spat at her while attacking her made her whole 
 
 She vaguely recalled being sold several times by her mother to older men to have her first time. The fact it had all been a scam back then was what had helped her get tools to mentally overcome that trauma. Sinéad had told her she wasn't over it, that she still needed to go to therapy, but they weren't the one who had to deal with it all every day, they didn't get to decide how she felt.
 
-Sinéad had tried to be helpful, she knew that logically. But Debug didn't need more women claiming the title of her mother. So she had pushed them away, and then run away rather than ask for help.
+Sinéad had tried to be helpful, she knew that logically. But Debug didn't need more women claiming the title of her mother. So she had pushed them away, and then ran away rather than ask for help.
 
 The corridor she had been trapped in was half underground, with windows at a normal person's shoulder height right but right at ground level outside. Debug's escape planning was interrupted by the mental image of punching the windows out and crawling through the broken glass to freedom. 
 
@@ -31,7 +31,7 @@ Or that was the plan, anyway.
 
 Actually getting up and out was a challenge, and the rough bricks she had to slide over with only mangled and cut up clothes to protect her skin meant that she did end up getting cut up regardless. It was all good until she had to commit to pulling herself with her arms and not standing on the rail. As soon as her chest had all her weight on it and her noodly, weak arms were the only thing lifting her above the punishing stone and concrete, that was when her brain's desire to punish her for getting caught up in this mess kicked into overdrive.
 
-The need to somehow cleanse or overwrite the harm someone else did with worse harm she could do. Debug knew it was mad, knew if she said it aloud to anyone they would try to get her committed to an asylum. But it worked. No one could claim to own or control her with threats of violence if she could threaten herself with worse violence.
+The need to somehow cleanse or overwrite the harm someone else did with worse harm she could do. Debug knew it was mad, knew if she said it aloud to anyone they would try to get her committed to an asylum. But it worked. As twisted an idea as it was, no one could claim to own or control her with threats of violence if she could threaten herself with worse violence.
 
 Her stomach and hips got the worst deal out of the struggle. Countless grazes and small cuts decorated her skin, but the thrill of once again besting some controlling freak and showing what real pain was ran through her veins and leaked from her skin.
 
@@ -43,7 +43,7 @@ The shim she had used all that time ago was still hidden in a bush near the car,
 
 Thankfully it was a warm night, so Debug barely noticed she was mostly naked as she streaked towards freedom.
 
-Trying to make no noise as she pitter patted to a halt next to the dilapidated vehicle. With swift practice she fetched the shim, jammed it through the gap in the driver side window and pulled the latch open. Making sure not to be too hasty and attract attention, Debug sat in the car and pulled the door closed, pulling again until it made the sound of the latch closing all the way.
+Trying to make no noise as she pitter patted to a halt next to the dilapidated vehicle. With swift practice she fetched the shim, jammed it through the gap in the driver side window and pulled the latch open. Making sure not to be too hasty and attract attention, Debug sat in the car and gently pulled the door closed, pulling again until it made the sound of the latch closing all the way.
 
 In the front passenger seat, right where she had left them weeks prior, was her lockpick set.
 
@@ -75,11 +75,11 @@ The readout on the phone said it was Manager Beth's number.
 
 "But you think she would call me?" There was only one conclusion she could come to after what she had seen tonight. "Did you two have a fight?"
 
-As suddenly as the conversation started, it stopped. The call ended and Brun was left with only questions.
+As suddenly as the conversation started, it stopped. The call ended and Brun was left with only questions and confusion. Was Debug in danger, or were they just steering clear of Beth?
 
 ***
 
-Felicity woke with a start, the darkness clawing at her and the sensation of someone looking over her weighing on her mind.
+Felicity woke with a start, the darkness clawing at her and the sensation of someone looking down on her weighing on her mind.
 
 She tried to sit up, but she couldn't find the edge of the couch.
 
@@ -105,21 +105,21 @@ As she struggled to right herself and find a way to defend against her assailant
 
 The haze of fear in Trouble's mind faded. She had simply forgotten where she was.
 
-Without the wall of fear keeping her emotions from spilling forth tears and apologies flowed in equal measure.
+Without the wall of fear keeping her emotions from spilling forth, tears and apologies flowed in equal measure.
 
-Brun picked her up, carrying her like a delicate princess. She normally felt so safe in their arms, but right now she just felt broken. Even with weeks of safety and reassurance, all it took was a moment of sleep addled confusion for her to lose herself to panic.
+Brun picked her up, carrying her like a delicate princess. She normally felt so safe in their arms, but right now she just felt broken. Like a clockwork machine with too many faults, she might be fine for a while, but eventually all her problems would overlap and she'd fall apart like this again. Even with weeks of safety and reassurance, all it took was a moment of sleep addled confusion for her to lose herself to panic.
 
 Brun was murmuring kind words into her hair and stroking her. Once again she had been saved by her friends.
 
 "Sorry for bursting in, I forgot to knock." Brun said after Trouble had calmed down entirely. "I have had a few things on my mind recently and jumped the gun." Despite her calm demeanour, Brun felt on edge. Their movements felt robotic and forced.
 
-Trouble pulled themself together, aggressively ignoring the issues that weighed on their mind. She was quite often the one being supported, and now Brun needed help; so was determined to be the one to provide it.
+Trouble pulled themself together, aggressively ignoring the issues that weighed on their mind. She was quite often the one being supported, and now Brun needed help; so was determined to be the one to provide it. 
 
-"I'm not important right now." Trouble announced as they climbed out of Brun's lap and sat a polite distance from them. "What's bothering you?" Not know what to do with her hands, she placed them in her lap once she settled back on the edge of the bed.
+"I'm not important right now." Trouble announced as they climbed out of Brun's lap and sat a polite distance from them. "What's bothering you?" Not know what to do with her hands, she placed them in her lap once she settled back on the edge of the bed. She could still feel echoes of her panic rattling around in her mind.
 
 "What...no..." Brun tried to argue, but when words failed her, they just ended up sitting in silence.
 
-Trouble let the silence continue, she knew Brun had a bad habit of letting words fall out of her mouth, so if they were trying to avoid starting off on the wrong foot she would give them as much time as they needed.
+Trouble let the silence continue, she knew Brun had a bad habit of letting words fall out of her mouth, so if they were trying to avoid starting off on the wrong foot she would give them as much time as they needed. Instead she tried copying what Bug had done for her weeks ago and tried to breath in the most measured way possible.
 
 Brun walked over to the door and closed it, and sat back down in the dark a little closer but still at what Trouble would call a polite distance. As the silence stretched, Trouble's eyes adjusted and she could make her friend's outline in the dark.
 
