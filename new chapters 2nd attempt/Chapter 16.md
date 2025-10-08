@@ -58,4 +58,12 @@ Her guts felt like they were trying to contain hundreds of butterflies. She coul
 
 Brun retrieved her hand and put it back on Trouble's cheek.
 
-"Love, wake up, I need to ask you something."
+"Love, wake up, I need to ask you something." Brun whispered, half not wanting Trouble to wake up and the rest giddy with excitement. "If you wake up I'll give you a kiss."
+
+Trouble stirred and looked up at Brun, once their eyes locked Trouble reached up a hand to mirror Brun and caress their cheek also. They stretched their body and neck to raise their lips to meet Brun's as through doing such a thing was the most normal thing in the world.
+
+Trouble held the kiss for longer than Brun could count, her heart hammering hard enough she was sure Trouble could feel it. For how rough so many parts of Trouble looked from all her cuts and bruises, her lips were very soft.
+
+Trouble moved their hand, hooking around Brun's neck and keeping them close. For a heart renching moment, Brun through Trouble was done and they were going to break the kiss, she didn't realise how much fun she was having and she'd not even tried using her hands again. But as Trouble deepened the kiss and leaned harder into Brun's chest they started pulling down on Brun's neck as though dragging her deeper into the lust filled haze that was filling her mind.
+
+Trouble tried to run their hands through Brun's hair and ran into the problem that to keep all her braids in a neat bun they were all quite taught and didn't have the slack to let fingers in. For some reason that complexity 
