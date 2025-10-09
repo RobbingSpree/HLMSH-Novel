@@ -35,11 +35,11 @@ Possibly against their better judgement, Debug had put shoes and socks on Troubl
 
 She had tried asking Trouble some follow up questions as they walked, talking quietly so as not too seem suspicious. But all they got in response was more quiet muttering. Yet they could walk normally through the hotel without issue.
 
-So they hesitantly traveled on. Once they got outside: Trouble suddenly screamed and Debug almost let go of their hand. It took a moment for more muttering, much louder now to fill Debug in.
+So they hesitantly traveled on. Once they got outside: Trouble suddenly started screaming and Debug almost let go of their hand. It took a moment for more muttering, much louder now to fill Debug in.
 
 "The wind is so loud on my skin." They repeated several times. Which gave Debug more clues, but ultimately answered nothing. It was clearly some kind of dissociative episode and while she felt the right thing to do was not leave Trouble cooped up in their room she had no better ideas on how to help ground them.
 
-Up until now and except for their first, all of their kisses had been something Trouble asked for. She couldn't in good conscience try to give them one now to help ground them when they were seemingly unable to acknowledge their surroundings or control what they said and what they kept to themselves. And foolishly, she'd not tried pursuing anything else that might work as a grounding ritual. That would have to be something they worked toward on a later date.
+Up until now and except for their first, all of their kisses had been something Trouble asked for. She couldn't in good conscience try to give them one now to help ground them when they were seemingly unable to acknowledge their surroundings or control what they said and what they kept to themselves. And foolishly, she'd not tried pursuing anything else that might work as a grounding ritual in the last few weeks. That would have to be something they worked toward after today.
 
 They'd needed help to make the step into the bus, but once lead to a seat they easily sat down. When they had sat down they briefly let go of their hand to change how they held, only for Trouble to aggressively seek them back out and entwine their fingers together. 
 
@@ -51,7 +51,7 @@ Trouble made an affirmative noise in response carried by the wind trying to push
 
 Stumbling inside, she lead her duckling off to the side into the home appliances section. Finding a corner with a bare wall, she shuffled Trouble such their back was against the wall and tried to force them to meet her gaze.
 
-"Black Swan, you with me? You've been a bit scattered since I did your make up. You ok we made it here?" Trying to not take up much space nor draw attention to their gathering in the corner, Debug stood quite close. The many intimate moments they'd spent together had worn down the distance she felt she needed to keep Trouble at, and with them as vunerable as they currently seemed that distance shrunk further. "Actually, you've not seen what you look like with your new hair colour yet, have you?" They ran a hand through Trouble's short and now deep dark blue hair, before realizing this was the same sort of move she'd seen Brun do and began wondering if Brun knew how easily such actions would make a short lesbian like her heart flutter.
+"Black Swan, you with me? You've been a bit scattered since I did your make up. You okay we made it here?" Trying to not take up much space nor draw attention to their gathering in the corner, Debug stood quite close. The many intimate moments they'd spent together had worn down the distance she felt she needed to keep Trouble at when calm, and with them as vulnerable as they currently seemed that distance shrunk further. "Actually, you've not seen what you look like with your new hair colour yet, have you?" They ran a hand through Trouble's short and now deep, dark blue hair. It took a moment before she realized this was the same sort of move she'd seen Brun do a dozen times to Trouble and began wondering if Brun knew how easily such actions would make a short lesbian like her heart flutter with excitement and if she could keep a straight face if they got any ideas to try and extend the same physical intimacy to her.
 
 Trouble would be fine with something like that from herself, they obviously didn't swing that way. Further evident by them shutting their eyes tightly and looking pained. Debug gave them space again, waiting for them to open their eyes again. Kicking themself mentally for hoping Trouble only looked pained due to actual pain and not repulsion from their touch.
 
@@ -65,19 +65,19 @@ Walking through the car park had been very grounding, focusing on all the sensat
 
 When they had gotten inside and Debug had pushed her against the wall, Trouble could only think this was it. That she had somehow let slip that she felt more than respect for their friend, that they might need to wear some of the clothes they would buy out of the store. Especially fresh underwear.
 
-They'd closed their eyes, expecting the next thing they would feel would be the familiar gentleness of lips pressed against lips. Of the same hunger that filled her daydreams of when they had first shared a kiss.
+They'd closed their eyes, expecting the next thing they would feel would be the familiar gentleness of lips pressed against lips and the same hunger that filled her daydreams of when they had first shared a kiss.
 
 But instead Debug teased her. Gotten close enough she could feel their breath on her skin, and instead of kissing Trouble, they had run a hand through her hair and complimented their new look. Before walking off and leaving them unsatisfied.
 
 Now minutes later, standing amongst the shirts and tops, they couldn't think of anything that wasn't Bug's hands on their body. Not helping in this matter, Bug kept on bringing clothes up to them, pressing the garment against them, letting skin touch skin with their hands against her bare shoulder. Trouble had never been much of a physical affection person before, but this felt like a step beyond teasing. A hunger she didn't know was real had awoken in her and here was her friend taunting her with a taste, tantalizing her even.
 
-"Yeah, I think this would look good on you. Does you like how it feels?" Bug once again came close enough to grab to taunt her, holding a shirt up in a fist to gently lean against her cheeks. The urge to simply lean into that touch, to grab their hand and hold it close, to return the gesture. 
+"Yeah, I think this would look good on you. Do you like how it feels?" Bug once again came close enough to grab to taunt her, holding a shirt up in a fist to gently lean against her cheeks. The urge to simply lean into that touch, to grab their hand and hold it close, to return the gesture. 
 
 It felt unfair that she was the only one affected by this.
 
 "Actually..." Trouble interrupted, blindly grabbing a garment off the rack. "I think you'd look cute in this. I've got enough to try one a few, do you wanna come with me to the change rooms and we'll give it a go? See if it fits." Trouble had no plan, but if she could put the idea of herself taking off clothes into Bug's mind they might be on even footing.
 
-"Sure, that looks comfy. I think there's a giant sign on the wall saying the change rooms are over there." They said, pointing behind them. "We don't have unlimited time so we should start making some choices in case they give us a time limit soon."
+"Sure, that looks comfy. I think there's a giant sign on the wall saying the change rooms are over there." They said pointing behind them, seemingly unphased. "We don't have unlimited time so we should start making some choices in case they give us a time limit soon."
 
 Bug took her hand again and lead her off.
 
@@ -91,15 +91,15 @@ Now in the confined space together, and with Ruth having closed the curtain behi
 
 "We look like sisters?" She asked, genuinely confused.
 
-"Well...here comes stand next to me and look in the mirror." Debug said, beckoning them closer.
+"Well...here come stand next to me and look in the mirror." Debug said, beckoning them closer.
 
 Trouble stepped next to her friend, again noting how similar in height and build they were. Debug had a bit more muscle on her, with legs that looked lean and capable and arms that had a shape to them beyond skeletal. Looking in the mirror, Trouble gasped.
 
-She saw, two women with similar shaped and coloured eyes, the same mussed up dark with a sheen of blue hair, the same height, and very similar skin tones. Bug had a multitude more freckles, a gentle progression of spots that covered her nose, cheeks, forehead and ran down her neck. The normal equivalent Trouble was used to seeing, all her bruises were gone. Hidden under the makeup she now worse. 
+She saw, two women with similar shaped and coloured eyes, the same mussed up dark with a sheen of blue hair, the same height, and very similar skin tones. Bug had a multitude more freckles, a gentle progression of spots that covered her nose, cheeks, forehead and ran down her neck. The normal equivalent Trouble was used to seeing on herself, all her bruises, were gone. Politely hidden under her makeup. 
 
-When she looked at Bug she saw a beautiful woman, and next to them looked someone who must be beautiful too, due to looking just like them.
+When she looked at Bug she saw a beautiful woman, confident and defiant. They didn't look how actors looked beautiful, but there was something about them, something she trusted, that shone like light to her. And next to them looked someone who must be beautiful too, due to looking just like them.
 
-"That's me?" She asked in disbelief, running a hand through her hair and watching it move in the reflection.
+"That's me?" She asked in disbelief, running a hand through her hair and watching the reflection copy her movements..
 
 "Yeah, I told you I thought the colour would look good on you." They said, playfully mussing up Trouble's hair further.
 

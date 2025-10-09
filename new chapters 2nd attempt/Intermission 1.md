@@ -30,7 +30,7 @@ Debug insists
 
 "Then...if they knew you at the start and call you by the first part of your name...I'll call you Bug cause we met at the end of my struggles." Trouble tried to smile reassuringly at Bug.
 
-"We'll probably still have struggles, but you're not struggling alone anymore."
+"We'll probably still have more struggles, but you're not struggling alone anymore."
 
 ---
 
@@ -46,7 +46,7 @@ Brunhilde questions
 
 "The complaints from that morning were from people who got blasted by the flood lights being turned on. But that was something Miss Nolas'nam did with Manager Beth. I thought you'd be across that."
 
-"No, this was about something later, during your shift. A bit of a delicate matter..." Brun tried to ask the question with her eyebrows suddenly shy about asking Gary directly and a little ashamed she didn't have the confidence to talk to Dee herself about the matter.
+"No, this was about something later, during your shift. A bit of a delicate matter..." Brun tried to ask the question with her eyebrows, now suddenly shy about asking Gary directly and a little ashamed she didn't have the confidence to talk to Dee herself about the matter.
 
 "Delicate...?" Gary looked clueless for a moment before realization spread over his face. "Right! Yeah, she's done stuff like that before, not sure why she likes announcing it like that."
 
@@ -80,10 +80,10 @@ It was reassuringly solid and real. It filled her senses. Let her relax and let 
 
 She knew other people might think her odd, to want to use so much of her room at floor level or curled in a ball. To struggle so hard just to struggle again in short order. To stay so low simply to avoid getting hurt from falling.
 
-But the moments when she let her friends into the space. When it safe to be standing, when she could be confidant she would be caught if she fell. It breathed new life into her.
+But the moments when she let her friends into the space. When it felt safe to be standing, when she could be confidant she would be caught if she fell. It breathed new life into her.
 
-After a week she had noticed something. A change. Her entire right forearm was blemish free.
+After a week she had noticed something. A change. Her entire right forearm was blemish and bruise free.
 
-She had averted her eyes from her own body so often in shame for how little everyone else and her treated her body. It was odd to be able to look at herself and see a person.
+She had averted her eyes from her own body so often in shame for how poorly she and everyone else treated her body. It was odd to be able to look at herself and see a person again.
 
 She hoped her new friends saw the same.
