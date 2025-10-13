@@ -96,9 +96,20 @@ Trying to get off the topic and talk about anything else, Brun tried to divert b
 
 "We did see her mom while we were out I think. She didn't seem to like talking to them, it was the most upset I've ever seen her." Trouble chirped up, Brun was unsure how to handle their moving on so quickly from her assault and committed to not bringing up what she'd done until Trouble was ready. "When is her next shift, she still needs to work right?"
 
-Brun nodded and strode to the door, her chest felt tight to not take Trouble's hand as she left.
+Brun nodded and strode to the door, her chest felt tight as she decided to not take Trouble's hand as they both left.
 
 ***
 
+Trouble was having a hard time taking the current situation seriously.
 
+What Brun had said did sound serious, but all she had running through her head was the feeling of being wrapped in Brun's arms and waking up somehow already kissing.
 
+How could she have missed the most important part? Where she found out that Brun was gay.
+
+Trouble came to a sudden stop, almost tumbling over. Brun kept walking, so she was unable to stand still while she combed through her memories. Brun had mentioned having boyfriends before, and they had kissed just her. But gay people didn't have boyfriends...except she had also had a boyfriend. 
+
+Trouble knew she was still sleep addled, but her mind was doing it's best to come to terms with if she could be confident that wasn't just a very wonderful one-of-a-kind kiss. Could she just ask Brun for a second one to compare? She couldn't actually be that selfish, but it would be fine to imagine. 
+
+As they got to the reception 
+
+Brun nodded at the person wearing the reception staff uniform and pushed the chef looking 
