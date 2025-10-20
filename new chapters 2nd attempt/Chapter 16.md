@@ -30,7 +30,7 @@ They sat in silence Brun petting the form in her lap, their head resting on her 
 
 Brun's mind cast back and immediately landed on Trouble kneeling over them and giving them attention like an enthusiastic puppy. She wasn't sure why they had gotten so upset about the whole situation. Sure, she had expected some pushback, maybe Trouble getting upset with her if she had talked about something as frivolous as sex and kissing with someone who'd been abused in related acts.
 
-Instead she had gotten up in her face and scolded her for talking poorly of herself.
+Instead she had gotten up in her face and scolded her for talking poorly of herself and saying that kisses weren't an option among friends.
 
 Brun tried to comprehend the idea of being worth getting mad on her behalf. It just felt wrong, like trying to spell a word without vowels: it would be possible but inherently wrong.
 
@@ -66,7 +66,7 @@ Trouble stirred and looked up at Brun, once their eyes locked Trouble reached up
 
 Trouble held the kiss for longer than Brun could count, her heart hammering hard enough she was sure Trouble could feel it. For how rough so many parts of Trouble looked from all her cuts and bruises, her lips were very soft.
 
-Trouble moved their hand, hooking around Brun's neck and keeping them close. For a heart retching moment, Brun through Trouble was done and they were going to break the kiss, she didn't realize how much fun she was having and how desperately she didn't want this to stop, she'd not even tried laying her hands on Trouble now she was awake. But as Trouble deepened the kiss and leaned harder into Brun's chest they started pulling down on Brun's neck as though dragging her deeper into the lust filled haze that was filling her mind.
+Trouble moved their hand, hooking around Brun's neck and keeping them close. For a heart retching moment, Brun through Trouble was done and they were going to break the kiss, she didn't realize how much fun she was having and how desperately she didn't want this to stop, she'd not even tried laying her hands on Trouble now she was awake. But as Trouble deepened the kiss and leaned harder into Brun's chest they started pulling down on Brun's neck as though dragging her deeper into the lust coloured haze that was filling her mind.
 
 Trouble tried to run their hands through Brun's hair and ran into the problem that to keep all her braids in a neat bun they were all quite taught and didn't have the slack to let fingers in. For some reason that complication broke her focus and the kiss finally broke, a line of saliva still connected their lips as they panted at one another.
 
@@ -90,13 +90,13 @@ Trying to get off the topic and talk about anything else, Brun tried to divert b
 
 "Beth said Dee might be in trouble."
 
-"In me?" Trouble asked, clearly confused. 
+"In me?" Trouble asked, clearly confused and half asleep.
 
 "No, like danger. I don't think anyone's seen her since you two came back from your night out. Beth was at her house and I think she said it looked abandoned." Brun tried to keep her emotions under control, unsure what Trouble could see.
 
-"We did see her mom while we were out I think. She didn't seem to like talking to them, it was the most upset I've ever seen her." Trouble chirped up, Brun was unsure how to handle their moving on so quickly from her assault and committed to not bringing up what she'd done until Trouble was ready. "When is her next shift, she still needs to work right?"
+"We did see her mom while we were out I think. She don't seem to like talking to them, it was the most upset I've ever seen her." Trouble chirped up, Brun was unsure how to handle their moving on so quickly from her assault and committed to not bringing up what she'd done until Trouble was ready. "When is her next shift, she still needs to work right?"
 
-Brun nodded and strode to the door, her chest felt tight as she decided to not take Trouble's hand as they both left.
+Brun nodded and strode to the door, her chest felt tight as she decided to not take Trouble's hand as they both headed out the door.
 
 ***
 
@@ -110,6 +110,22 @@ Trouble came to a sudden stop, almost tumbling over. Brun kept walking, so she w
 
 Trouble knew she was still sleep addled, but her mind was doing it's best to come to terms with if she could be confident that wasn't just a very wonderful one-of-a-kind kiss. Could she just ask Brun for a second one to compare? She couldn't actually be that selfish, but it would be fine to imagine. 
 
-As they got to the reception 
+As they got to the reception Trouble recognised one of the two people behind the desk as Daveo, the chef who kept trying to sneak fruit onto her plate when she ate in the dining area.
 
-Brun nodded at the person wearing the reception staff uniform and pushed the chef looking 
+Brun nodded at the person wearing the reception staff uniform and pushed Daveo's head against the wall in an oddly playful manner.
+
+"Hollow, just as I expected." Brun taunted.
+
+"Two to one odds you can't do bring yourself to do that to your small friend here." Daveo bit back. "Get your twenty bucks back if you've got the nerve."
+
+Brun beckoned Trouble to join the three of them behind the desk.
+
+Trying to not look as small as possible like her instincts where shouting at her to do, Trouble walked and stood next to Brun, unsure if they might actually hurt her.
+
+Brun suddenly lent against the wall next to Trouble's head making her jump, their arm wrapping around her head from the side to the top. Brun leant in and gave Trouble a gentle light kiss on their forehead and then using their chin pushed her head against the wall so that it makes a small bonk noise.
+
+"Okay, thirty bucks if you do the same thing to me." Daveo said, eyes lighting up like he'd just discovered a new toy.
+
+"I'm done with kisses now, it's just biting from here on. And I only do services for guests, you're out of luck Daveo. Maybe ask Guy here if he'll be your partner." Brun pointed a thumb at the concierge staff who was turning incredibly red and was both unable to look at and keep their eyes off Daveo. "Anyway. Come on Trouble, the roster is here."
+
+Brun lead Trouble further into the back room, somewhere she'd spent very little time despite Bug inviting Trouble to sit with her while she worked every weekend. With the practice of someone who knew their way around a space 

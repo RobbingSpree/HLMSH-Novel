@@ -9,7 +9,9 @@ Debug felt like her childhood self all over again, cuff marks and all.
 
 The familiar bite of metal into her wrists, the same powerless situation of needing to play possum to bore her captor, the same odd choice to trap her somewhere underground.
 
-One thing that her poor upbringing had given her that she did appreciate: narrow wrists. Once Beth had decided they were satisfied, they'd taken a few more photos and left. Then having waited dozens of minutes in silence; confident Beth wouldn't come right back Debug stood back up, wriggled free of the low handcuff and picked the high one with a pick sewn into her shirt hem. 
+One thing that her poor upbringing had given her that she did appreciate: narrow wrists. Once Beth had decided they were satisfied, they'd taken a few more photos and left. Then having waited dozens of minutes in silence, confident Beth wouldn't come right back, Debug stood back up and wriggled free of the low handcuff and picked the high one with a pick sewn into her shirt hem. 
+
+When she was still living with Sinéad, they had mentioned it as a thing some people she arrested had done to be able to escape custody. When Sinéad had shown her what she started to 
 
 She couldn't consider herself paranoid if it had worked and she'd been right to be concerned. A trick she had wished she'd had as a child now earned her freedom as what some would describe as an adult. She had never wished to be put in this sort of situation again, but when she was tormented by her memories at night she would try to think how she could have maybe escaped sooner back then.
 
@@ -149,7 +151,7 @@ Trouble realized Brun had stalled again and tried making another agreeing noises
 
 Brun looked conflicted, but before Trouble could see deeper they were pulled into a hug and their head was guided down onto Brun's shoulder.
 
-"This is a great example. Normally I wouldn't think anything of that. I would just know you need physical closeness, like everyone needs." Trouble nodded as Brun continued, closing her eyes and focusing on their voice. "But a few weeks back I saw something, and now I keep worrying in doing stuff wrong or leading people on. And I'm a bit scared about it. I don't want to be the one to say, and I wanted to talk to Dee about this first, but I can't keep putting this discussion off."
+"This is a great example. Normally I wouldn't think anything of that. I would just know you need physical closeness, like everyone needs." Trouble nodded as Brun continued, closing her eyes and focusing on their voice. "But a few weeks back I saw something, and now I keep worrying in doing stuff wrong or leading people on. And I'm a bit scared about it. I don't want to be the one to say, and I wanted to talk to Dee about this first, but I can't keep putting this discussion off. I don't want people to think my actions a re driven by lust."
 
 Brun took a shaky breath.
 
@@ -185,7 +187,7 @@ With a muffled thud Trouble put their hands on Brun's shoulders and pushed them 
 
 "How do is this different from Debug kissing someone else? Is it different if you think they're a slut?" Trouble's voice wavered and broke as she tried not to yell but she had so much emotions trying to escape it was hard to think.
 
-"I don't think she's a slut. I just don't know what to think." Brun got their arms free and tried pushing Trouble off them.
+"I don't think she's a slut. I just don't know what to think." Brun got their arms free and tried pushing Trouble off them. "I'm just scared."
 
 "Is it that she might kiss you? Do you think she'd take advantage of you? That she would attack you? Someone that scared of being seen, of having people know what they're thinking and feeling? Them?" Trouble realized she'd lost the plot and were just saying what she was concerned about.
 

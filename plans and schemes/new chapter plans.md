@@ -478,6 +478,10 @@ see she's been taken off all the shifts and the roster entierly
 Brun says she had a weird call from Beth about debug going missing
 but that taking them off all shifts is a bit much
 
+## Future chapter stuff
+Check in with Debug, the car is out of gas and she doesn't have access to money she can trust
+
+
 ##  Act 2 arcs
 
 De and Fel hang out, no Brun
