@@ -42,16 +42,16 @@ Total length: 42,000-ish words
 | 14             | 2700          | Written          | De, Brun      | 39.3k         |
 | Attack 1       | 800           | Written          | De            | 40.1k         |
 | 15             | 2800          | Written          | De, Fel       | 42.9k         |
-| 16             |               | Planning         | Brun          |               |
+| 16             | 2600          | Written          | Brun, Fel     | 45.4k         |
+| 17             |               | Planning         |               |               |
+| 18             |               | Planning         |               |               |
 approx. page length (assuming the average page length of 275 words per page): 133
 
 Latest posted chapter:
-8
+Intermission 1
 to:
 Royal Road: https://www.royalroad.com/fiction/129272/her-love-makes-safe-harbors
-Wattpad: https://www.wattpad.com/myworks/395478580-her-love-makes-safe-harbors
 ScribbleHub: https://www.scribblehub.com/series/1708024/her-love-makes-safe-harbors/
-Inkitt: https://www.inkitt.com/stories/1537962
 
 Synopsis:
 

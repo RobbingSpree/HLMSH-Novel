@@ -124,8 +124,26 @@ Trying to not look as small as possible like her instincts where shouting at her
 
 Brun suddenly lent against the wall next to Trouble's head making her jump, their arm wrapping around her head from the side to the top. Brun leant in and gave Trouble a gentle light kiss on their forehead and then using their chin pushed her head against the wall so that it makes a small bonk noise.
 
+There was a moment of tense silence.
+
 "Okay, thirty bucks if you do the same thing to me." Daveo said, eyes lighting up like he'd just discovered a new toy.
 
-"I'm done with kisses now, it's just biting from here on. And I only do services for guests, you're out of luck Daveo. Maybe ask Guy here if he'll be your partner." Brun pointed a thumb at the concierge staff who was turning incredibly red and was both unable to look at and keep their eyes off Daveo. "Anyway. Come on Trouble, the roster is here."
+"I'm done with kisses now, it's just biting from here on. And I only do services for guests, you're out of luck Daveo. Maybe ask Guy here if he'll be your partner." Brun pointed a thumb at the concierge staff who was turning incredibly red and was somehow both unable to look at and keep their eyes off Daveo. "Anyway. Come on Trouble, the roster is here."
 
-Brun lead Trouble further into the back room, somewhere she'd spent very little time despite Bug inviting Trouble to sit with her while she worked every weekend. With the practice of someone who knew their way around a space 
+Brun lead Trouble further into the back room, somewhere she'd spent very little time despite Bug inviting Trouble to sit with her while she worked every weekend. With the practice of someone who knew their way around a space they managed to wade through the narrow room and it's multitude of knee high cabinates and bent at the hips to do something with the computer. Trouble couldn't tell what Brun was doing as she couldn't take her eyes of their bum.
+
+Brun had been the picture of stoic and serious until tonight, she couldn't even fathom thinking about her like this. But the longer she gazed at the perfectly round bum on the lady in front of her the brighter the memory of Brun standing frozen wearing naught but two hard working towels burned in her mind. She could see it so vividly: the droplets of water glistening and beading down her perfect skin.
+
+"Trouble?" Brun's voice broke through her stupor.
+
+"Please." Trouble's mouth said before she knew what was going on.
+
+"What?"
+
+"Who said that?"
+
+"...I said Dee's been taken off the roster."
+
+"What?" Trouble's mind ground to a halt as Brun's words fell like a wrench amongst her mind's gears.
+
+"Dee's not on the roster. She's no anywhere." Brun pointed at the screen, Trouble craning her neck to see around her friends rear. "Well she is still in a few systems, but if she had left on her own terms she would have deleted or changed the admin accounts she had all over the system." Brun stood back up to her full height and grabbed Trouble. "I don't know what's happening any more. But I think something is wrong."
