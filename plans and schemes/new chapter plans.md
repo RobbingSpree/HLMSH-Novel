@@ -330,7 +330,7 @@ Debug: closed off
 Fel: Live wire
 
 
-# Intermission
+# Intermission 1
 Some short chapters filling the 2 week gap between act 1 and 2
 
 Debug and Trouble pick a nickname for Debug, settle on Bug, chat about both having no boob compared to Brun
@@ -378,6 +378,16 @@ see own reflection
 almost forget they wanted to make Debug feel as bad as they did
 
 **maybe have a Brun scene at the end? About wondering why Trouble went**
+
+## Intermission 2
+Another set of small scene fitting in the time skip gap between chapter 12 and 13
+
+Felicity psyches herself up for practicing putting on makeup to hide her bruises
+She considers herself (Felicity) and how others see her and how she seems to behave around them (Trouble) to be different personalities.
+
+Brun panics about people getting too close or handsy as she has a bad experience with a guest
+
+Trouble worries about how to express herself and her emotions
 
 # [[Chapter 13]]
 A few days pass, trouble goes out with both others once and becomes a bit more comfortable with existing out and about

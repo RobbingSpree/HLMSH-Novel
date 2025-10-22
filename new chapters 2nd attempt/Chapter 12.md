@@ -173,5 +173,7 @@ A familiar sensation of overwhelming emotion bubbled up, but rather than the ove
 
 She had been wrong this whole time.
 
-She wasn't disgusting to look at. 
+She wasn't disgusting to look at or inherently flawed in a way everyone else but she could see.
+
+She tried holding back the tears to not ruin her makeup, Debug just walked over and held her and let her cry into their shoulder.
 
