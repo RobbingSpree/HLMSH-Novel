@@ -105,7 +105,7 @@ Brun paused for a moment, taking in the streets and the cramped close rows of ho
 
 "Dee...I hate to say it...but we're adults. We're the ones with a job and career prospects and bills."
 
-"Ohh." Bee's voice was very quiet, like she had honestly not thought about this before. "Never thought I'd be an adult..." Brun didn't know what that meant, but also didn't want to say anything stupid to upset them. So instead tried to divert the conversation to her next step.
+"Ohh." Dee's voice was very quiet, like she had honestly not thought about this before. "Never thought I'd be an adult..." Brun didn't know what that meant, but also didn't want to say anything stupid to upset them. So instead tried to divert the conversation to her next step.
 
 "I'm tired as fuck, and I don't want to have to go home just to get a solid nap in, and my sleep schedule is already shot to hell." She could probably justify her idea more, but it would feel like making excuses after any more. "I'm gonna sleep in Trouble's room, just have a casual sleep over. I asked her on the drive to her place and it was one of the few questions she answered clearly."
 
