@@ -1,4 +1,5 @@
 Felicity does her best
+
 ***
 Felicity stood and stared at her reflection.
 
@@ -40,7 +41,7 @@ Were they encouraging this? Were they the reason it was happening somehow? Was t
 
 Brun tried to calm herself, to let go of her fury and smother her revulsion.
 
-Was this just something only she disliked? Was she the weird one for getting upset over this? She couldn't talk to Dee about this, she was afraid how she'd act. She couldn't talk to Trouble about it, she knew they'd had bad intimate experiences in the past, that much was as clear as the marks on their skin.
+Was this just something only she disliked? Was she the weird one for getting upset over this? She couldn't talk to Dee about this, she was afraid how she'd act or what she'd say. She couldn't talk to Trouble about it, she knew they'd had bad intimate experiences in the past, that much was as clear as the marks on their skin.
 
 She just felt trapped and alone.
 
@@ -50,3 +51,28 @@ Trouble wants release
 
 ***
 
+Trouble felt like she could breath.
+
+Actually relax and breath, the anxiety that she didn't realize had been her constant companion was almost non-existent today.
+
+She didn't want to dwell in self reflection at all, but in the same breath it was something she realized she desperately wanted. 
+
+Her anxiety and fear had always felt like some powerful creature, prowling and lying in wait, keen to punish her for reaching too far beyond it's awareness. But with how Brun and Bug treated her, how safe they made her feel, it was like she was slowly poisoning her anxiety. Each kiss she savored was like a stake driven through it's heart, and while that wasn't fatal for such a all consuming thing as anxiety...it was making a mark.
+
+She knew that with time she'd feel suffocated and withdrawn again.
+
+But this moment of release, she felt it could give her the strength to stand up on her own power.
+
+In the vacuum that her anxiety left, that peace started to fill up with other emotions.
+
+What had been a fragile peace was starting to ring louder and louder.
+
+The further reaches of her room felt more and more dangerous.
+
+The creature in her heart stirred.
+
+She wanted to be free of it. She deserved to live free of this.
+
+Retreating back into the safest corner of her room, collapsing between the bed and the curtains, drawing her focus in, she tried to think of things that gave her strength.
+
+For a moment, she thought of herself.

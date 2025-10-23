@@ -39,7 +39,7 @@ Rather than continue to be tormented by their thoughts, they were interrupted by
 
 "Want me to fix you some breakfast? I'm not expecting any thing to happen at the front desk till the shift swap happens at six." Brun asked, trying to be helpful like she normally was.
 
-"Sure, anything fried and a tall juice will help. And don't look at this computer unless you want to see how you look from behind at three different angles." Beth said as she leaned around the door frame. "The overhead camera makes everyone look bad." Pointing at what Beth had assumed was a light fighting that was never turned on above and behind where she stood at the reception.
+"Sure, anything fried and a tall juice will help. And don't look at this computer unless you want to see how you look from behind at three different angles." Beth said as she leaned around the door frame. "The overhead camera makes everyone look bad." Pointing at what Beth had assumed was a light fitting that was never turned on above and behind where she stood at the reception.
 
 ***
 

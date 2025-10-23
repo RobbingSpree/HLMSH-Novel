@@ -13,44 +13,47 @@ So I've started fresh, [writing from chapter 1](https://github.com/RobbingSpree/
 
 Current length of rehash:
 
-act 1 planning complete (10 chapters) 27000-ish words
-- 8 chapter(s) complete. (1-8)
-- 3 chapter pending upload (9-10.5)
-act 2 planning in progress 13000-ish words
-- 5 chapter in editing hell (11-15)
-- 1 chapter being written (16)
+act 1 publishing complete (10 chapters) 27000-ish words
+- 10 chapter(s) complete. (1-10)
+- Intermission 1 complete (1)
+act 2 writing in progress 13000-ish words
+- 2 chapters complete (11-12)
+- 5 chapter in editing hell (13-16, + intermission 2)
+- 1 chapter being written (17)
 
 Total length: 42,000-ish words
 
-| Chapter        | approx length | chapter Progress | POVs included | running total |
-| -------------- | ------------- | ---------------- | ------------- | ------------- |
-| 1              | 2700          | released         | Brun, Fel     | 2.7k          |
-| 2              | 2900          | released         | Brun, Fel     | 5.6k          |
-| 3              | 3100          | released         | Brun, Fel     | 8.7k          |
-| 4              | 2900          | released         | De, Brun, Fel | 11.6k         |
-| 5              | 3100          | released         | De, Brun, Fel | 14.7k         |
-| 6              | 2300          | released         | De, Fel       | 17k           |
-| 7              | 2600          | released         | Brun, Fel, De | 19.6k         |
-| 8              | 2600          | pending          | Brun, Fel, De | 22.2k         |
-| 9              | 2000          | pending          | Brun, Fel     | 24.2k         |
-| 10             | 2700          | pending          | Brun, Fel, De | 26.9k         |
-| Intermission 1 | 1300          | Written          | Fel, brun     | 28.2k         |
-| Act            | 1             | Complete         | Yay           | Woo           |
-| 11             | 2900          | Written          | Fel, De       | 31.1k         |
-| 12             | 2100          | Written          | Fel, De       | 33.2k         |
-| 13             | 3400          | Written          | Brun, Fel     | 36.6k         |
-| 14             | 2700          | Written          | De, Brun      | 39.3k         |
-| Attack 1       | 800           | Written          | De            | 40.1k         |
-| 15             | 2800          | Written          | De, Fel       | 42.9k         |
-| 16             | 2600          | Written          | Brun, Fel     | 45.4k         |
-| 17             |               | Planning         |               |               |
-| 18             |               | Planning         |               |               |
-approx. page length (assuming the average page length of 275 words per page): 133
+| Chapter        | approx length | chapter Progress | POVs included  | running total |
+| -------------- | ------------- | ---------------- | -------------- | ------------- |
+| 1              | 2700          | released         | Brun, Fel      | 2.7k          |
+| 2              | 2900          | released         | Brun, Fel      | 5.6k          |
+| 3              | 3100          | released         | Brun, Fel      | 8.7k          |
+| 4              | 2900          | released         | De, Brun, Fel  | 11.6k         |
+| 5              | 3100          | released         | De, Brun, Fel  | 14.7k         |
+| 6              | 2300          | released         | De, Fel        | 17k           |
+| 7              | 2600          | released         | Brun, Fel, De  | 19.6k         |
+| 8              | 2600          | released         | Brun, Fel, De  | 22.2k         |
+| 9              | 2000          | released         | Brun, Fel      | 24.2k         |
+| 10             | 2700          | released         | Brun, Fel, De  | 26.9k         |
+| Intermission 1 | 1300          | released         | Fel, brun      | 28.2k         |
+| Act            | 1             | released         | Yay            | Woo           |
+| 11             | 2900          | pending          | Fel, De        | 31.1k         |
+| 12             | 2100          | pending          | Fel, De        | 33.2k         |
+| Intermission 2 | 700           | In Progress      | Fel, Brun, Fel | 33.9k         |
+| 13             | 3400          | Written          | Brun, Fel      | 37.3k         |
+| 14             | 2700          | Written          | De, Brun       | 40.0k         |
+| Attack 1       | 800           | Written          | De             | 40.8k         |
+| 15             | 2800          | Written          | De, Fel        | 43.6k         |
+| 16             | 2600          | Written          | Brun, Fel      | 46.2k         |
+| 17             |               | In Progress      |                |               |
+| 18             |               | Planning         |                |               |
+approx. page length (assuming the average page length of 275 words per page): 168
 
-Latest posted chapter:
+Latest posted chapter: 
 Intermission 1
-to:
+
 Royal Road: https://www.royalroad.com/fiction/129272/her-love-makes-safe-harbors
+
 ScribbleHub: https://www.scribblehub.com/series/1708024/her-love-makes-safe-harbors/
 
 Synopsis:
