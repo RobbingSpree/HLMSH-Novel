@@ -18,10 +18,10 @@ act 1 publishing complete (10 chapters) 27000-ish words
 - Intermission 1 complete (1)
 act 2 writing in progress 13000-ish words
 - 2 chapters complete (11-12)
-- 5 chapter in editing hell (13-16, + intermission 2)
+- 5 chapter in editing hell (Intermission 2, 13-16)
 - 1 chapter being written (17)
 
-Total length: 42,000-ish words
+Total length: 46,000-ish words
 
 | Chapter        | approx length | chapter Progress | POVs included  | running total |
 | -------------- | ------------- | ---------------- | -------------- | ------------- |
