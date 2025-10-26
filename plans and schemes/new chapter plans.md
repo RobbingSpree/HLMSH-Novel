@@ -488,6 +488,26 @@ see she's been taken off all the shifts and the roster entierly
 Brun says she had a weird call from Beth about debug going missing
 but that taking them off all shifts is a bit much
 
+## chapter 17
+Debug POV
+Escaping in car
+Get new clothes from charity bin
+Sees how bad she's been injured
+Dumps car in random residential street
+Finds place to hide
+Comes to conclusion she is to blame for her problems 
+Worries about being able to stay away despite pain
+Just wants to be safe
+Brun POV
+Is mad
+She knows something is wrong but doesn't know what
+Doubles back to hotel to check for if Debug took their stuff
+On the way out thinks the car would help and doesn't see it
+Assumes Beth is driving it looking for Debug
+Remembers seeing Beth leave on foot in the security footage 
+Has a lead
+
+
 ## Future chapter stuff
 Check in with Debug, the car is out of gas and she doesn't have access to money she can trust
 
