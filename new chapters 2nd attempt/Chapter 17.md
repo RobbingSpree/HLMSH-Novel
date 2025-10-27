@@ -94,11 +94,84 @@ Brun stared at her like she had grown a second head.
 
 "Honestly I don't think the police would care, nor do I think they could do a good enough job to find Dee!" Brun shouted, getting louder and louder as she went.
 
-"What about her mom?"
-
-Brun did a literal double take. Trouble had never seen someone actually do that outside of a cartoon.
+"What about her mom?" In response Brun did a literal double take. Trouble had never seen someone actually do that outside of a cartoon.
 
 "Her WHAT?" Brun sat down where she stood, apparently unable to comprehend that Debug had family.
 
+"Yeah, I met her yesterday while we were on a date." Trouble ommited her own collapse as it was clearly not as serious. "Bug said they were a Sargent. Sargent Sinéad...umm Bruce?" Brun just sat there with her mouth open blinking and making a lot of different expressions that all were different kinds of confused or contemplative. "She said she worked at the head office."
+
+"The state branch of the police have their office here." Brun interjected, finally coming out of her stupor. "We'll call and ask her if she knows where Dee goes to hide."
+
+A quick visit back inside the hotel to use the computer later, Trouble was listening to the dial tone of the reception phone as Brun had put it on speaker.
+
+"New South Wales Police, how many I direct you call?" The voice over the phone answered. Trouble was impressed with their dedication but did wonder if Sinéad would be up this early.
+
+"Hi, I'm calling to talk to a Sargent Sinéad Bruce about her daughter." Trouble asked, very used to making cold phone calls to strangers for work.
+
+"One sec, Sargent Bruce isn't at her desk, let me see if she left anything about this." The police receptionist sounded like they were typing, Trouble hoped they were actually looking stuff up and not just making noises before saying no. "Ohh an old one. Ok, can I get your name?"
+
+"Trou-...Felicity Harbour." Felicity corrected. She could feel Brun giving her a look, but she was too anxious to find out what it was and just hoped things were fine. "We met the other day at the mall, her daughter introduced me as Princess."
+
+"Okay, one sec while I check with her." The phone started playing the same song every government hold line played, for once Trouble didn't try to dance to it.
+
+"I forgot that was you name." Brun's voice came as a hushed whisper. Trouble turned to look at her and saw a silly smile on their face, she let go of a breath she didn't realise she was holding. "And Dee called you Princess too? What, was it her turn to use the brain cell that day?"
+
+"One sec..." The police receptionist said, interrupting the music and their chat. "I'm just going to connect you now."
+
+Tense moments passed as the phone made several concerning noises the Trouble could hope it was supposed to make while making a call transfer.
+
+"Hello? You there?" A familiar voice spoke through the phone in Bug's style of authoritative speaking.
+
+"Hi, Sinéad, we met the other day."
+
+"Get to the point, you have something about Deborah?" The emotion in their voice impossible to discern over the phone.
+
+"Brun?"
+
+"Right, yeah. I'm Debug's coworker her boss just called me in a panic saying something had happened to her from what I can gather she has her lock picks and a car, is there anywhere you know she would go if she was in trouble?" Brun sped through her explanation suddenly looking a lot more concerned again.
+
+A silence hung in the air, disturbed only by Sinéad making thinking noises over the phone.
+
+"Her boss? What exactly did they say?" Sinéad asked after a long pause.
+
+"They called from her house-"
+
+"No they didn't." Sinéad interjected. "Deh, hates people getting in her space."
+
+"Why would they lie about that? And they kinda bragged about it too." Trouble watched Brun lose control of the conversation in the same way she knew Bug had tried to control the other day.
+
+"Do you know somewhere Debug would go to be alone that isn't her house, Sargent?" Trouble interjected trying to steer them back onto the original topic.
+
+"Hang on, I'm getting in my car. You lot work at the hotel on George St? I'll be there in five minutes." The phone call ended quite suddenly. 
+
+Trouble was not sure she had made the right decision.
+
+***
+
+Brun already knew why she had never heard of Debug's mom before now, they were a bit of an asshole.
+
+It hadn't taken an entire five minutes before they could hear the siren and Sinéad tore into the packing lot. She had swiftly taken over Brun's investigation, but was cut short when trying to go through the security footage the system seized up and finished the automated deletion of the month's worth of security tapes, or as Beth liked to call it: Deep Storage. She had often said that if the cops wanted their footage they could do whatever fancy tech they had access to to peel the data back off it.
+
+Sinéad, had swore loudly, but ultimately just started investigating personally rather than rely on the tapes.
+
+Burn had shown her were the car normally sat and that it was empty, and one of the few things she had managed to show her (and reaffirm for herself) was Beth leaving on foot.
+
+"There's a pile of shims in the bush?" Sinéad asked, she asked a lot more questions that Dee, but got essentially the same conclusions. 
+
+"Yeah, when we first got the car we didn't have keys for it so Dee would use those to unlock it to test if the remote she made would work. Or if she misplaced the remote after getting it to work." Brun answered, she was having fun telling Dee's mom stories about her daughter she didn't know.
+
+"So even if she didn't have the car's keys, she could make this go?"
+
+"Yeah, I even got good at it, that car was very easy to hot wire. She was going to teach you next Trouble." Brun pulled Trouble closer as she spoke to her, not comfortable with letting them stray too far away.
+
+"And the blood?" Sinéad asked matter-of-factly.
+
+"The what?" Brun dragged Trouble over as she strode next to Sinéad. 
+
+On the ground she could see a lot of dark spots on the ground she would have assumed were just dirt. But they reflected the light differently.
+
+Sinéad followed the trail back to one of the walls of the hotel.
+
+"I lose the trail over here. But either Deh took an injured person with her, or she's injured." Sinéad stood back up to her full height, almost reaching Brun's chest. "Get in the car, more eyes will help. There's a bunch nch of flashlights in the backseat."
 
 

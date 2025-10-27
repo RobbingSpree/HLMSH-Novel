@@ -23,30 +23,31 @@ act 2 writing in progress 13000-ish words
 
 Total length: 46,000-ish words
 
-| Chapter        | approx length | chapter Progress | POVs included  | running total |
-| -------------- | ------------- | ---------------- | -------------- | ------------- |
-| 1              | 2700          | released         | Brun, Fel      | 2.7k          |
-| 2              | 2900          | released         | Brun, Fel      | 5.6k          |
-| 3              | 3100          | released         | Brun, Fel      | 8.7k          |
-| 4              | 2900          | released         | De, Brun, Fel  | 11.6k         |
-| 5              | 3100          | released         | De, Brun, Fel  | 14.7k         |
-| 6              | 2300          | released         | De, Fel        | 17k           |
-| 7              | 2600          | released         | Brun, Fel, De  | 19.6k         |
-| 8              | 2600          | released         | Brun, Fel, De  | 22.2k         |
-| 9              | 2000          | released         | Brun, Fel      | 24.2k         |
-| 10             | 2700          | released         | Brun, Fel, De  | 26.9k         |
-| Intermission 1 | 1300          | released         | Fel, brun      | 28.2k         |
-| Act            | 1             | released         | Yay            | Woo           |
-| 11             | 2900          | pending          | Fel, De        | 31.1k         |
-| 12             | 2100          | pending          | Fel, De        | 33.2k         |
-| Intermission 2 | 700           | In Progress      | Fel, Brun, Fel | 33.9k         |
-| 13             | 3400          | Written          | Brun, Fel      | 37.3k         |
-| 14             | 2700          | Written          | De, Brun       | 40.0k         |
-| Attack 1       | 800           | Written          | De             | 40.8k         |
-| 15             | 2800          | Written          | De, Fel        | 43.6k         |
-| 16             | 2600          | Written          | Brun, Fel      | 46.2k         |
-| 17             |               | In Progress      |                |               |
-| 18             |               | Planning         |                |               |
+| Chapter        | approx length | chapter Progress | POVs included       | running total |
+| -------------- | ------------- | ---------------- | ------------------- | ------------- |
+| 1              | 2700          | released         | Brun, Fel           | 2.7k          |
+| 2              | 2900          | released         | Brun, Fel           | 5.6k          |
+| 3              | 3100          | released         | Brun, Fel           | 8.7k          |
+| 4              | 2900          | released         | De, Brun, Fel       | 11.6k         |
+| 5              | 3100          | released         | De, Brun, Fel       | 14.7k         |
+| 6              | 2300          | released         | De, Fel             | 17k           |
+| 7              | 2600          | released         | Brun, Fel, De       | 19.6k         |
+| 8              | 2600          | released         | Brun, Fel, De       | 22.2k         |
+| 9              | 2000          | released         | Brun, Fel           | 24.2k         |
+| 10             | 2700          | released         | Brun, Fel, De       | 26.9k         |
+| Intermission 1 | 1300          | released         | Fel, brun           | 28.2k         |
+| Act            | 1             | released         | Yay                 | Woo           |
+| 11             | 2900          | released         | Fel, De             | 31.1k         |
+| 12             | 2100          | pending          | Fel, De             | 33.2k         |
+| Intermission 2 | 700           | pending          | Fel, Brun, Fel      | 33.9k         |
+| 13             | 3400          | pending          | Brun, Fel           | 37.3k         |
+| 14             | 2700          | pending          | De, Brun            | 40.0k         |
+| Attack 1       | 800           | pending          | De                  | 40.8k         |
+| 15             | 2800          | Written          | De, Fel             | 43.6k         |
+| 16             | 2600          | Written          | Brun, Fel           | 46.2k         |
+| 17             | 2600          | Written          | De, Brun, Fel, Brun | 48.8k         |
+| 18             |               | Planning         |                     |               |
+| 19             |               | Planning         |                     |               |
 approx. page length (assuming the average page length of 275 words per page): 168
 
 Latest posted chapter: 

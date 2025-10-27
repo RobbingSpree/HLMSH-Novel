@@ -506,10 +506,71 @@ On the way out thinks the car would help and doesn't see it
 Assumes Beth is driving it looking for Debug
 Remembers seeing Beth leave on foot in the security footage 
 Has a lead
+Trouble asks why they don't ask Debug's mom for help
+Trouble POV
+Call Debug's mom
+Lose control of call
+She decides it's serious and says she'll drive over
+They didn't say where they were
+Brun pov
+Brun knows why debug didn't mention her mom, she kinda a jerk
+But she does spot the blood debug left getting in the car
+Everyone gets in cop car
+
+## chapter 18
+Debug POV
+Woken up by business owner yelling at her for loutering
+Cold 
+Alone
+Scared
+In pain
+Big effort to get up
+Leaks against a bin and considers going somewhere else
+Trouble POV
+Talks to Sinéad
+It's now well into the day
+Tries to pry some older stories about debug from Sinéad
+Small fight between Brun and Sinéad about Debug's name
+Brun asks why she doesn't share a surname with debug while acting like her mom
+Sinéad pulls car over near a construction site
+They yell a bit more
+Fight interrupted by Trouble screaming 
+Trouble POV
+Gets out of car after Brun and tries to ask her if they can find somewhere else to fight
+Gets grabbed by Frank
+Gets dragged into construction site
+Lose sight of both Brun and Sinéad
+Has a knife held to her throat and told to be quiet
+Dragged into a dark corner where Frank pulls some zip ties off his belt and straps Felicity to the external scaffolding
+Monologues a little
+Somehow Debug comes out of nowhere and decks him with a length of wood
+Trouble sees the trail of blood leading to what was Debug's hiding spot
+Trouble screams as loud as she can to get Brun on the scene 
+
+## chapter 19
+
+Brun POV
+Running about the construction site, bunch of empty building and scaffolding
+Hears Trouble screams again
+Heads where she thinks she heard
+Starts following the way people are looking and comes to Sinéad trying to cuff Frank
+Brun sees both her friends in terrible states
+Brun screams and runs to Debug
+Sinéad freezes when she hears that and sees Brun run to what looks like a pile of dirt and cloth
+It's debug
+Cakes in loose dirt and next to the weapon she used
+Frank escapes
+Brun tears open Debug's shirt and sees a lot of injuries
+
+
+Find debug
+Have fight
+Debug collapses from blood loss and injuries and fever
+
 
 
 ## Future chapter stuff
-Check in with Debug, the car is out of gas and she doesn't have access to money she can trust
+
 
 
 ##  Act 2 arcs
