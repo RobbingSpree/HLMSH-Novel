@@ -86,7 +86,19 @@ It didn't seem like that was the case to Trouble. Debug in her mind was infallib
 
 Except...
 
-Except for the last date they'd been on...when Bug had been jumped by her mom. The police lady.
+Except for the last date they'd been on...when Bug had been jumped by her mom, the police lady.
 
 "Why don't we call the police?" Trouble asked
+
+Brun stared at her like she had grown a second head.
+
+"Honestly I don't think the police would care, nor do I think they could do a good enough job to find Dee!" Brun shouted, getting louder and louder as she went.
+
+"What about her mom?"
+
+Brun did a literal double take. Trouble had never seen someone actually do that outside of a cartoon.
+
+"Her WHAT?" Brun sat down where she stood, apparently unable to comprehend that Debug had family.
+
+
 

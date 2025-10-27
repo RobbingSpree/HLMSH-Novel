@@ -15,6 +15,10 @@ flaws:
 
 starting point of the story: neglectful of herself and overly focused on the wellbeing of others
 
+midpoint: panic about physical intimacy happening beyond her control and visceral dislike for unwanted advances
+
+end point: has a place to start being physically intimate with others and has started to open up about her anxieties 
+
 Appearance:
 Dark skin, a warm hazel tone with red undertones
 hair in tight long braids, kept in a bun on top of head

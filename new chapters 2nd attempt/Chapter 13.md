@@ -23,7 +23,7 @@ She had to assume Trouble was straight due to her long term boyfriend, so she wa
 
 From their observation, Brun was starting to see similarities between how Dee and Trouble behaved. What she had assumed was just Dee being cold and aloof the few years she had known them had a lot in common with how Trouble got agitated in open spaces or around specific noises like cupboards or latches being closed. But she had no idea what to do with these conclusions, did Debug appreciate the cavalier way Brun had treated them in the past? Did they like being treated normally, or were they also hoping to have some delicacy thrown their way? To have her intrude on their personal space?
 
-The other way Debug and Trouble had started overlapping in Brun's mind was the way Trouble had suddenly dyed their hair to match Debug. Brun had turned up last Saturday night only to find a malnourished doppelganger where she expected to find her fluffy blonde puppy. The bit she was struggling with the most was the sudden disappearance of Trouble's bruises under a layer or two of makeup. She'd never seen them not marked with countless purple, blue and yellow blemishes, and while they had been fading, it was like a slowly shifting artwork. She didn't know how to feel and felt worse for wanting to see Trouble marked like she normally was.
+The other way Debug and Trouble had started overlapping in Brun's mind was the way Trouble had suddenly dyed their hair to match them. Brun had turned up last Saturday night only to find a malnourished doppelganger where she expected to find her fluffy blonde puppy. The bit she was struggling with the most was the sudden disappearance of Trouble's bruises under a layer or two of makeup. She'd never seen them not marked with countless purple, blue and yellow blemishes, and while they had been fading, it was like a slowly shifting artwork. She didn't know how to feel and felt worse for wanting to see Trouble marked like she normally was.
 
 But being able to go out with Trouble and spend time together outside of work was worth the sudden change, so she held her tongue and didn't mention any of her thoughts on the matter.
 
@@ -45,7 +45,7 @@ Rather than continue to be tormented by their thoughts, they were interrupted by
 
 Trouble felt like a flower that took dozens of years to bloom under constant care and vigilance finally showing signs of that effort bearing fruit. 
 
-Debug had decided to spend their whole day together. The had quietly sat through all her client meetings reading through a pile of library books while Trouble played the role of working adult encircled by a pillow fort Brun had built for her the night prior. She couldn't dismiss the power of the pillow fort, in the deep of night when she had a giant empty bed, the extra weight and shadows to hid behind felt reliable and reassuring. As comforting as sleeping on the floor next to the window was, not being able to see the door when she tried to sleep was starting to get to her.
+Debug had decided to spend their whole day together. The had quietly sat through all her client meetings reading through a pile of library books while Trouble played the role of working adult encircled by a pillow fort Brun had built for her the night prior. She couldn't dismiss the power of the pillow fort, in the deep of night when she had a giant empty bed, the extra weight and shadows to hide behind felt reliable and reassuring. As comforting as sleeping on the floor next to the window was, not being able to see the door when she tried to sleep was starting to get to her.
 
 Having Bug quietly sitting nearby made her think it was like how having a big dog would be. Where they just take up an obvious amount of space and keep an eye on you throughout the day, but otherwise would do their own thing. She wouldn't have minded if Bug was more of a lap dog, the kind of big dog who never learned what personal space was. But she knew she'd get no work done if they were. 
 
@@ -59,17 +59,27 @@ The whole day had been built up to them heading out once the sun started to set.
 
 The daylight still gave Trouble anxiety, too many people around who could see her from a distance, too many cars driving around to keep track of, too much background noise of the city. But once the sun set and most people went home for the day, she felt safe. Even though she knew it was also the time of day she was most likely to run into Frank, he didn't have any grace or guile so she felt she could spot him coming and could act first.
 
-Since the previous Thursday, Trouble had been making plans to go for walks outside with either Bug or Brun most days of the week. Sometimes all they did was sit on a bus while it did a complete back and forth of it's route, or sit on the side of the road outside the hotel, or walk the running track in the nearby indoor gym Brun had a membership to. Today Bug had wanted to take her back out to one of the nearby malls to window shop, she had said she wanted to try doing more normal things where people would be as practice.
+Since the previous Thursday, Trouble had been making plans to go for walks outside with either Bug or Brun most days of the week. Sometimes all they did was sit on a bus while it did a complete back and forth of it's route, or sit on the side of the road outside the hotel, or walk the running track in the nearby indoor gym Brun had a membership to. 
 
-So here they were at the mall, people milling about and no one giving her a second look. Trouble was dressed in one of the outfits Bug had picked out for her the week prior and a baseball cap, in a look she could only describe to herself in secret as Debug's boyfriend. Debug was also dressed like they were Trouble's boyfriend with a matching colour of pants to Trouble's shirt. It entirely tinted Trouble's perspective on the outing, rather than worry about being spotted as herself, she was now only worried people might react poorly to what appeared to be two malnourished emo boys on a date where they spent no money.
+Today Bug had wanted to take her back out to one of the nearby malls to window shop, she had said she wanted to try doing more normal things where people would be as practice.
 
-The two of them had done a few laps of the mall, walking hand in hand, occasionally stopping out the front of shops to discuss the items inside or out the front of restaurants to read the menu. The whole time, Debug had lead the way. Giving small motions or gestures or squeezing Trouble's hand to let her know they were going to start walking again. So when they abruptly stopped still, panic started to seep back in as it was never too far away.
+So here they were at the mall, people milling about and no one giving her a second look. 
+
+Trouble was dressed in one of the outfits Bug had picked out for her the week prior and a baseball cap, in a look she could only describe to herself in secret as: Debug's boyfriend. 
+
+Debug was also dressed like they were Trouble's boyfriend with a matching colour of pants to Trouble's shirt. 
+
+It entirely tinted Trouble's perspective on the outing. Rather than worry about being spotted as herself, she was now only worried people might react poorly to what appeared to be two malnourished emo boys on a date where they spent no money.
+
+The two of them had done a few laps of the mall, walking hand in hand, occasionally stopping out the front of shops to discuss the items inside or out the front of restaurants to read the menu. The whole time, Debug had lead the way. Giving small motions or gestures or squeezing Trouble's hand to let her know they were going to start walking again. So when they abruptly stopped still mid-step, panic started to seep back in as it was never too far away.
 
 Unsure what had spooked Bug, Trouble tried to give her the same reassuring hand squeeze they'd been giving her all night as she scanned the area around and ahead of them for anyone suspicious. It took a moment, but she saw it.
 
-There was someone not listening to their friend talk to them about fifteen meters away looking directly at Debug and wiggling their eyebrows at her. A stout woman who looked like she was at risk of exploring out of her shirt, a look that reminded Trouble of the few days Brun wore an ill fitting shirt. If they did work out or had a job that required physical activity they didn't put nearly as much effort into their legs as from the waist down they weren't nearly as muscular. It was such an odd contrast Trouble turned and stared at Debug instead so as not to be rude or attract additional attention.
+There was someone not listening to their friend talk to them about fifteen meters away looking directly at Debug and wiggling their eyebrows at her. A stout woman who looked like she was at risk of exploring out of her shirt, a look that reminded Trouble of the few days Brun wore an ill fitting shirt to work. If they did work out or had a job that required physical activity they didn't put nearly as much effort into their legs as from the waist down they weren't nearly as muscular. 
 
-Debug didn't looked scared, but Trouble could see the wheels turning in their mind. They seemed like they were trying to solve a difficult problem, but by looking at their feet they weren't making to run away.
+It was such an odd contrast Trouble turned and stared at Debug instead so as not to be rude or attract additional undue attention.
+
+Debug didn't looked scared, but Trouble could see the wheels turning in their mind. They seemed like they were trying to solve a difficult problem, but by looking at their feet they weren't about to run away.
 
 Trouble relaxed a little, assuming that while this might get awkward it shouldn't be dangerous.
 
@@ -81,9 +91,9 @@ Despite feeling like a powerful presence, their new company was just shorter tha
 
 "Miss Bruce, it's nice to see you again." Bug said, Trouble recognized the rhythm as what they'd been rehearsing a moment ago.
 
-"Miss Bruce?! Ha haa. You're an adult now Deh, you're allowed to call me Sinéad." They turned and looked Trouble over before continuing with Debug. "Are you trying to match your underfed friend here? You two look cute together." Trouble felt themselves blushing very hard. This lady was very disarming, she could understand why Bug was nervous. Someone this aggressive in a conversation couldn't be mislead with their guile, and that lack of control probably scared them, even if they seemed like they were friends. 
+"Miss Bruce?! Ha haa. You're an adult now Deh, you're allowed to call me Sinéad." They turned and looked Trouble over before continuing with Debug. "Are you trying to match your underfed friend here? You two look cute together." Trouble felt themselves blushing very hard. This lady was very disarming, she could understand why Bug was nervous. Someone this aggressive in a conversation couldn't be mislead with their guile, and that lack of control probably put them off, even if they seemed like they were friends. 
 
-"This is my friend, Princess." Debug said matter-of-factly. "They've got some issues with their ex who's a...swine heard. Their complexation is a lot more vibrant under their makeup." Trouble lost track of what Bug was trying to say, she was stuck on the fact both her and Bug had picked the same fake name. Now Trouble understood better the smile Brun had when she had blurted the same name out all that time ago.
+"This is my friend, Princess." Debug said matter-of-factly. "They've got some issues with their ex who's a...swine heard. Their complexion is a lot more vibrant under their makeup." Trouble lost track of what Bug was trying to say, she was stuck on the fact both her and Bug had picked the same fake name. Now Trouble understood better the smile Brun had when she had blurted the same name out all that time ago.
 
 "Ohh, we'll do let me know if I can help. I'm working out at the head office now. They kept promoting me for some reason. So I can boss a lowly swine heard around, if you've got the dirt." Trouble felt entirely lost as she refocused back on the conversation, unsure how it had changed to being about farm workers. One thing Trouble did know was where she had heard that commanding tone from before, it was so similar to how Bug spoke when she thought things were serious. Trouble was immediately taken aback when Sinéad changed tact, leaned in a little and spoke without that tone. "Pet, I missed you. You didn't call, or write."
 
@@ -95,7 +105,7 @@ Trouble felt Debug tense up and their breath hitched as Sinéad gently touched t
 
 Trouble clasped her other hand over Bug's hand her fingertips could barely reach around the cast to add to the touch in a way she hopped was reassuringly. Debug looked at her, searching her face for some sort of answer. Before with her free hand pulling a brick of a mobile phone out of her pocket and handing it to Sinéad.
 
-"I'll need your number to give you a call. Can't say when, but it won't be never." Debug tried looking Sinéad in the eye but broke eye contact after a moment. "Just give yourself a call from my phone so you have my number too, so you don't think it's not a telemarketer."
+"I'll need your number to give you a call. Can't say when, but it won't be never." Debug tried looking Sinéad in the eye but broke eye contact after a moment. "Just give yourself a call from my phone so you have my number too, so you don't think it's a telemarketer."
 
 "What...what name should I put you under, Pet?" Sinead asked as she manhandled the old phone. "Starts with a D?"
 
@@ -105,15 +115,17 @@ Trouble clasped her other hand over Bug's hand her fingertips could barely reach
 
 Looking to Debug for their opinion, Trouble saw only disinterest and mild annoyance. Debug took their phone back from Sinéad, and gave Trouble's hand the same squeeze they'd been using all evening to mean they were going to start walking again.
 
-"It was nice to catch up again Sergeant Bruce. We'll talk later." Bug's tone had shifted to her customer service voice, sheading all the vulnerability it had mere moments ago. Trouble nodded to Sinéad as Debug changed how they were touching, letting go of her hand and slipping a hand around her waist to sit on her hip.
+"It was nice to catch up again Sergeant Bruce. We'll talk later." Bug's tone had shifted to her customer service voice, shedding all the vulnerability it had mere moments ago. Trouble nodded to Sinéad as Debug changed how they were touching, letting go of Trouble's hand and slipping a hand around her waist to sit on her hip.
 
 "Call me later Deborah, we should do brunch." Sinéad said while Bug started to lead Trouble away.
 
-"I always thought Deborah was an old lady's name. It's weird to see a young person with it." The person next to Sinéad said, seemingly trying to strike up a conversation with them again.
+"I always thought Deborah was an old lady's name. It's weird to see a young lass with it." The person next to Sinéad said, seemingly trying to strike up a conversation with them again.
 
-"Officer Gross if this is how you compose yourself while on duty..." As their conversation faded into the rest of the background noise of the mall as Debug steered her away, Trouble couldn't shake the feeling she knew their interrupting annoyance. But from what she could hear Sinéad saying at the end, they sounded like a police officer and she didn't know anyone who worked for the police.
+"Officer Gross if this is how you compose yourself while on duty..." As their conversation faded into the rest of the background noise of the mall as Debug steered her away, Trouble couldn't shake the feeling she knew their interrupting annoyance from somewhere. But from what she could hear Sinéad saying at the end, they sounded like a police officer and she didn't know anyone who worked for the police.
 
-Giving Bug another side-eye look they also seemed deep in thought, their anxiety coming through in how they kept kneading Trouble's hip, gripping and relaxing over and over like they were trying to ball a fist. Trouble was also impressed the two of them could walk while being so close without any issues. She concluded it must be due to how similar in height they two of them were. When she had first dated Frank, before he had gotten as angry, bitter and possessive he had lamented over how any time they tried to do exactly this it always ended with one of them tripping or in pain.
+Giving Bug another side-eye look they also seemed deep in thought, their anxiety coming through in how they kept kneading Trouble's hip, gripping and relaxing over and over like they were trying to ball a fist. 
+
+Trouble was also impressed the two of them could walk while being so close without any issues. She concluded it must be due to how similar in height they two of them were. When she had first dated Frank, before he had gotten as angry, bitter and possessive he had lamented over how any time they tried to do exactly this it always ended with one of them tripping or in pain.
 
 Frank.
 
@@ -139,7 +151,7 @@ Felicity had hated it. That every single small injury he had done was all someho
 
 For once her emotions didn't turn inward and make her want to not exist. Instead they raged and burned. Her skin felt like it was on fire. Tears stung her eyes like someone had crushed an onion directly into them. Breathing was difficult and painful, but required. 
 
-That someone who had balked at her descriptions of how her dad had treated her when they first met would in turn do the same was such an incomprehensible betrayal.
+That someone who had balked at her descriptions of how her dad had treated her when they first met would in turn do the same was such an incomprehensible betrayal. That in the span of a few years Frank had gone from kind to cruel just because his work had been tough and hair had thinned.
 
 The one thing her few weeks of peace had given Felicity was rage.
 

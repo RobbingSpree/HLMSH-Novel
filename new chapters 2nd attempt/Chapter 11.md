@@ -5,7 +5,7 @@ tags:
 ---
 Trouble let Bug break their kiss, and this time her legs stayed steady under her and didn't buckle.
 
-They had been staying at the hotel for two weeks now and had lost count of how many kisses they had asked Debug for. Thankfully, they were polite enough to oblige Trouble's wants. She had started asking for them to help her deal with anxiety when it got too difficult to ignore, but it was becoming difficult to pretend she wasn't also very much enjoying these kisses. 
+They had been staying at the hotel for two weeks now and had lost count of how many kisses they had asked Debug for. Thankfully, they were polite enough to oblige Trouble's wants. She had started asking for them to help her deal with anxiety when it got too difficult to ignore, but it was now becoming difficult to pretend she wasn't also very much enjoying these kisses. 
 
 What had started as unfathomable excitement and joy had simmered down to an incredible thrill. She did occasionally have the overwhelming notion that there was more people did beyond kissing, but if a kiss still made her knees weak: she wasn't ready for any heavier petting.
 
@@ -23,7 +23,7 @@ The kisses were one of the highlights of her day.
 
 In the last week she had managed to establish a reliable routine coasting on Brun and Debug's schedule. She would wake up late in the morning, and if it was a weekday she would do her own job. During the day when they had time, Bug would drop by and check on them. If the day was going poorly, and recently even if it had been going well, she would ask Bug for a 'Treat' and be rewarded for her honesty. Then once their shift ended both her and Bug would be free to and spend some time lounging about in Trouble's room. This would be when she worked up the courage to vent and talk about her past. Once Brun's shift had properly started, they'd come by too, and if Bug had stuck around, they'd all eat dinner together. Then if Brun had tasks that involved a lot of walking around the hotel, they'd come and collect Trouble from her room and they'd chat as they worked. At some point late at night Trouble would retire back to their room and the whole schedule would repeat.
 
-While they had essentially swapped one prison for another, as Trouble didn't feel safe leaving the hotel, she had a lot further to wander and more people to talk to. She hadn't thought that all it would take to feel safe was two people caring about her, but she couldn't argue with the results.
+While they had essentially swapped one prison for another, as Trouble didn't feel safe leaving the hotel, she had a lot further to wander and more people to talk to. She hadn't thought that all it would take to feel safe was just two people caring about her, but she couldn't argue with the results.
 
 One thing she currently didn't have the confidence to do though, was ask Bug and Brun for another sleepover. That had really been the turning point in her recovery, and she was confident that if she got several more of those: that would fix her. All the myriad problems wrong with her, just several restful nights in the arms of her favorite people would absolve her of her flaws.
 
@@ -99,7 +99,7 @@ Debug was putting on a pair of disposable gloves like the ones they'd handed her
 
 "OK, young one. As someone more senior in the ways of follicle tinting, there's one thing we need to remember..." They paused in a way that made it unclear if they expected a guess or not. "Patience. The longer we leave it - up to a point - the stronger the results. And since we want a convincing colour, we'll wait an hour. So you got anything you want to do while we wait?"
 
-Trouble's mind was already filled with thoughts of gentle cuddles and caresses. But knew she couldn't ask for something selfish and decadent as that even ignoring the risk of getting the colour everywhere. 
+Trouble's mind was already filled with thoughts of gentle cuddles and caresses. But knew she couldn't ask for something selfish and decadent as that; even ignoring the risk of getting the colour everywhere. 
 
 "Well, we've got a bunch of time to think about that while we work." Bug interrupted her train of thought while walking out of sight behind her and opening the first of many bottles.
 

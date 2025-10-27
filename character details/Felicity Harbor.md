@@ -14,6 +14,10 @@ flaws:
 
 starting point of the story: Like a puppy, wondering around and following whoever has her, develops a bad relationship with physical affection
 
+midpoint: has started to see herself as more than just a pet and is allowed but doesn't feel capable of doing more
+
+end point: like her friends she wants to be a beacon of safety and warmth for them to return to
+
 Name: flipflops between using Felicity and Trouble depending on mood once Brun has dubbed her so.
 Uses Felicity when scared, worried, anxious or actively suffering
 Uses Trouble when happy, safe, in an embrace, holding someone's hand

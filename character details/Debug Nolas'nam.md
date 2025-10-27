@@ -14,6 +14,10 @@ flaws:
 
 starting point of the story: crushing on coworker, frivolously spending time learning new skills they don't need
 
+midpoint: past is catching up to her and she feels unsafe
+
+end point: knows she cannot flee from the world forever and has to let other people in regardless of the risk and her instincts
+
 Appearance:
 pale skin, covered in freckles, yellow undertones
 undercut with a flop of hair on top she fidgets with by brushing it to the side, hair is a very dark blue due to dye, actually has the same colour of hair as Felicity she's been saving revealing her hair colour as a cool thing but has forgot why and is now solidly in the habit of dying her hair and eyebrows.
