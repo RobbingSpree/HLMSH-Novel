@@ -1,9 +1,9 @@
 
 | chapter  | file create | last edit | length of time | Returned later? |
 | -------- | ----------- | --------- | -------------- | --------------- |
-| 1        | July 22     | July 24   | 2 Days         | No              |
-| 2        | July 24     | July 28   | 4 Days         | Yep             |
-| 3        | Aug 4th     | Aug 11    | 6 Days         | No              |
+| 1        | July 22nd   | July 24th | 2 Days         | No              |
+| 2        | July 24th   | July 28th | 4 Days         | Yep             |
+| 3        | Aug 4th     | Aug 11th  | 6 Days         | No              |
 | 4        | Aug 11th    | Aug 18th  | 7 days         | Yep             |
 | 5        | Aug 13th    | Aug 17th  | 4 days         | Yep             |
 | 6        | Aug 17th    | Aug 22nd  | 5 days         | yep             |
