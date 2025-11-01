@@ -55,6 +55,9 @@ Forged her own new identity
 Has been living quietly since to not stir trouble and attract attention
 According to her forged identity her previous identities are her parents
 
+She has a ritual for displacing her memories of her childhood by reciting all the names she had.
+Mel met June, June found Jill, Jill helped Deh. They all bore Debug.
+
 Voice sounds like:
 Gruff
 Low

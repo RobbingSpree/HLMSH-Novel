@@ -16,10 +16,10 @@ Current length of rehash:
 act 1 publishing complete (10 chapters) 27000-ish words
 - 10 chapter(s) complete. (1-10)
 - Intermission 1 complete (1)
-act 2 writing in progress 13000-ish words
-- 2 chapters complete (11-12)
-- 5 chapter in editing hell (Intermission 2, 13-16)
-- 1 chapter being written (17)
+act 2 writing in progress 21000-ish words
+- 6 chapters complete (11-14, Intermission 2, Attack 1)
+- 3 chapter in editing hell (15-17)
+- 3 chapters being written (18-19, Intermission 3)
 
 Total length: 46,000-ish words
 
@@ -46,8 +46,9 @@ Total length: 46,000-ish words
 | 15             | 2800          | Written          | De, Fel             | 43.6k         |
 | 16             | 2600          | Written          | Brun, Fel           | 46.2k         |
 | 17             | 2600          | Written          | De, Brun, Fel, Brun | 48.8k         |
-| 18             |               | Planning         |                     |               |
-| 19             |               | Planning         |                     |               |
+| 18             |               | Writing          | De, Fel, Brun       |               |
+| 19             |               | Planning         | Fel, Brun, Fel      |               |
+| Intermission 3 |               | Writing          | De,                 |               |
 approx. page length (assuming the average page length of 275 words per page): 168
 
 Latest posted chapter: 
