@@ -45,7 +45,7 @@ Total length: 46,000-ish words
 | Attack 1       | 800           | pending          | De                  | 40.8k         |
 | 15             | 2800          | Written          | De, Fel             | 43.6k         |
 | 16             | 2600          | Written          | Brun, Fel           | 46.2k         |
-| 17             | 2600          | Written          | De, Brun, Fel, Brun | 48.8k         |
+| 17             | 2900          | Written          | De, Brun, Fel, Brun | 49.1k         |
 | 18             |               | Writing          | De, Fel, Brun       |               |
 | 19             |               | Planning         | Fel, Brun, Fel      |               |
 | Intermission 3 |               | Writing          | De,                 |               |

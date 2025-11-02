@@ -1,10 +1,8 @@
 Debug woke with a start. She couldn't understand what was being yelled at her, but she knew they were furious.
 
-She could see daylight, and someone tall casting a shadow over her yelling at her. 
+She could see daylight, and someone tall casting a shadow over her yelling obscenities. 
 
-Before she could grasp what they were angry about they stormed off.
-
-Before they could come back with a stick or something worse to ward her off she took matters into her own hands and clawed at the ground to find purchase.
+Before she could grasp what they were angry about they stormed off and she was blasted by the full force of the sun. Before they could come back with a stick or something worse to ward her off she took matters into her own hands and clawed at the ground to find purchase and escape again.
 
 Her eyes were bleary and crusted closed, but even then she could see the bruises on her arms blossoming worse than she'd seen yesterday. Trying to push her self up on all fours was excuriaiting, her arms could barely take their own weight, let alone her torso's. After some helpful screaming to get her blood pumping, she got into a kneel and they started trying to pull herself up the wall and get her legs underneath her.
 
@@ -12,17 +10,19 @@ For all the pain her arms were in, everything from her waist down felt like it w
 
 She could make her legs move.
 
-But felt 
+But felt nothing when they did.
 
 As she stepped forward, bracing herself against a wall for balance, it was an incredibly surreal sensation to not feel anything. No weight, no pain, nothing. It was like waiting for pins and needles to get better except without the feeling of static noise.
 
-After a few test steps, Debug found she could still feel pressure around the edges of her feet and a few spots on her leg. With a few more hesitant steps she declared herself safe to walk and started mechanically marched herself away.
+After a few test steps, Debug found she could still feel pressure around the edges of her feet and a few spots on her leg. With a few more hesitant steps she declared herself safe to walk and started to mechanically march herself away.
 
 She had picked this spot originally because the dumpsters she was hiding behind had only paper in them and no terrible smells and could hide her from the road. But if that wasn't an option she'd need to find somewhere she could sit and recover her energy before maybe going to the hospital.
 
-She couldn't go anywhere she could be seen from the road or cornered.
+As much as she didn't want attention, not being able to feel her legs was unnerving and deeply concerning. She was still exhausted though, so she wanted to rest a little longer before trying to work out where she was and how she'd get to a hospital from here.
 
-In the current state she was and and what they had shown they were capable of, Debug didn't want to put her current self to a physical test.
+She couldn't go anywhere she could be seen from the road or anywhere she could be cornered.
+
+In the current state she was in and and what "they" had shown they were capable of, Debug didn't want to put her current self to a physical test.
 
 Maybe if she could find somewhere she could arm herself with a stick she could rest a little more comfortably.
 
@@ -32,9 +32,13 @@ Trouble felt like a willing hostage at this point and didn't know how to improve
 
 She was sitting in the front passenger seat while Sinéad drove and Brun sat in the middle back seat, head on a swivel trying to take in everything.
 
-When Brun had told her something had happened to Debug she didn't believe her. But the longer she spent time with Brun's ongoing anxiety and now adding Sinead's to the mix, she couldn't help but also be caught up in that feeling.
+When Brun had told her something had happened to Debug she just didn't believe her. But the longer she spent time with Brun's ongoing anxiety and now adding Sinead's to the mix, she couldn't help but also be caught up in that feeling.
 
-They had driven all over town at this point. Both Sinéad and Brun had made a series of suggestions on where Debug would hide, but no one had been right yet. 
+She didn't know how much panic a call going to voice mail over and over could give her until today.
+
+They had driven all over town at this point. Both Sinéad and Brun had made a series of suggestions on where Debug would hide, but no one had been right yet. They'd looked in enclaves of bushes and trees, abandoned shops, cafés Bug knew the managers names, parking structures and called every nearby hospital to see if they'd been badly injured enough to go there.
+
+Every failed idea had made the group more anxious and more depressed and now they all say in tense silence, out of ideas and running out of hope.
 
 Trying to ratchet down on the tension, Trouble decided to try and talk about something pleasant rather than let everyone stew in silence.
 

@@ -1,6 +1,6 @@
 Debug felt like everything was falling apart. Her life, her patience, her capacity to hold her pee.
 
-She had driven the car for about ten minutes before she had the panic inducing thought that since the car was hotel property: Beth might report it stolen once they noticed it was gone and she didn't need the police appearing and making things worse right now.
+She had driven the car for about five minutes before she had the panic inducing thought that since the car was hotel property: Beth might report it stolen once they noticed it was gone and she didn't need the police appearing and making things worse right now. So she was on a harsh time limit to abandon the car.
 
 The first thing she did was drive to a nearby mall and park near a concrete barricade to hide her nudity behind, it had a clothing donation bin for charity in the car park for the convenience of shoppers and escapees alike. 
 
@@ -12,15 +12,15 @@ As she got dressed she caught several glimpses of the mess she had made of herse
 
 The pain, on the other hand, was far too all encompassing to ignore.
 
-Every part of her body ached, any time she stopped moving she could feel her pulse across her whole body. With every beat of her heart the chorus of pain grew louder. Her legs felt like lead, slow and painful to move and concerningly wet. She had been exhausted when she got back from carrying Trouble home and hadn't slept since. She was running on less than fumes at this point, now she had achieved the difficult part of actually escaping her adrenaline was swiftly wearing off. 
+Every part of her body ached, any time she stopped moving she could feel her pulse across her whole body. With every beat of her heart the chorus of pain grew louder. Her legs felt like lead, slow and painful to move and concerningly wet. She had been exhausted when she got back from carrying Trouble home and hadn't slept since. She was running on less than fumes at this point, and now she had achieved the difficult part of actually escaping her adrenaline was swiftly wearing off. 
 
 Folding herself back into the car involved a lot of painful screaming. Putting on her new shorts had been difficult, but she'd managed it without having to bend at the waist. The car was going to be covered in her DNA after this with how much she could feel herself sweating...she hoped it was just sweat. But since she had started she might as well go through with the next step of her plan. 
 
-Through tear-streaked vision, she parked and abandoned the car on a random residential street. If she needed to go somewhere a lot further in a pinch she could come back and re-steal it.
+Through tear-streaked vision, she parked and abandoned the car on a random residential street. If she needed to go somewhere a lot furtherin the near future in a pinch she could come back and re-steal it.
 
 But the most important thing now was hiding.
 
-Existing was taxing enough. Being seen or discovered by other people would be too much. If she could rest for a while, she could recover her energy and then go find something to eat.
+Existing was taxing enough. Being seen or discovered by other people and having to explain herself would be too much. If she could just rest for a while, she could recover her energy and then go find something to eat.
 
 She had a lot of time to think about what had happened as she limped away looking for somewhere to hide. After a reasonable amount of sleepless worry sitting huddled in a corner between two buildings Debug confidently come to the conclusion that she was to blame for the whole situation.
 
@@ -28,13 +28,15 @@ She had been on edge about Beth for months, the prying, the comments, the trying
 
 She needed to be more vigilant, more on guard. To keep everyone at arms length. To be safe and not at risk for once.
 
-If Beth had those twisted desires while Debug had been trying to keep a wall up between them, then what's to say what Brunhilde wouldn't do the same if they found her? She had been trying to flirt with Brun for months with seemingly no result, had she been digging her own grave this entire time.
+If Beth had those twisted desires while Debug had been trying to keep a wall up between them, then what's to say what Brunhilde wouldn't do the same if they found her? She had been trying to flirt with Brun for months with seemingly no result, had she been digging her own grave this entire time. Had Beth and Brun been conspiring together? They had both wanted to "talk" before, had they just not decided who got to have the first go at her when they saw their opportunity?
 
-Beth had stolen Debug's phone, pocket knife and house keys when she'd been cuffed to the wall, but that might be for the best. Without a phone she couldn't be tracked, and as long as she never went back home no one would be able to find her again, and in a city with lots of glass bottles littered about there was always something she could use as a knife nearby.
+Beth had stolen Debug's phone, pocket knife and house keys when she'd been cuffed to the wall, but that might be for the best. Without a phone she couldn't be tracked, and as long as she never went back home no one would be able to find her again. And in a city with lots of glass bottles littered about there was always something she could use as a knife nearby.
 
 Without her phone she couldn't contact Sinéad, but with how convenient their timing was for popping back into her life they probably couldn't be trusted either. Sinéad had been the reason she had needed to change her name so many times, she would have been able to stick with her childhood name if she hadn't let Sinéad talk her into testifying and attracting so much attention.
 
-(Rest of scene)
+As daylight crept into the morning and the hidden alcove she was hiding in started to warm up, Debug felt exhaustion overwhelm her. Her eyes felt heavy, her arms felt heavy, and now that she'd been sitting in one place for long enough everything below her waist stopped feeling.
+
+She had done all she could for now. As she fell asleep, she felt a pang on worry for of Trouble would be safe now the wolves had abandoned their disguise.
 
 ***
 
