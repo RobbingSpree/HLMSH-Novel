@@ -129,7 +129,7 @@ A hunger she didn't know was real had awoken in her; and here was her friend tau
 
 It felt unfair that she was the only one affected by this.
 
-"Actually..." Trouble interrupted, blindly grabbing a garment off the rack. "I think you'd look cute in this. I've got enough to try one a few, do you wanna come with me to the change rooms and we'll give it a go? See if it fits." Trouble had no plan, but if she could put the idea of herself taking off clothes into Bug's mind they might be on even footing.
+"Actually..." Trouble interrupted, blindly grabbing a garment off the rack. "I think you'd look cute in this. I've got enough to try on a few, do you wanna come with me to the change rooms and we'll give it a go? See if it fits." Trouble had no plan, but if she could put the idea of herself taking off clothes into Bug's mind they might be on even footing.
 
 "Sure, that looks comfy. I think there's a giant sign on the wall saying the change rooms are over there." They said pointing behind them, seemingly unphased. "We don't have unlimited time so we should start making some choices in case they give us a time limit soon."
 
