@@ -81,7 +81,7 @@ Trouble made an affirmative noise in response carried by the wind trying to push
 
 Stumbling inside, she lead her duckling off to the side into the home appliances section. Finding a corner with a bare wall, she shuffled Trouble such their back was against the wall and tried to force them to meet her gaze.
 
-"Black Swan, you with me? You've been a bit scattered since I did your make up. You okay we made it here?" Trying to not take up much space nor draw attention to their gathering in the corner, Debug stood quite close she could feel the hind of breath from Trouble on her cheek.
+"Black Swan, you with me? You've been a bit scattered since I did your make up. You okay we made it here?" Trying to not take up much space nor draw attention to their gathering in the corner, Debug stood quite close she could feel the hint of breath from Trouble on her cheek.
 
 The many intimate moments they'd spent together had worn down the distance she felt she needed to keep Trouble at when calm, and with them as vulnerable as they currently seemed that distance shrunk further.
 

@@ -2,27 +2,27 @@ Debug woke with a start. She couldn't understand what was being yelled at her, b
 
 She could see daylight, and someone tall casting a shadow over her yelling obscenities. 
 
-Before she could grasp what they were angry about they stormed off and she was blasted by the full force of the sun. Before they could come back with a stick or something worse to ward her off she took matters into her own hands and clawed at the ground to find purchase and escape again.
+Before she could grasp what they were angry about they stormed off and she was blasted by the full force of the sun as their shadow left with them. Before they could come back with a stick or something worse to ward her off she took matters into her own hands and clawed at the ground to find purchase and escape again.
 
-Her eyes were bleary and crusted closed, but even then she could see the bruises on her arms blossoming worse than she'd seen yesterday. Trying to push her self up on all fours was excuriaiting, her arms could barely take their own weight, let alone her torso's. After some helpful screaming to get her blood pumping, she got into a kneel and they started trying to pull herself up the wall and get her legs underneath her.
+Her eyes were bleary and crusted closed, but even then she could see the bruises on her arms blossoming worse than she'd seen yesterday. Trying to push her self up on all fours was excruciating, her arms could barely take their own weight, let alone her torso's. After some helpful screaming to get her blood pumping, she got into a kneel and they started trying to pull herself up the wall and get her legs underneath her.
 
 For all the pain her arms were in, everything from her waist down felt like it was gone. 
 
-She could make her legs move.
+She could make her legs move. That was evident by looking at them, though she very much didn't want to.
 
-But felt nothing when they did.
+But she felt nothing when they moved.
 
-As she stepped forward, bracing herself against a wall for balance, it was an incredibly surreal sensation to not feel anything. No weight, no pain, nothing. It was like waiting for pins and needles to get better except without the feeling of static noise.
+As she stepped forward, bracing herself against a wall for balance, it was an incredibly surreal sensation to not feel anything. No weight, no pain, nothing. It was like waiting for pins and needles to get better except without the feeling of the buzzing static noise.
 
-After a few test steps, Debug found she could still feel pressure around the edges of her feet and a few spots on her leg. With a few more hesitant steps she declared herself safe to walk and started to mechanically march herself away.
+After a few test steps, Debug found she could still feel pressure around the edges of her feet and a few spots on her leg. With a few more hesitant steps she declared herself safe to walk and started to mechanically march herself away swaying a little as she fought to keep her balance.
 
-She had picked this spot originally because the dumpsters she was hiding behind had only paper in them and no terrible smells and could hide her from the road. But if that wasn't an option she'd need to find somewhere she could sit and recover her energy before maybe going to the hospital.
+She had picked this spot originally because the dumpsters she was hiding behind had only paper in them and no terrible smells and could hide her from the road. But if that wasn't an option anymore she'd need to find somewhere she could sit and recover her energy before maybe going to  hospital.
 
 As much as she didn't want attention, not being able to feel her legs was unnerving and deeply concerning. She was still exhausted though, so she wanted to rest a little longer before trying to work out where she was and how she'd get to a hospital from here.
 
-She couldn't go anywhere she could be seen from the road or anywhere she could be cornered.
+She couldn't go anywhere she could be seen from the road or anywhere she could be cornered. But with how slow she was moving being cornered was the least of her worries.
 
-In the current state she was in and and what "they" had shown they were capable of, Debug didn't want to put her current self to a physical test.
+In the current state she was in and and what "they" had shown they were capable of, Debug didn't want to put her current self to a physical test. SO more than being not visible from the road, she needed somewhere she could properly hide.
 
 Maybe if she could find somewhere she could arm herself with a stick she could rest a little more comfortably.
 
@@ -42,11 +42,11 @@ Every failed idea had made the group more anxious and more depressed and now the
 
 Trying to ratchet down on the tension, Trouble decided to try and talk about something pleasant rather than let everyone stew in silence.
 
-"What was Bug like when she was younger, Miss Bruce?" She realised after letting the words out, that she hoped Bug had been right in their guess of if Sinéad was married and kicked herself for not having the courage to call her by her first name.
+"What was Bug like when she was younger, Miss Bruce?" She realized after letting the words out, that she hoped Bug had been right in their guess of if Sinéad was married and kicked herself for not having the courage to call her by her first name.
 
-"What?" Sinéad turned to look at Trouble like they'd forgotten she was sitting there. "Uhh...she was a gift." Her eyes back on the road as she spoke, but with a far away look Trouble recognised seeing her father making a lot. "She would push herself to the limit a lot. Then snap and start fights, then chill and repeat. She had a lot happen to her at such a young age. But she never trusted me enough to let me keep her."
+"What?" Sinéad turned to look at Trouble like they'd forgotten she was sitting there. "Uhh...she was a gift." Her eyes back on the road as she spoke, but with a far away look Trouble recognized seeing her father making a lot. "She would push herself to the limit a lot. Then snap and start fights, then chill and repeat. She had a lot happen to her at such a young age. But she never trusted me enough to let me keep her."
 
-"Is that why you don't share a last name?" Brun piped up from the back seat. "I know she changed her name, but she didn't change it to be like you." She seemed angry, Trouble wasn't sure if they were angry at the lack of progress or that Bug's mom had been so close this whole time and still absent. "She literally changed her name to be No Last Name. She didn't feel welcome in any family, and you think you can claim to be her mom." 
+"Is that why you don't share a last name?" Brun piped up from the back seat. Trouble could feel Brun's grip on her seat ratchet higher that same tension from before. "I know she changed her name, but she didn't change it to be like you." She seemed angry, Trouble wasn't sure if they were angry at the lack of progress or that Bug's mom had been so close this whole time and still absent. "She literally changed her name to be No Last Name. She didn't feel welcome in any family, and you think you can claim to be her mom." 
 
 Sinéad looked equally angry, but held her tongue. 
 
