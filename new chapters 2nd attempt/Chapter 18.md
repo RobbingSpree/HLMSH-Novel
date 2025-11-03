@@ -36,7 +36,7 @@ When Brun had told her something had happened to Debug she just didn't believe h
 
 She didn't know how much panic a call going to voice mail over and over could give her until today.
 
-They had driven all over town at this point. Both Sinéad and Brun had made a series of suggestions on where Debug would hide, but no one had been right yet. They'd looked in enclaves of bushes and trees, abandoned shops, cafés Bug knew the managers names, parking structures and called every nearby hospital to see if they'd been badly injured enough to go there.
+They had driven all over town at this point. Both Sinéad and Brun had made a series of suggestions on where Debug would hide, but no one had been right yet. They'd looked in enclaves of bushes and trees, abandoned shops, cafés Bug knew the managers names of, parking structures and called every nearby hospital to see if they'd been badly injured enough to go there.
 
 Every failed idea had made the group more anxious and more depressed and now they all say in tense silence, out of ideas and running out of hope.
 
@@ -46,7 +46,7 @@ Trying to ratchet down on the tension, Trouble decided to try and talk about som
 
 "What?" Sinéad turned to look at Trouble like they'd forgotten she was sitting there. "Uhh...she was a gift." Her eyes back on the road as she spoke, but with a far away look Trouble recognized seeing her father making a lot. "She would push herself to the limit a lot. Then snap and start fights, then chill and repeat. She had a lot happen to her at such a young age. But she never trusted me enough to let me keep her."
 
-"Is that why you don't share a last name?" Brun piped up from the back seat. Trouble could feel Brun's grip on her seat ratchet higher that same tension from before. "I know she changed her name, but she didn't change it to be like you." She seemed angry, Trouble wasn't sure if they were angry at the lack of progress or that Bug's mom had been so close this whole time and still absent. "She literally changed her name to be No Last Name. She didn't feel welcome in any family, and you think you can claim to be her mom." 
+"Is that why you don't share a last name?" Brun piped up from the back seat. Trouble could feel Brun's grip on her seat ratchet higher that same tension from before. "I know she changed her name, but she didn't change it to be like you." She seemed angry, Trouble wasn't sure if they were angry at the lack of progress or that Bug's mom had been so close this whole time and still absent. "She literally changed her name to be No Last Name. She didn't feel welcome in any family least of all yours, and you think you can claim to be her mom." 
 
 Sinéad looked equally angry, but held her tongue. 
 
@@ -54,7 +54,7 @@ But only for a moment.
 
 "She left before I could explain anything to her." Sinéad snapped back, unable to hold herself back. "I was going to..." The words died in her mouth.
 
-"Well, I can see where Dee gets it from. Clearly keeping these sorts of secrets keeps everyone safe and gives them someone they know they can rely on. Ohh wait, she didn't ask for your help, I did." Trouble could hear the words cut both ways, Brun was as angry at herself as she was Sinéad.
+"Well, I can see where Dee gets it from. Clearly waiting to tell people things keeps everyone safe and gives them someone they know they can rely on. Ohh wait, she didn't ask for your help, I did." Trouble could hear the words cut both ways, Brun was as angry at herself as she was Sinéad.
 
 The car aggressively swerved and parked, mounting the curb.
 
@@ -68,17 +68,25 @@ Everything she saw put her on edge.
 
 Brun was not sure why she was so angry, but if Sinéad wanted a fight she could throw down.
 
-She stepped out of the car on the street side and looked down on Sinéad. This woman, had been right here the whole time. She had seemingly known where Dee was working, had missed her. 
+She hadn't wanted to let Dee's mom be involved, but they had a car and she needed now more than anything reassurance her friend was safe and once she found Debug she needed to get it through their adorable but thick skull that she could have kept them safe. She stepped out of the car on the street side and looked down on Sinéad. This woman, had been right here the whole time. She had seemingly known where Dee was working, had missed her, had wanted to say things to her.
 
 And done what?
 
 Nothing?
 
-Brun knew exactly how isolated and scared Dee could be, they worked so incredibly hard to put on a tough face. But when they sighed or had a quiet moment watching some couple or family check in while she had no one Brun knew that stuff tore her up inside.
+Brun knew exactly how isolated and scared Dee could be, they worked so incredibly hard to put on a tough facade. But when they sighed or had a quiet moment watching some couple or family check in while she had no one Brun knew that stuff tore her up inside.
 
 She couldn't fathom what Sinéad had thought just cause Dee had fled them once before that nothing could be done? To Give up? She knew Dee was like a bruised cat, playful but cautious. It wasn't through one big act, it was from being reliable that you make them trust you.
 
 Brun hated herself just as much, because while she knew this she also had let Debug be. Decided that rather than risk letting them trust her and that she might fail that she would just be 'respectful' instead.
+
+"I'm not surprised you think you need to step out of the car to try and intimidate me, I get that a lot from the police." Brun was too angry, she could feel her breath hot and stinging in her throat. She didn't need to be starting fights in the middle of nowhere next to a construction site or wherever they were. She needed to find Dee.
+
+But this woman just rubbed her the wrong way.
+
+Said things mattered and did nothing to show it. Acted like an authority but had no expertise to justify it. Claimed she was owed respect but had not earned it.
+
+
 
 (Almost a physical altercation between Brun and Sinéad)
 
