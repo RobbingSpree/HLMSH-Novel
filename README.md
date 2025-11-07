@@ -46,9 +46,13 @@ Total length: 46,000-ish words
 | 15             | 2800          | Written          | De, Fel             | 43.6k         |
 | 16             | 2600          | Written          | Brun, Fel           | 46.2k         |
 | 17             | 2900          | Written          | De, Brun, Fel, Brun | 49.1k         |
-| 18             |               | Writing          | De, Fel, Brun       |               |
+| 18             | 2300          | Writing          | De, Fel, Brun       | 51.4k         |
 | 19             |               | Planning         | Fel, Brun, Fel      |               |
-| Intermission 3 |               | Writing          | De,                 |               |
+| Act 2          |               | Almost done      | So close            |               |
+| Intermission 3 | 1100          | Written          | De, Brun, Fel       |               |
+| Attack 2       | 900           | Written          | De                  |               |
+| 20             |               | Planning         | Fel, Brun           |               |
+| 21             |               | Planning         |                     |               |
 approx. page length (assuming the average page length of 275 words per page): 168
 
 Latest posted chapter: 

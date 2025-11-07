@@ -568,6 +568,10 @@ Have fight
 Debug collapses from blood loss and injuries and fever
 
 
+## intermission 3
+Debug has a dissociative episode
+Brun gets big mad about Dee's injuries
+Fel has a panic attack and persists while discussing her past
 
 ## Future chapter stuff
 
@@ -603,3 +607,39 @@ Find debug already there
 Invite Sinéad to live with them as a way to keep their stalkers at bay
 Enact all downfalls
 Happy end
+
+Ok, so I kinda made none of that possible and most of these happen in chapter 17-20
+Need to rewrite this overarching plot
+
+
+## Attack 2
+Sinéad tries to get details of Debug's attack out of her
+
+## Chapter 20
+Brun POV
+Brun is so mad
+Dee is very in and out of consciousness and hasn't given up her attacker
+Trouble is essentially silent and refuses to talk and cries if pressed to
+Trouble is being discharged today and Brun doesn't feel she's safe at the hotel
+Offers to let her stay at her house forever.
+Dee wakes up for a little bit says Trouble already has a house
+It just needs the locks changed
+Brun agrees, she'll keep Trouble at her house and get a locksmith and security person out to come check the place out.
+Trouble says she knows someone, but their details are on her phone or in her house. 
+Brun tells Dee not to worry as she'll find a way to get into their house
+She just needs to know where it is first
+Troble POV
+Trouble following Brun to Debug's house
+Mild concern, still feels she'll shocked from talking about her past
+Feels like she might faint at any moment and is very scared of what will happen if she's unconscious 
+Has essentially been seriously traumatized by the police pestering her for more details
+They have put out arrest warrants for Frank and several of his friends, but cause she's not heard any news of any of them actually being arrested she's sure that all she's has earned is a few days respite while they lay low
+Enter Debug's apartment 
+It's trashed, Brun pulls out phone and calls Sinéad.
+Asks if she trashed the apartment or if this was Beth or some other opportunist 
+Sinéad refuses to answer about an open case
+But says them having a look around won't cause the police problems
+Phone call ends, Brun mutters something about should have hit her when I had the chance
+Find address book, it's open
+Brun says starts planning to get in touch with the person mentioned 
+

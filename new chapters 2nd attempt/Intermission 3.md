@@ -21,7 +21,7 @@ The person started to cry at her. She had probably messed something up again.
 
 "What?" The familiar person asked trying to take her hand.
 
-"Mel met June..." The words tumbled out of her like a practiced prayer. "June found Jill. Jill helped Deh. And they all bore..." A name swam to the front of her mind. "Debug." Debug could feel herself weaping, but she didn't have the energy to wipe the tears or even stop crying.
+"Mel met June..." The words tumbled out of her like a practiced prayer. "June found Jill. Jill helped Deh. And they all bore..." A name swam to the front of her mind. "Me." Debug could feel herself weaping, but she didn't have the energy to wipe the tears or even stop crying.
 
 Sibéan sat in a chair next to her bed also crying clutching at her hand, trying to avoid the serious number of tubes coming out of her arm.
 
@@ -49,7 +49,7 @@ Which she didn't object to, of course. Under more relaxing circumstances that wo
 
 "If we ignore the contusions, concussion, and lacerations, yes." The nurse added.
 
-"When will she be well enough for a hug? She needs at least a hug after everything she's been through." Brun rolled her eyes, fighting the urge to make a scene. She knew the nurse wasn't to blame. Some scumbag out there was.
+"When will she be well enough for a hug? She needs at least a hug after everything she's been through." Brun rolled her eyes, fighting the urge to make a scene. She knew the nurse wasn't to blame. Some scumbag out there was, but the need to punch something was overwhelming. When she got home she was going to see if she could tear a phonebook in half as a way to channel these emotions.
 
 "According to her chart, gentle pats on her right shoulder for now. Or entwining fingers, her fingers managed to get out of this pretty unscathed. Normally for a battery and rape there's all sorts of defensive wounds on the hands and..." The nurse stopped talking, apparently catching on they weren't helping. 
 
@@ -61,4 +61,32 @@ Trouble remembers nowhere near enough
 
 ***
 
-(Scene of Sinéad trying to press Trouble to recall any other accomplices for Frank but she kinda repressed as much as she could)
+"That's about all I can think of at the moment." Trouble sighed and tried to relax. Sinéad sit next to her hospital bed with a stern look and the police detective she'd brought to take statements was looking frustrated with her. "I didn't realise how much of it I even could forget." 
+
+"It'll be a lot harder to pin anything beyond the assault he did today on him with just this." Trouble didn't know how to recall anything more, when she had talked about it with Bug all her problems just felt like they could flow out of her. But like this, she would have to package it all up in an organised way the police could use.
+
+"Maybe ask open ended questions? That seemed to help when Bug and I talked about it." Trouble didn't want to end up getting discharged with no protections from Frank from the police. She might never feel safe to go outside again.
+
+She could feel herself tearing up at the thought of being trapped in her home again.
+
+"Like about when he stated the robbery."
+
+"He what?!"
+
+"Yeah, it's what lead to me being trapped in my house for so long"
+
+"You were what?"
+
+"After I found out he started trying to blackmail me with something." Felicity felt like throwing up, she was talking as matter-of-factly as she could but inside she felt like death recalling how bad things used to be. That being that much at risk and at another's whims was still so close and so possible that it might happen again.
+
+"I think Bug called it Revenge Porn." Felicity started to lose control of herself. Her breathing became ragged, her vision swam with tears. She snatched a mug from her bedside and emptied itinto her lap before throwing up in it.
+
+Bug had been so mad when she had heard that. Her embrace had felt like it might break her bones, but somehow Bug had bruised herself doing so, but that rage had felt reassuring at the time the urge to fight on her behalf. Knowing it was a fight worth pursuing. She didn't know how much it had helped until now.
+
+"I want to see her." Felicity pleaded, she didn't know who she meant. But if she was allowed to roam the halls of the hospital her feet would tell her.
+
+"I just have a few more questions." The detective seemed ambivalent to her reaction to her own history. Sinéad also looked unimpressed.
+
+If they expected her to keep going, it must mean this was the expected result and she was supposed to put up with it.
+
+"Then get me a bucket because I think my cup is full."

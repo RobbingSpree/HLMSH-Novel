@@ -48,3 +48,9 @@ Brun talks to them in the intermission and comes to the conclusion Debug is stra
 
 ## Gavin "Gross" Mitchels
 a police officer that is friends with Frank and has been smoozing with management aiming for a promotion. 
+
+## Missie "Missile" Love
+A friend of Debug works in a cafe and does contract work as a red hat hacker for a security firm
+She has a massive crush on Debug, but is way to shy to do anything about it 
+Trans mtf and has had bottom surgery, can drop into a very deep voice as a party trick
+Got her nickname from looking like she was moments away from glomping people but was always too shy and too afraid of how she would be perceived to do so
