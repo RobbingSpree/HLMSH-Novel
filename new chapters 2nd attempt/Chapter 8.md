@@ -51,7 +51,7 @@ Her home and prison looked cold and empty, all the lights off and the early morn
 
 "Disposable gloves, you said he had police contacts so I found these under your bathroom sink. Let's not give them anything to use to find us." They held a hand full of gloves she recognized buying out.
 
-Trouble could sense how well Brun and Trouble worked together, they never stood too close to the other or got in one another's way as they essentially danced around a house they'd never been in before. She felt a twinge of jealousy of how in sync the two were, she had never had that with anyone before, if she excluded Frank and her Dad where she made herself as small as possible in their presence so they'd never notice her.
+Trouble could sense how well Brun and Debug worked together, they never stood too close to the other or got in one another's way as they essentially danced around a house they'd never been in before. She felt a twinge of jealousy of how in sync the two were, she had never had that with anyone before, if she excluded Frank and her Dad where she made herself as small as possible in their presence so they'd never notice her.
 
 "Check the bedroom for bras and underwear, grab three of both."
 

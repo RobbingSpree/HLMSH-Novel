@@ -133,7 +133,7 @@ Brun wrestled her mind out of her own self obsessive thoughts and counted the st
 
 She lead Trouble into the room, pointing out the bathroom and kitchenette, placing the food down on the counter in the latter, before leading them to the bed. The bed was enormous, part of why this room was set aside for use in sanctuary cases was very few guests ever asked for the room with the bed that could easily fit three people side by side. Trouble still looked exhausted on top of injured, even if Brun had just taken them out of a room with a bed, they still looked like they needed more rest. Even if they'd just been sleeping and resting they looked like they needed another whole week's worth of rest. Fetching her, now cooling, plate of food Brun tried to get Trouble's attention again.
 
-"I cooked you some warm food, just like a said I would." Giving the plate a gentle rap with the back of her nails to draw Trouble's attention while holding out a fork for them. "Warm food to warm your soul?"
+"I cooked you some warm food, just like I said I would." Giving the plate a gentle rap with the back of her nails to draw Trouble's attention while holding out a fork for them. "Warm food to warm your soul?"
 
 Watching Trouble eating gave Brun the exact type of emotion she was expecting, but she didn't like it. It seemed she very much did equate Trouble with a small creature in need of help, because she felt the same watching Trouble eat as she did when birds or critters got to the food she might set out of them from the kitchen scraps. She looked away, lay on the bed beside Trouble, and began scolding herself.
 

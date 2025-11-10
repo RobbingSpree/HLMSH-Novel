@@ -53,9 +53,9 @@ Trouble wants release
 
 ***
 
-Trouble felt like she could breath.
+Trouble felt like she could breathe.
 
-Actually relax and breath, the anxiety that she didn't realize had been her constant companion was almost non-existent today.
+Actually relax and breathe, the anxiety that she didn't realize had been her constant companion was almost non-existent today.
 
 She didn't want to dwell in self reflection at all, but in the same breath it was something she realized she desperately wanted. 
 
