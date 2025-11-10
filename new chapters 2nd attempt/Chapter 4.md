@@ -142,7 +142,7 @@ Debug walked back over to the reception desk, confident Beth would fall into her
 
 "Hi." The smallest voice Debug had ever heard answered. They must have been really going through it to sound like that, and their aggressively complete set of bruises and injuries made the same point but louder to Debug's reckoning. She understood why standing in Bee's shadow would help them.
 
-"Come over here to the desk, I'm the manager Beth Ahles I'll be happy to run you through the facilities you can use here and our protocols you can ask for from our helpful staff." 
+"Come over here to the desk, I'm the manager, Beth Ahles. I'll be happy to run you through the facilities you can use here and our protocols you can ask for from our helpful staff." 
 
 Debug watched them hesitate to let go of Bee's hand before going to get the lowdown from Manager Beth. With Bee's hands free, Debug swooped in to get a better read on what was going on.
 
