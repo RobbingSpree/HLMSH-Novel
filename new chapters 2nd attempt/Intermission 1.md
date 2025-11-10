@@ -14,7 +14,7 @@ Debug insists
 
 "Debug do...do you just eat stuff like this? Rice, potatoes and bread?" She asked trying to lead them over to a table to sit and chat more. It was very enlightening to find a topic Debug wasn't well versed on.
 
-"Well...you just need vegetables, grains and fiber for a balanced diet. And that's what this is." As debug sat down with their plate Trouble noted how carb heavy it was. They had clearly tried to grab some meat at the last second too as they also had the pan fried Whiting. But that did mean everything on their plate was pale or white in colour.
+"Well...you just need vegetables, grains and fiber for a balanced diet. And that's what this is." As Debug sat down with their plate Trouble noted how carb heavy it was. They had clearly tried to grab some meat at the last second too as they also had the pan fried Whiting. But that did mean everything on their plate was pale or white in colour.
 
 "I also don't know the specifics, but I know rice, bread and Potatoes all fall under the category of carbs. We should ask Brun to explain it properly, I'd hate for your diet to cause you to waste away."
 
