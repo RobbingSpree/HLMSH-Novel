@@ -102,7 +102,7 @@ Debug looked annoyed at her nails, as a single break ran almost entirely across 
 
 She'd been using it to pry open the key rings that held the hotel security fobs onto their room tags and after a solid hour of work she had finally hit a setback. And without a flathead on hand she'd have to give this project up again.
 
-"Don't look now." Manager Beth said as she burst into the room behind the reception where Debug was working. "But the Mama Bear is back with her cub in toe."
+"Don't look now." Manager Beth said as she burst into the room behind the reception where Debug was working. "But the Mama Bear is back with her cub in tow."
 
 Debug's only reply was a confused look, her mind was still on the previous nonsense Manager Beth had asked her to get started on. 
 
