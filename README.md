@@ -47,16 +47,16 @@ Total length: 46,000-ish words
 | 16             | 2600          | Written          | Brun, Fel           | 46.2k         |
 | 17             | 2900          | Written          | De, Brun, Fel, Brun | 49.1k         |
 | 18             | 2300          | Writing          | De, Fel, Brun       | 51.4k         |
-| 19             |               | Planning         | Fel, Brun, Fel      |               |
-| Act 2          |               | Almost done      | So close            |               |
-| Intermission 3 | 1100          | Written          | De, Brun, Fel       |               |
-| Attack 2       | 900           | Written          | De                  |               |
+| 19             | 2200          | Planning         | Fel, Brun, Fel      | 53.6k         |
+| Act 2          |               | And game         | Solid effort        | Wow           |
+| Intermission 3 | 1100          | Written          | De, Brun, Fel       | 54.7k         |
+| Attack 2       | 900           | Written          | De                  | 55.6k         |
 | 20             |               | Planning         | Fel, Brun           |               |
 | 21             |               | Planning         |                     |               |
-approx. page length (assuming the average page length of 275 words per page): 168
+approx. page length (assuming the average page length of 275 words per page): 202
 
 Latest posted chapter: 
-Intermission 1
+Intermission 2
 
 Royal Road: https://www.royalroad.com/fiction/129272/her-love-makes-safe-harbors
 

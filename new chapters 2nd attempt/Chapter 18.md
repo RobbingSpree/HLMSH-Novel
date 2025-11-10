@@ -112,37 +112,37 @@ Felicity was sure this was how it would end.
 
 Frank had appeared as if from nowhere, grabbed her in the way he often did around the neck in a headlock, and dragged her away.
 
-She tried to scream, but he put a knife in her mouth. The taste of blood was instant and she felt herself go limp in panic. He forced her teeth to close around the knife and hold it in place while he dragged her further. All she could think about was the sensation of trying to relax her tongue and it constantly flexing and lolling against the blade.
+She tried to scream, but he put a knife in her mouth. The taste of blood was instant and she felt herself go limp in panic. He forced her teeth to close around the knife and hold it in place while he dragged her further. All she could think about was the sensation of trying to relax her tongue and it constantly flexing and lolling against the blade. Thinking about not moving her tongue simply seemed to make it move more, blood pooled in her mouth and she puffed air through her teeth to try and let the blood out so she didn't choke on it and injured herself worse with this knife.
 
 She had no time to take in her surroundings as she was dragged further and further into the half-built building. She had no idea what sort of place this would end up being but it had so many twisting turns and nooks with construction material littered about even if she got free she wasn't confident she would be able to find her way back out.
 
-Frank found the spot he was looking for and threw Felicity to the ground. Gingerly she extracted the knife from her mouth and tried to keep it between Frank and herself.
+Frank found the spot he was looking for and threw Felicity to the ground. Gingerly she extracted the knife from her mouth and tried to keep it in her good hand between herself and Frank.
 
-"What a fucking catch. Not going to let you get away twice, you're mine forever now." Frank gloated, fishing zip ties out of his tool belt.
+"What a fucking catch. Not going to let you get away twice, you're mine forever now." Frank gloated, fishing zip ties out of his tool belt. "I'll take my time playing with you until you break."
 
-Felicity looked around and worked out what was to come. Behind her was a half finished bit of scaffolding with plywood cladding around it, she was going to be sealed in a temporary wall to torture her like Frank had done before with her whole house. 
+Felicity looked around and worked out what was to come. Behind her was a half finished bit of scaffolding with plywood cladding around it, she was going to be sealed in a temporary wall to torture her like Frank had done before with her whole house. There was almost nothing else around, just blank brick walls and a single pile of construction materials behind Frank covered in a tarp.
 
 Felicity brought the knife up trying to ward Frank away. She either needed to buy time to escape, or buy time for Brun to come find her. 
 
-The idea of Brun being impossibly capable clashed with the idea that Frank couldn't be fought. Felicity both wanted not to rely on hope too much, as fragile as it was, and to not dispair.
+The idea of Brun being supernaturally capable clashed with the idea that Frank couldn't be fought. Felicity was desperately afraid of the idea of hope, as fragile as it was, but she also couldn't let dispair undermine her.
 
 She screamed again. As loud as she could.
 
-Frank kicked the knife out of her hands and bore down on her like an animal.
+Frank kicked the knife out of her hands and bore down on her like an animal. Her scream cut short as she yelped in pain.
 
-His sweaty weight crushing the wind out of Felicity's lungs. He grabbed for her hands and tied them together with a zip tie. He stayed laying on top of her, seeming to enjoy the act. 
+His sweaty weight crushing the wind out of Felicity's lungs. He grabbed for her hands and tied them together with a zip tie. He stayed laying on top of her, seeming to enjoy the act. The stench of his sweaty, a smell Felicity was far too familiar with, seemed to ooze over her trying to find a way in.
 
-"I'll have all the time I want with you later. Once I've broken that stubborn streak of yours. We left another girl in here the other week and she made all the noise she could and no one found her. I wonder how long you'll last before you promise everything under the sun for some food and water?" He got back up on his feet, he looked haggard, but he clearly still have enough strength to do whatever he wanted to her.
+"I'm going to have so much fun with you later. Once I've broken that stubborn streak of yours that is." Frank laughed at a joke that he decided to share.  "We left another girl in here the other week and she made all the noise she could and no one found her. I wonder how long you'll last before you promise everything under the sun for some food and water?" He got back up on his feet, he looked haggard, but he clearly still have enough strength to do whatever he wanted to her.
 
 Frank grabbed her bound wrists and lifted her by them. The change in orientation almost made her choke on the blood pooling in her mouth, taking the opportunity she spat as much of it as she could at him.
 
-He cursed at her and threw her to the ground again. Not able to move her arms freely and with her cast pressing painfully on her other arm she tried to scream again, but it came out more a grunt as the wind was knocked out of her again.
+He cursed at her and threw her to the ground again clawing at his face. Not able to move her arms freely and with her cast pressing painfully on her other arm she tried to scream again, but it came out more a grunt as the wind was knocked out of her again as Frank kicked her.
 
 Once again, Frank picked her up and this time jammed her into the the space behind the scaffolding and zip tied her to some overhead bar. Her feet barely touched the ground and her shoulder were install in pain from the odd angle and bearing her weight.
 
-All she could see from where she was the inside of the space she'd been jammed into and very little of the construction site behind Frank. Just more featureless walls and a tall pile of construction materials covered in a tarp. The dispair was starting to sink in and beat the hope out of her.
+All she could see from where she was the inside of the space she'd been jammed into and very little of the construction site behind Frank. Just more featureless walls and that tall pile of stuff under a stained tarp. The dispair was starting to sink in and beat the hope out of her.
 
-Felicity opened her mouth and felt blood flow out and down onto her shirt, she spent a few moments trying to calm her breathing. The door before her, the opportunity might be the last she got ever. The risk of being injured further was very high, she fully expected it. But taking her opportunities until now had been what saved her.
+Felicity let her mouth fall open and felt blood flow out and down onto her shirt, she spent a few moments trying to calm her breathing. The door before her, the opportunity might be the last she got ever. The risk of being injured further was very high, she fully expected it. But taking her opportunities until now had been what saved her.
 
 She took one last breath.
 
