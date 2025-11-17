@@ -103,7 +103,7 @@ Trouble felt Debug tense up and their breath hitched as Sinéad gently touched t
 
 "Deborah, you know I just wanted you to be safe...I'm sorry...I tried to help cover your tracks when I saw what you did at the records office. That was foolish, Pet." Trouble felt she shouldn't be privy to such a personal conversation, she knew how fiercely protective Bug was about their past and personal details. But she also knew how much just having a friendly silent companion was when it felt like the world was crashing down around her.
 
-Trouble clasped her other hand over Bug's hand her fingertips could barely reach around the cast to add to the touch in a way she hopped was reassuringly. Debug looked at her, searching her face for some sort of answer. Before with her free hand pulling a brick of a mobile phone out of her pocket and handing it to Sinéad.
+Trouble clasped her other hand over Bug's. Her fingertips could barely reach around the cast to add to the touch in a way she hoped was reassuring. Debug looked at her, searching her face for some sort of answer, before with her free hand pulling a brick of a mobile phone out of her pocket and handing it to Sinéad.
 
 "I'll need your number to give you a call. Can't say when, but it won't be never." Debug tried looking Sinéad in the eye but broke eye contact after a moment. "Just give yourself a call from my phone so you have my number too, so you don't think it's a telemarketer."
 

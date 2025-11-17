@@ -9,7 +9,7 @@ Debug felt like her childhood self all over again, cuff marks and all.
 
 The familiar bite of metal into her wrists, the same powerless situation of needing to play possum to bore her captor, the same odd choice to trap her somewhere underground.
 
-One thing that her poor upbringing had given her that she did appreciate: narrow wrists. Once Beth had decided they were satisfied, they'd taken a few more photos and left. Then having waited dozens of minutes in silence, confident Beth wouldn't come right back, Debug stukbled back up on her feet and wriggled free of the low handcuff and picked the high one with a pick sewn into her shirt hem. 
+One thing that her poor upbringing had given her that she did appreciate: narrow wrists. Once Beth had decided they were satisfied, they'd taken a few more photos and left. Then having waited dozens of minutes in silence, confident Beth wouldn't come right back, Debug stumbled back up on her feet and wriggled free of the low handcuff and picked the high one with a pick sewn into her shirt hem. 
 
 When she was still living with Sinéad, they had mentioned it as a thing some people she arrested had done to be able to escape custody. She couldn't consider herself paranoid if it had worked and her paranoid had been proven justified. A trick she had wished she'd known as a child now earned her freedom as what Brunhilde had insisted was as an adult. She had never wished to be put in this sort of situation again, but when she was tormented by her memories at night planning her escape from possible repeats of her past was how she had dismissed those thoughts.
 
@@ -35,7 +35,7 @@ The need to somehow cleanse or overwrite the harm someone else did with worse ha
 
 Her stomach and hips got the worst deal out of the struggle. Countless grazes and small cuts decorated her skin, but the thrill of once again besting some controlling freak and showing what real pain was ran through her veins and leaked from her skin.
 
-Getting her bearings, Debug realised it was night time. So either Beth had kept her trapped for a while day or had gotten bored of her quite quickly. Regardless, the cover of darkness meant she could scuttle through the carpark to the hotel car. 
+Getting her bearings, Debug realized it was night time. So either Beth had kept her trapped for a while day or had gotten bored of her quite quickly. Regardless, the cover of darkness meant she could scuttle through the carpark to the hotel car. 
 
 Back when they had first claimed ownership of it, Debug had spent several days practicing breaking into it. Not in an effort to get better at breaking into cars, but because she was trying to reverse engineer a remote that would work on it and kept locking her tools inside and she was determined to not need to call a locksmith.
 
@@ -43,7 +43,7 @@ The shims she had used all that time ago was still hidden in a bush near the car
 
 Thankfully it was a warm night, so Debug barely noticed she was mostly naked as she streaked towards freedom.
 
-Trying to make no noise as she pitter patted to a halt next to the dilapidated vehicle. With swift practice she fetched the shim, jammed it through the gap in the driver side window and pulled the latch open. Making sure not to be too hasty and attract attention, Debug sat in the car and gently pulled the door closed, pulling again until it made the sound of the latch closing all the way.
+Trying to make no noise as she pitter-patted to a halt next to the dilapidated vehicle. With swift practice she fetched the shim, jammed it through the gap in the driver side window and pulled the latch open. Making sure not to be too hasty and attract attention, Debug sat in the car and gently pulled the door closed, pulling again until it made the sound of the latch closing all the way.
 
 In the front passenger seat, right where she had left them weeks prior, was her lockpick set.
 
@@ -87,7 +87,7 @@ She couldn't find the back either.
 
 She wasn't on her couch.
 
-Her worst fears of being kidnapped while she slept immediately and unhelpfully spang to mind. 
+Her worst fears of being kidnapped while she slept immediately and unhelpfully sprang to mind. 
 
 The normal thrum of her washing machine and the dishwasher was missing. The hum she couldn't stop her computer from making was gone.
 
@@ -101,7 +101,7 @@ They yelled something at her, so she scrambled away.
 
 Felicity fell backwards, the ground suddenly vanishing beneath her hands.
 
-As she struggled to right herself and find a way to defend against her assailant, they stepped back into view. The light from the hall illuminating Brun's shiluette.
+As she struggled to right herself and find a way to defend against her assailant, they stepped back into view. The light from the hall illuminating Brun's silhouette.
 
 The haze of fear in Trouble's mind faded. She had simply forgotten where she was.
 
@@ -131,11 +131,11 @@ Trouble was entirely lost.
 
 She hoped if she made agreeing noises and Brun kept talking she could work out what was going on.
 
-"Like, I've had boyfriends." Trouble's heart sank, she hadn't been holding out realistic hope that she could get more kisses. But now she'd feel bad remembering how Brun held her in their sleep and thinking fondly of it. "I didn't like dating them. But I did it. Cause it's what you do." Trouble stopped herself from getting excited, she couldn't handle a rollercoaster of emotional of Brun continuing to threaten the possibility they were bi at her. "And the way they...kinda forced sex into all sorts of situations...I don't know if I hated it before I was a teenager...but I do now."
+"Like, I've had boyfriends." Trouble's heart sank, she hadn't been holding out realistic hope that she could get more kisses. But now she'd feel bad remembering how Brun held her in their sleep and thinking fondly of it. "I didn't like dating them. But I did it. Cause it's what you do." Trouble stopped herself from getting excited, she couldn't handle a roller-coaster of emotional of Brun continuing to threaten the possibility they were bi at her. "And the way they...kinda forced sex into all sorts of situations...I don't know if I hated it before I was a teenager...but I do now."
 
 Trouble could understand Brun's perspective. There had been times both Brun and Trouble had given her the creeps accidentally when they reminded her of how Frank would come onto her. She knew she was just jumping at shadows, she trusted her friends, but that didn't stop her from getting those emotions. But it was the same as ignoring the voice that suggested she walk into traffic. It was very obvious is wasn't something she wanted, it was just her mind trying to deal with a itself.
 
-Trouble realized Brun had stalled again and tried making another agreeing noises to prompt them to continue, but when she looked over at her tall friend, the normally unphased and stoic Brun looked small and fragile. Not sure what her plans was, but knowing she had to do something, Trouble knelt on the bed and got closer than she considered polite. 
+Trouble realized Brun had stalled again and tried making another agreeing noises to prompt them to continue, but when she looked over at her tall friend, the normally unfazed and stoic Brun looked small and fragile. Not sure what her plans was, but knowing she had to do something, Trouble knelt on the bed and got closer than she considered polite. 
 
 "Do I make you uncomfortable if I'm this close?" Trouble asked, trying to get a baseline for what Brun was trying to convey.
 
@@ -167,7 +167,7 @@ Felicity broke free from Brunhilde's grip and knelt to look them in the eyes aga
 
 "What?" As she spoke she realized she was crying. Tears flowed freely down her face and she could see a serious wet patch on Brun's shoulder.
 
-"I didn't think you'd react that poorly to that news. I might have said it wrong, there's nothing wrong with kisses, I'm the..."
+"I didn't think you'd react that poorly. I might have said it wrong, there's nothing wrong with kisses, I'm the..."
 
 "If it's so fine, then kiss me." Felicity almost spat her words, she had so many emotions and no idea what to do with any of them. "If a kiss means so little, what's one or two between friends?"
 
@@ -199,4 +199,4 @@ Then darkness returned. It's cruel fingers weighing on Trouble's mind.
 
 The emotions she had been trying to shout out, to remove like a poison, now with nowhere to go, wracked her body with heavy sobs.
 
-Everything Felicity held dear theseast few weeks had apparently not existed or had left.
+Everything Felicity had held dear the last few weeks had apparently not existed or had left.
