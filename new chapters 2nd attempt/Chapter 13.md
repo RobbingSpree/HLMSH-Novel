@@ -75,7 +75,7 @@ The two of them had done a few laps of the mall, walking hand in hand, occasiona
 
 Unsure what had spooked Bug, Trouble tried to give her the same reassuring hand squeeze they'd been giving her all night as she scanned the area around and ahead of them for anyone suspicious. It took a moment, but she saw it.
 
-There was someone not listening to their friend talk to them about fifteen meters away looking directly at Debug and wiggling their eyebrows at her. A stout woman who looked like she was at risk of exploring out of her shirt, a look that reminded Trouble of the few days Brun wore an ill fitting shirt to work. If they did work out or had a job that required physical activity they didn't put nearly as much effort into their legs as from the waist down they weren't nearly as muscular. 
+There was someone not listening to their friend talk to them about fifteen meters away looking directly at Debug and wiggling their eyebrows at her. A stout woman who looked like she was at risk of exploding out of her shirt, a look that reminded Trouble of the few days Brun wore an ill fitting shirt to work. If they did work out or had a job that required physical activity they didn't put nearly as much effort into their legs as from the waist down they weren't nearly as muscular. 
 
 It was such an odd contrast Trouble turned and stared at Debug instead so as not to be rude or attract additional undue attention.
 
