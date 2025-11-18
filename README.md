@@ -17,9 +17,12 @@ act 1 publishing complete (10 chapters) 27000-ish words
 - 10 chapter(s) complete. (1-10)
 - Intermission 1 complete (1)
 act 2 writing in progress 21000-ish words
-- 6 chapters complete (11-14, Intermission 2, Attack 1)
-- 3 chapter in editing hell (15-17)
-- 3 chapters being written (18-19, Intermission 3)
+- 9 chapters complete (11-16, Intermission 2-3, Attack 1)
+- 3 chapter in editing hell (17-19)
+- 1 chapters being written (communication (reconciliation))
+act 3 writing in progress 
+- 2 chapters written (intermission 3, attack 2)
+- 1 chapter writing (20)
 
 Total length: 46,000-ish words
 
@@ -38,17 +41,18 @@ Total length: 46,000-ish words
 | Intermission 1 | 1300          | released         | Fel, brun           | 28.2k         |
 | Act            | 1             | released         | Yay                 | Woo           |
 | 11             | 2900          | released         | Fel, De             | 31.1k         |
-| 12             | 2100          | pending          | Fel, De             | 33.2k         |
-| Intermission 2 | 700           | pending          | Fel, Brun, Fel      | 33.9k         |
-| 13             | 3400          | pending          | Brun, Fel           | 37.3k         |
+| 12             | 2100          | released         | Fel, De             | 33.2k         |
+| Intermission 2 | 700           | released         | Fel, Brun, Fel      | 33.9k         |
+| 13             | 3400          | released         | Brun, Fel           | 37.3k         |
 | 14             | 2700          | pending          | De, Brun            | 40.0k         |
 | Attack 1       | 800           | pending          | De                  | 40.8k         |
-| 15             | 2800          | Written          | De, Fel             | 43.6k         |
-| 16             | 2600          | Written          | Brun, Fel           | 46.2k         |
+| 15             | 2800          | pending          | De, Fel             | 43.6k         |
+| 16             | 2600          | pending          | Brun, Fel           | 46.2k         |
 | 17             | 2900          | Written          | De, Brun, Fel, Brun | 49.1k         |
-| 18             | 2300          | Writing          | De, Fel, Brun       | 51.4k         |
-| 19             | 2200          | Planning         | Fel, Brun, Fel      | 53.6k         |
+| 18             | 2300          | Written          | De, Fel, Brun       | 51.4k         |
+| 19             | 2200          | Written          | Fel, Brun, Fel      | 53.6k         |
 | Act 2          |               | And game         | Solid effort        | Wow           |
+| Com (Rec)      |               | Writing          | Brun, Fel, De       |               |
 | Intermission 3 | 1100          | Written          | De, Brun, Fel       | 54.7k         |
 | Attack 2       | 900           | Written          | De                  | 55.6k         |
 | 20             |               | Planning         | Fel, Brun           |               |
