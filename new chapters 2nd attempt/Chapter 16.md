@@ -4,7 +4,7 @@ Mere moments ago Trouble had been all over her, plastering her with kiss after k
 
 But that made no sense. 
 
-Even now, if she thought back and imagined her last boyfriend, Chet, with his toned muscles and big hands and leering eyes, the notion of letting him touch her turned her stomach. But she wasn't opposed to guys, if she imagined that Trouble was packing a trouser snake she would have felt pleased all the same. 
+Even now, if she thought back and imagined her last boyfriend, Chet, with his toned muscles and big hands and leering eyes, the notion of letting him touch her turned her stomach. But she wasn't opposed to guys, if she imagined that Trouble was packing a trouser snake she would have felt pleased all the same. She leaned against Trouble's room door and slid into a siting position, propping her elbows on her knees and crossing her arms. Making sure not to injure herself to let her head fall and rest on her arms, since seeing Trouble get their cast she had become conscious how easily one could break an arm.
 
 Putting that aside, she tried to do what Trouble had yelled at her and imagined Debug trying to make a pass at her. This had been part of her problem all week, because Debug was so standoffish it was difficult to imagine them taking the initiative like that. When the two of them worked together, Debug would always make sure to stay an arm's length away, make sure they never accidentally bumped into one another. She had been so unable to think about how they would start it that she just skipped to the deed and got put off.
 
@@ -20,25 +20,25 @@ With a free arm, she would grip their chin, force them to look up, show them wha
 
 "Oh no...I want to fuck my friend." Brun shouted. "How did I go from being afraid she might do something to wanting to do her?"
 
-Brun stood back up, unlocked Trouble's room door and strode back in, turning on the overhead lights to their dim setting so she could find her friend.
+Brun stood back up, unlocked Trouble's room door and strode back in. With the door closed behind her, she turned on the overhead lights to their dim setting so she could find the creature within.
 
-Trouble wasn't difficult to find, they had ended up on the ground next to the bed and were sobbing quietly. She quietly scooped Trouble back up into her arms again and rather than put them back down on the bed, since this was the second time tonight they had fallen off, walked over and sat down on the armchair together settling Trouble on top of her.
+Trouble wasn't difficult to find, they had ended up on the ground next to the bed and were sobbing quietly. She quietly scooped Trouble back up into her arms again and rather than put them back down on the bed, since this was the second time tonight they had fallen off, walked over and sat down on the armchair together settling Trouble on her lap.
 
 They sat in silence Brun petting the form in her lap, their head resting on her chest. Trouble started to relax and doze off while Brun tried to have more dirty thoughts. 
 
-"What was so different about that than when I was imagining stuff before?" She mused. "Also, I missed. How did I miss? I tried to imagine Debug coming for me, and instead I..." In the utter darkness she knew she was blushing but was glad no one could see. "Maybe it's cause they're too cheeky, how can I get them to take the lead?" 
+"What was so different about that than when I was imagining stuff before?" She mused. "Also, I missed. How did I miss? I tried to imagine Debug coming for me, and instead I..." In the utter darkness she knew she was blushing and was glad no one could see. "Maybe it's cause they're too cheeky, how can I get them to take the lead?" 
 
-Brun's mind cast back and immediately landed on Trouble kneeling over them and giving them attention like an enthusiastic puppy. She wasn't sure why they had gotten so upset about the whole situation. Sure, she had expected some pushback, maybe Trouble getting upset with her if she had talked about something as frivolous as sex and kissing with someone who'd been abused in related acts.
+Brun's mind cast back and immediately landed on Trouble kneeling over them and giving them attention like an enthusiastic puppy. She wasn't sure why they had gotten so upset about the whole situation. Sure, she had expected some pushback, maybe Trouble getting upset with her if she had talked about something as frivolous as sex and kissing with someone like her who'd been abused in related acts.
 
 Instead she had gotten up in her face and scolded her for talking poorly of herself and saying that kisses weren't an option among friends.
 
-Brun tried to comprehend the idea of being worth getting mad on her behalf. It just felt wrong, like trying to spell a word without vowels: it would be possible but inherently wrong.
+Brun tried to comprehend the idea of being worth someone getting mad on her behalf. It just felt wrong, like trying to spell a word without vowels: it would be possible but inherently wrong.
 
-"If it's so fine, then kiss me." Brun repeating what Trouble had said minutes ago. She looked down at the sleeping puppy in her lap, their face serene and calm compared to how exhausted and upset they had looked when they woke up. The same, now mostly dried, streaks of tears still shone on their face, cutting into the layer of makeup on their cheek. Brun rubbed a thumb along the dried rivers, streaking the damp makeup and revealing some of Trouble's last bruises that had yet to fade.
+"If it's so fine, then kiss me." Brun repeating what Trouble had said minutes ago. She looked down at the sleeping puppy in her lap, their face serene and calm compared to how exhausted and upset they had looked when they woke up. The same, now mostly dried, streaks of tears still shone on their face in the dim light, cutting into the layer of makeup on their cheek. Brun rubbed a thumb along the dried rivers, streaking the damp makeup and revealing some of Trouble's last bruises that had yet to fade.
 
 "You were so upset of my thinking poorly of myself, I'd never seen you that angry. Why can you get angry for my sake but not your own?" Brun leaned her head down as far as she could and could only just put her lips on the top of Trouble's head. "I don't think this is what you meant when you said to kiss you."
 
-Brun did wonder how she would kiss Trouble. They were as short as Dee, so any intimate moment would be spoiled by Brun looming tall over the whole situation. But from how she had proven time after time, she could pick them up like a delicate doll. What's to stop her from having her way with her Princess once she was trapped in her arms.
+Brun did wonder how she would kiss Trouble. They were as short as Dee, so any intimate moment would be spoiled by Brun looming tall over the whole situation. But from how she had proven time after time, she could pick them up like a delicate doll. What's to stop her from having her way with her Princess once she was trapped in her arms?
 
 She could hold them like now, in the crook of her arm. With her free hand, purposefully running her finger tips from hip up to their chest. The buttons on Trouble's shirt, spots of cold under her fingers, yielding to a small bit of pressure. She now had access to the delicate skin underneath. The tiny fuzz of body hair resisting her touch and tickling her palm as she spread her fingers wide on Trouble's stomach. 
 
@@ -104,13 +104,13 @@ Trouble was having a hard time taking the current situation seriously.
 
 What Brun had said did sound serious, but all she had running through her head was the feeling of being wrapped in Brun's arms and waking up somehow already kissing.
 
-How could she have missed the most important part? Where she found out that Brun was gay.
+How could she have missed the most important part? Where she found out that Brun was gay, or at least open to kissing her like that. What had happened while she was asleep?
 
-Trouble came to a sudden stop, almost tumbling over. Brun kept walking, so she was unable to stand still while she combed through her memories. Brun had mentioned having boyfriends before, and they had kissed just her. But gay people didn't have boyfriends...except she had also had a boyfriend. 
+Trouble slowed to a stop trying to put all her energy into her mind. Brun kept walking, so Trouble was forced to keep walking while she combed through her memories. Brun had mentioned having boyfriends before, and they had kissed just her. But gay people didn't have boyfriends unless they're boys...except she had also had a boyfriend. 
 
-Trouble knew she was still sleep addled, but her mind was doing it's best to come to terms with if she could be confident that wasn't just a very wonderful one-of-a-kind kiss. Could she just ask Brun for a second one to compare? She couldn't actually be that selfish, but it would be fine to imagine. 
+Trouble knew she was still sleep addled, but her mind was doing it's best to come to terms with weather or not she could be confident that wasn't just a very wonderful one-of-a-kind kiss. Could she just ask Brun for a second one to compare? She couldn't actually be that selfish, but it would be fine to imagine. 
 
-As they got to the reception Trouble recognised one of the two people behind the desk as Daveo, the chef who kept trying to sneak fruit onto her plate when she ate in the dining area.
+As they got to the reception Trouble recognized one of the two people behind the desk as Daveo, the chef who kept trying to sneak fruit onto her plate when she ate in the dining area. They were leaning in a relaxed manner looking intensely at the receptionist on duty.
 
 Brun nodded at the person wearing the reception staff uniform and pushed Daveo's head against the wall in an oddly playful manner.
 
@@ -122,15 +122,15 @@ Brun beckoned Trouble to join the three of them behind the desk.
 
 Trying to not look as small as possible like her instincts where shouting at her to do, Trouble walked and stood next to Brun, unsure if they might actually hurt her.
 
-Brun suddenly lent against the wall next to Trouble's head making her jump, their arm wrapping around her head from the side to the top. Brun leant in and gave Trouble a gentle light kiss on their forehead and then using their chin pushed her head against the wall so that it makes a small bonk noise.
+Brun suddenly lent against the wall next to Trouble's head making her jump, their arm wrapping around her head from the side to the top. Brun leaned in and gave Trouble a gentle light kiss on their forehead and then using their chin pushed her head against the wall so that it makes a small bonk noise.
 
 There was a moment of tense silence.
 
 "Okay, thirty bucks if you do the same thing to me." Daveo said, eyes lighting up like he'd just discovered a new toy.
 
-"I'm done with kisses now, it's just biting from here on. And I only do services for guests, you're out of luck Daveo. Maybe ask Guy here if he'll be your partner." Brun pointed a thumb at the concierge staff who was turning incredibly red and was somehow both unable to look at and keep their eyes off Daveo. "Anyway. Come on Trouble, the roster is here."
+"I'm done with kisses now, it's just biting from here on. And I only do services for guests, you're out of luck Daveo. Maybe ask Guy here if he'll be your partner." Brun pointed a thumb at the reception staff who was turning incredibly red and was somehow both unable to look at and keep their eyes off Daveo. "Anyway. Come on Trouble, the roster is here."
 
-Brun lead Trouble further into the back room, somewhere she'd spent very little time despite Bug inviting Trouble to sit with her while she worked every weekend. With the practice of someone who knew their way around a space they managed to wade through the narrow room and it's multitude of knee high cabinates and bent at the hips to do something with the computer. Trouble couldn't tell what Brun was doing as she couldn't take her eyes of their bum.
+Brun lead Trouble further into the back room, somewhere she'd spent very little time despite Bug inviting Trouble to sit with her while she worked every weekend. The space was far too crowded and cluttered for her liking. With the practice of someone who was very familiar with a space they managed to wade through the narrow room and it's multitude of knee high cabinets and bent at the hips to do something with the computer. Trouble couldn't tell what Brun was doing as she couldn't take her eyes of their bum.
 
 Brun had been the picture of stoic and serious until tonight, she couldn't even fathom thinking about her like this. But the longer she gazed at the perfectly round bum on the lady in front of her the brighter the memory of Brun standing frozen wearing naught but two hard working towels burned in her mind. She could see it so vividly: the droplets of water glistening and beading down her perfect skin.
 
@@ -144,6 +144,6 @@ Brun had been the picture of stoic and serious until tonight, she couldn't even 
 
 "...I said Dee's been taken off the roster."
 
-"What?" Trouble's mind ground to a halt as Brun's words fell like a wrench amongst her mind's gears.
+"What?" Trouble's thoughts ground to a halt as Brun's words fell like a wrench amongst her mind's gears.
 
 "Dee's not on the roster. She's no anywhere." Brun pointed at the screen, Trouble craning her neck to see around her friends rear. "Well she is still in a few systems, but if she had left on her own terms she would have deleted or changed the admin accounts she had all over the system." Brun stood back up to her full height and grabbed Trouble. "I don't know what's happening any more. But I think something is wrong."
