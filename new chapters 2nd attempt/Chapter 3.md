@@ -6,7 +6,7 @@ tags:
 ---
 Brun snorted and her whole body twitched as she jerked back awake.
 
-"Not yet!" She announced as she pulled herself back from sleep, adrenalin pumping through her panicked mind, as she tried to remember what she had been doing before she let herself relax. Trouble turned to look at her with concern, holding what appeared to be the remains of a whole avocado they'd eaten with nothing but a fork.
+"Not yet!" She announced as she pulled herself back from sleep, adrenaline pumping through her panicked mind, as she tried to remember what she had been doing before she let herself relax. Trouble turned to look at her with concern, holding what appeared to be the remains of a whole avocado they'd eaten with nothing but a fork.
 
 "I have to..." Brun almost finished her sentence announcing her need to leave, before her previous words haunted her. She couldn't just tell Trouble she wouldn't leave her alone only to do exactly that. She decided to simply work out what she needed aloud, since her mind was still delirious with lust for sleep.
 
@@ -114,9 +114,9 @@ Spared the horrors of making a further ass of herself by the lift reaching her f
 
 Now she could have an unimpeded view of Trouble they seemed less cheerful than their voice implied moments ago. So Brun rushed unlocking the door and opened it to reveal the hallway into her apartment and the mess she had made this morning when the hooks holding umbrella had broke and when the umbrella hit the ground it had popped open and created a barricade preventing entry to her abode.
 
-Fumbling with the half broken umbrella to close it, resorting to taking off her rain jacket and jamming the umbrella inside the sleeve to keep it closed. She turned back to Trouble, who's face was an unreadable mask, and guestured for them to come inside. Once they got in front of her, Brun placed a hand on the middle of their back to lead them into the main room.
+Fumbling with the half broken umbrella to close it, resorting to taking off her rain jacket and jamming the umbrella inside the sleeve to keep it closed. She turned back to Trouble, who's face was an unreadable mask, and gestured for them to come inside. Once they got in front of her, Brun placed a hand on the middle of their back to lead them into the main room.
 
-"This is the combination kitchen, dining, lounge and book nook room." She pointed to each section in turn, but it was mostly just an island bench seperating the kitchen from the lounge and comfortable chair that sat at the other end of the room. "And those doors lead to the laundry, that to the combination shower and toilet, and that one to my bed." She pointed each of to the three doors that lead out of the main room in turn.
+"This is the combination kitchen, dining, lounge and book nook room." She pointed to each section in turn, but it was mostly just an island bench separating the kitchen from the lounge and comfortable chair that sat at the other end of the room. "And those doors lead to the laundry, that to the combination shower and toilet, and that one to my bed." She pointed each of to the three doors that lead out of the main room in turn.
 
 Finished with the tour, Brun lead Trouble to the chair flanked by floor to ceiling bookshelves. 
 
