@@ -131,7 +131,7 @@ As she undressed the thought crossed her mind that she should close the door bet
 
 Trouble thought they might have slipped into a dream. 
 
-The apartment was small, but cosy. She could hear the sound of the shower running in the next room and see the steam trying to sneak out. The warmth of the room and the same smell of coconut and olives reassured her immensely.
+The apartment was small, but cozy. She could hear the sound of the shower running in the next room and see the steam trying to sneak out. The warmth of the room and the same smell of coconut and olives reassured her immensely.
 
 She was now well settled in the book nook chair, had found a book stuck down the side of the cushion about how to not burn down your house with a pressure cooker. Still wearing the puffy coat Brunhilde had put on her an hour ago, and now sitting in their favorite spot. Trouble felt herself yearning for Brun to think of her as warmly as she seemed to when talking about her house.
 
