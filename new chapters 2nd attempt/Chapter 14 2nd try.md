@@ -102,7 +102,7 @@ Debug needed to be relied on right now, and letting any of her emotions about Si
 
 Trouble seemed like they needed reliable friends and Debug was sure if she let anyone know how fragile she actually was she wouldn't be able to consider herself strong enough to be relied upon ever again.
 
-Since trouble hadn't stirred the whole time she had been stewing, Debug pulled out their brick of a phone and called the nurse's hotline to work out if she needed to take Trouble back to the hospital.
+Since Trouble hadn't stirred the whole time she had been stewing, Debug pulled out their brick of a phone and called the nurse's hotline to work out if she needed to take Trouble back to the hospital.
 
 ***
 

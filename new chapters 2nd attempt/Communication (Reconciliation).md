@@ -1,6 +1,6 @@
 Brun half stood in the ambulance, fighting the wobble and bounce of the vehicle trying to unseat her and more importantly fighting the urge to scream.
 
-Trouble lay on a gerny, strapped in place while the whole ambulance swayed through traffic and seemingly over every pothole. Fresh bruises already blooming on her skin along her arm and around her neck, and her entire shirt stained red and brown from the construction dust and mysterious other fluids Brun wanted to ignore. Trouble's stomach had a large wound pad stuck on to cover the gash she had got from Frank's handiwork, and Brun had been asked to apply constant pressure while they drove making ignoring why Trouble's shirt was stained a lot harder.
+Trouble lay on a gurney, strapped in place while the whole ambulance swayed through traffic and seemingly over every pothole. Fresh bruises already blooming on her skin along her arm and around her neck, and her entire shirt stained red and brown from the construction dust and mysterious other fluids Brun wanted to ignore. Trouble's stomach had a large wound pad stuck on to cover the gash she had got from Frank's handiwork, and Brun had been asked to apply constant pressure while they drove making ignoring why Trouble's shirt was stained a lot harder.
 
 Next to Trouble was the a paramedic, with sea legs a crab fisher would envy, doing impressive work filling Debug's arms with IV lines. Brun had been avoiding looking at Dee for most of the drive so far, her heart twisting any time she glanced and saw the seemingly unstoppable woman brought low. Dee had, in her mind, been the one thing that was beyond everyone's reach, either through her skittishness or what she now knew as paranoia rather than preparedness. But now, she was in some kind of restraint around her hips and legs and had a blanket covering her lower body for modesty since they'd cut her out of her clothes before getting her into the ambulance.
 
@@ -34,6 +34,17 @@ The doctor watched Brun storm off quietly shaking her head before turning back t
 
 "I love her." Trouble answered. An oddly tense silence held over the room, Trouble noticed someone dashing and amazing was in the doorway looking sheepish.
 
-"Her name is Felicity Harbour, I've got her Medicare number here too. I told you we wrote it down in my medical record last time she was here." Brun looked like she had run a very long way with how flushed her face was, but the nurse's station was only a few metres away as far as Toruble could see out the gap in the curtains. "She was being stalked by someone with ties to the police so we wanted to make sure you lot didn't accidentally dox her."
+"Her name is Felicity Harbour, I've got her Medicare number here too. I told you we wrote it down in my medical record last time she was here." Brun looked like she had run a very long way with how flushed her face was, but the nurse's station was only a few meters away as far as Trouble could see out the gap in the curtains. "She was being stalked by someone with ties to the police so we wanted to make sure you lot didn't accidentally dox her."
 
 Trouble couldn't work out why Brun wouldn't meet here eyes. 
+
+"Princess..." Trouble asked, remembering that if she was in the hospital she had to call Brun by the name she had picked out. "Can I have another kiss? I don't feel good and a kiss would help." Trouble had meant to ask about where her wallet was, but seeing her Princess again had rearranged her priorities, she felt like she was in a dream with how the ideas in her mind kept sliding past one another.
+
+Brun looked even more tired and must have yawned while Trouble wasn't looking cause she now had tears at the corners of her eyes.
+
+"I...I have to go check on Dee, I'll come back and give you a kiss later. Just try and rest until then, Love." Trouble pouted as she watched Brun flee from her sight.
+
+"I'm going to HAVE to ask the nurses what's going on here, you three are such a throuple." The doctor said reading the piece of paper Brun had handed them and turning to leave also.
+
+***
+
