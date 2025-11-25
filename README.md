@@ -52,9 +52,9 @@ Total length: 46,000-ish words
 | 18             | 2300          | Written          | De, Fel, Brun       | 51.4k         |
 | 19             | 2200          | Written          | Fel, Brun, Fel      | 53.6k         |
 | Act 2          |               | And game         | Solid effort        | Wow           |
-| Com (Rec)      |               | Writing          | Brun, Fel, De       |               |
-| Intermission 3 | 1100          | Written          | De, Brun, Fel       | 54.7k         |
-| Attack 2       | 900           | Written          | De                  | 55.6k         |
+| Com (Rec)      | 1800          | Writing          | Brun, Fel, De       | 55.4k         |
+| Intermission 3 | 1100          | Written          | De, Brun, Fel       | 56.5k         |
+| Attack 2       | 900           | Written          | De                  | 57.4k         |
 | 20             |               | Planning         | Fel, Brun           |               |
 | 21             |               | Planning         |                     |               |
 approx. page length (assuming the average page length of 275 words per page): 202

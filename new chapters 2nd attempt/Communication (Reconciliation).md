@@ -60,7 +60,7 @@ The two voices in the room both shouted something and spoke over one another, sh
 
 Once they calmed down the brighter voice tried to address her again.
 
-"Are you okay, Love? You've been out of it for a few days." Was that her name? Love? It felt like the wrong shape, it was too kind and hopeful of a name for something broken like her. But she felt like any names in general didn't fit who they applied to, so she couldn't argue.
+"Are you okay, Love? You've been out of it for a few days." Was that her name? Love? It felt like the wrong shape, it was too kind and hopeful of a name for something broken like her. But she felt like all names didn't fit who they applied to, so she couldn't argue.
 
 "I'm Love?" She asked, the words felt foreign as she said them.
 
@@ -68,3 +68,12 @@ Once they calmed down the brighter voice tried to address her again.
 
 "Shush you." The deeper voice with it's wonderful rasp was higher up, if her eyes worked she would have had to look up from where she was lying to look at them. She imagined the pair talking to her being a dignitary sitting next to her and their bodyguard standing behind them.
 
+She heard noises of shuffling and the bed she was on tipping to the side towards the voices.
+
+"I do love you by the way." Somehow these words felt like they lit a fire in her. Her body knew it was in pain, it was currently too polite to say so, but the hesitancy to breath or move told her everything she needed to know. But those words, from that voice. It felt like the tiny delicate flower that was her heart started to bloom. 
+
+Tears sprung to her eyes, still too heavy to open, and her breath felt hot and damp. Words couldn't express what hearing that meant. She didn't know who had said it, but she knew they were very important.
+
+"Me too!" The bright voice piped up, moving about and causing the chair they were in to squeak. "You mean the world to me, you make me feel like I'm safe and protected. You both do. I want to do that for you too." The bright voice was audibly building courage, almost squeaking herself as she tried to encourage herself to keep going. "I love you, and I want to be your safe harbor too."
+
+The emotions welled within her, the small and broken cup that was her heart overflowed and a wide smile pushed itself past the grimace on her face and the tears flowed freely.
