@@ -1,1 +1,3 @@
-words words words 
+Brun couldn't be at a loss for words, everyone else seemed to have taken that role already. 
+
+If she didn't know better, Brun would think Trouble's mental health improved by having a couple of nurses fuss over her and document all her injuries. When she had first been admitted, Brun had been spending more time with Dee since Sinéad had been making excuses, when she had seen her awake for the first time they had been quite out of it but was enthusiastic for affection. About a day later, she came back to find the nurses fussing over Trouble and physically removing Sinéad from the room

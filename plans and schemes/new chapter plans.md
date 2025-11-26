@@ -618,7 +618,7 @@ Sinéad tries to get details of Debug's attack out of her
 ## Chapter 20
 Brun POV
 Brun is so mad
-Dee is very in and out of consciousness and hasn't given up her attacker
+Dee is very in and out of consciousness and hasn't given up her attacker to Brun
 Trouble is essentially silent and refuses to talk and cries if pressed to
 Trouble is being discharged today and Brun doesn't feel she's safe at the hotel
 Offers to let her stay at her house forever.
