@@ -55,7 +55,7 @@ With a car and her picks, she could technically go anywhere. But where could she
 
 Brun had waited all shift for Dee to return, perhaps all her imagining of them coming to hate her had made it real.
 
-She felt she knew Debug well enough that if they said they would do something, she couldn't trust it would happen. They said they were coming back, which meant it would happen. They were one of the most reliable people she knew, even if they were a bit stand-offish and skittish from time to time. 
+She felt she knew Debug well enough that if they said they would do something, she could trust it would happen. They said they were coming back, which meant it would happen. They were one of the most reliable people she knew, even if they were a bit stand-offish and skittish from time to time. 
 
 As usual for this week, rather than be left alone with her thoughts, something interrupted them and the reception desk phone rang.
 
@@ -133,7 +133,7 @@ She hoped if she made agreeing noises and Brun kept talking she could work out w
 
 "Like, I've had boyfriends." Trouble's heart sank, she hadn't been holding out realistic hope that she could get more kisses. But now she'd feel bad remembering how Brun held her in their sleep and thinking fondly of it. "I didn't like dating them. But I did it. Cause it's what you do." Trouble stopped herself from getting excited, she couldn't handle a roller-coaster of emotional of Brun continuing to threaten the possibility they were bi at her. "And the way they...kinda forced sex into all sorts of situations...I don't know if I hated it before I was a teenager...but I do now."
 
-Trouble could understand Brun's perspective. There had been times both Brun and Trouble had given her the creeps accidentally when they reminded her of how Frank would come onto her. She knew she was just jumping at shadows, she trusted her friends, but that didn't stop her from getting those emotions. But it was the same as ignoring the voice that suggested she walk into traffic. It was very obvious is wasn't something she wanted, it was just her mind trying to deal with a itself.
+Trouble could understand Brun's perspective. There had been times both Brun and Debug had given her the creeps accidentally when they reminded her of how Frank would come onto her. She knew she was just jumping at shadows, she trusted her friends, but that didn't stop her from getting those emotions. But it was the same as ignoring the voice that suggested she walk into traffic. It was very obvious is wasn't something she wanted, it was just her mind trying to deal with a itself.
 
 Trouble realized Brun had stalled again and tried making another agreeing noises to prompt them to continue, but when she looked over at her tall friend, the normally unfazed and stoic Brun looked small and fragile. Not sure what her plans was, but knowing she had to do something, Trouble knelt on the bed and got closer than she considered polite. 
 
