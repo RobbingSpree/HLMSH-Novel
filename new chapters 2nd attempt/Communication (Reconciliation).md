@@ -60,7 +60,7 @@ The two voices in the room both shouted something and spoke over one another, sh
 
 Once they calmed down the brighter voice tried to address her again.
 
-"Are you okay, Love? You've been out of it for a few days." Was that her name? Love? It felt like the wrong shape, it was too kind and hopeful of a name for something broken like her. But she felt like all names didn't fit who they applied to, so she couldn't argue.
+"Are you okay, Love? You've been out of it for a few days." Was that her name? Love? It felt like the wrong shape, it was too kind and hopeful of a name for something broken like her. But she felt like all names didn't fit who they applied to, so she couldn't argue with it.
 
 "I'm Love?" She asked, the words felt foreign as she said them.
 
