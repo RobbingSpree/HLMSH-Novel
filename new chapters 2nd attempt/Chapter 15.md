@@ -11,7 +11,7 @@ The familiar bite of metal into her wrists, the same powerless situation of need
 
 One thing that her poor upbringing had given her that she did appreciate: narrow wrists. Once Beth had decided they were satisfied, they'd taken a few more photos and left. Then having waited dozens of minutes in silence, confident Beth wouldn't come right back, Debug stumbled back up on her feet and wriggled free of the low handcuff and picked the high one with a pick sewn into her shirt hem. 
 
-When she was still living with Sinéad, they had mentioned it as a thing some people she arrested had done to be able to escape custody. She couldn't consider herself paranoid if it had worked and her paranoid had been proven justified. A trick she had wished she'd known as a child now earned her freedom as what Brunhilde had insisted was as an adult. She had never wished to be put in this sort of situation again, but when she was tormented by her memories at night planning her escape from possible repeats of her past was how she had dismissed those thoughts.
+When she was still living with Sinéad, they had mentioned it as a thing some people she arrested had done to be able to escape custody. She couldn't consider herself paranoid if it had worked and her paranoia had been proven justified. A trick she had wished she'd known as a child now earned her freedom as what Brunhilde had insisted was as an adult. She had never wished to be put in this sort of situation again, but when she was tormented by her memories at night planning her escape from possible repeats of her past was how she had dismissed those thoughts.
 
 Some of Beth's words that they'd spat at her while attacking her made her whole life sound like some kind of bad joke.
 

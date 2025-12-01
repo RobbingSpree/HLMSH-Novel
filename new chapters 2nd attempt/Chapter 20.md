@@ -1,6 +1,6 @@
 Brun couldn't be at a loss for words, everyone else seemed to have taken that role already. 
 
-If she didn't know better, Brun would think Trouble's mental health improved by having a couple of nurses fuss over her and document all her injuries. When she had last been brought to the hospital it had seemed like a turning point for them, they smiled more and had been more open after then. For this visit Brun had been spending more time with Dee since Sinéad had been making excuses and Brun was firm in her opinion that both women needed company even if they were in and out of consciousness.
+If she didn't know better, Brun would think Trouble's mental health was improved by having a couple of nurses fuss over her and document all her injuries. When she had last been brought to the hospital it had seemed like a turning point for them, they smiled more and had been more open after then. For this visit Brun had been spending more time with Dee since she had a lot more doctor checkups and Sinéad had bailed on any responsibilities she had claimed were important to her.
 
 When she had seen Trouble awake for the first time they had been quite out of it but seemed enthusiastic for affection despite their harrowing encounter that had put them back in hospital. But about a day later, she came back to find the nurses fussing over Trouble and physically removing Sinéad from the room which smelt like someone had thrown up. But from that point on, Trouble was almost entirely mute.
 
@@ -12,13 +12,12 @@ Speaking of in the dark, Debug had somehow been even less forthcoming with answe
 
 But she couldn't be without words or a plan. 
 
-Today was when Trouble was being discharged, and they had been having nightmares about finding Debug injured at the hotel rather than the construction site. And Brun couldn't exactly reassure her the hotel was safe, she still had no answer as to how Dee got hurt or what had happened, and Beth wasn't answering her calls so she couldn't ask them either. She didn't know where she was taking Trouble once the nurses finished the discharge paperwork. 
-
-Since they had said it would still be an hour or so, Brun wheeled Trouble upstairs to Debug's room in the short stay ward. 
+Today was when Trouble was being discharged, and they had been having nightmares about finding Debug injured at the hotel rather than the construction site. And Brun couldn't exactly reassure her the hotel was safe, she still had no answer as to how Dee got hurt or what had happened, and Beth wasn't answering her calls so she couldn't ask them either. She didn't know where she was taking Trouble once the nurses finished the discharge paperwork. But since they had said it would still be an hour or so, Brun wheeled Trouble upstairs to Debug's room in the short stay ward. 
 
 Trouble reached back and put her hand on Brun's to get her attention and bring her back into the present, before pointing at the sign they were approaching. 
 
-"Short stay ward." Brun read aloud, not sure what Trouble was trying to say until she watched as they underlined the word short as they passed the sign. "Yeah, I hope Dee's only here for a short while too. She got really banged up, but nothing serious." Brun had been practicing that lie so no one could hear any worry creep into her voice.
+"Short stay ward." Brun read aloud, not sure what Trouble was trying to say until she watched as they underlined the word short as they passed the sign. "Yeah, I hope Dee's only here for a short while before we take her home. She got really banged up, but nothing serious." Brun had been practicing that lie so no one could hear any worry creep into her voice.
 
-Home. Brun thought to herself. Where was home for Trouble now? She knew one person she could ask, and as they rounded the corner she saw her. Flanked by a nurse checking the two IV lines attached to her, Debug saw the pair approach and Brun tried to count the number of different emotions she could see pass over their face. Hope was what Debug's face settled on, hope that they brought good news.
+Home. Brun thought to herself. Where was home for Trouble now? She knew one person she could ask, and as they rounded the corner she saw them. Flanked by a nurse checking the two IV lines attached to her, Debug looked up as she approached and Brun tried to count the number of different emotions she could see pass over their face. Hope was what Debug's face settled on, hope that they brought good news.
 
+"Trouble's been cleared for discharge today, the nurses say she'll be good to go home in about an hour. But I wanted to talk to you about that." Brun tried to keep a straight face, her heart felt like it was being twisted apart at the thought of 
