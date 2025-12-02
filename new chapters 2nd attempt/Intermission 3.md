@@ -1,3 +1,10 @@
+---
+tags:
+  - Debug
+  - Brunhilde
+  - Felicity
+  - trigger
+---
 Deborah recalls it all
 ***
 
@@ -39,7 +46,7 @@ Brun knows murder isn't the answer
 
 "My girlfriend is in there, recovering from god knows what. And you're saying while fighting the world's most homophobic flight of stairs, she was raped?" As the words spilled out of Brun her voice kept raising higher and higher until it started to sound like a squeak. "And it's a good thing we don't have any leads on the creep that did it?" Brun had been trapped into calling Dee her girlfriend when she learned they had listed her as their emergency contact and had ticked defacto spouse on the form. She knew Dee could bend paperwork to suit her needs, but this probably warranted talking to her first.
 
-It was however a fact she didn't correct. She never would. Under more pleasant circumstances would have been touched they thought of her as someone who would come to their rescue, someone they would live with for long enough the government needed to be told. But she had to agree to a lot of stuff quite suddenly to not lose her access to her friend while they were treated.
+It was, however, a fact she didn't correct. She never would. Under more pleasant circumstances would have been touched they thought of her as someone who would come to their rescue, someone they would live with for long enough the government needed to be told. But she had to agree to a lot of stuff quite suddenly to not lose her access to her friend while they were treated.
 
 Some of the nurses had got wires crossed and had congratulated her on dating Trouble instead, remembering her from her other recent visit with a damaged waif. And because she was more preoccupied with keeping up with Dee's progress and the doctors informing her just how many ways from Sunday Dee had fucked herself by sleeping on a back ally while bleeding out in clothes she had stolen from a dumpster, the consensus between the nurses now become that they thought she was dating both Dee and Trouble.
 
@@ -65,7 +72,7 @@ Trouble has no choice but to say it
 
 "It'll be a lot harder to pin anything beyond the assault he did yesterday with just this." Trouble didn't know how to recall anything more, when she had talked about it with Bug all her problems just felt like they could flow out of her and never return. Like they could vanish into the depths of Bug's kind eyes and pull the wounds right off her heart. But Sinéad wasn't as safe or comforting as Bug. Instead she would have to package it all up in an organised and digestible way the police could use.
 
-"Maybe ask open ended questions? That seemed to help when Bug and I talked about it." Trouble didn't want to end up getting discharged with no protections from Frank from the police. She might never feel safe to go outside again, the memory of her dates with Bug and Brun and the desire to have more of them was an effective motivating force.
+"Maybe ask open ended questions? That seemed to help when Bug and I talked about it." Trouble didn't want to end up getting discharged with no protections from Frank or from his police friends. She might never feel safe to go outside again, the memory of her dates with Bug and Brun and the desire to have more of them was an effective motivating force.
 
 She could feel herself tearing up at the thought of being trapped in her home again.
 
@@ -79,7 +86,7 @@ She could feel herself tearing up at the thought of being trapped in her home ag
 
 "After I found out...he started trying to blackmail me with something." Felicity felt like throwing up, she was talking as matter-of-factly as she could but inside she felt like death trying to explain how things used to be. 
 
-She had been in denial for so long, wanting to pretend that it was just stress or anxiety rather than malevolence. That being that much at risk and at another's cruel whims was still so close and so possible that it might happen again.
+She had been in denial for so long, wanting to pretend that it was just stress or anxiety rather than malevolence. That being that much at risk and at the mercy of someone's cruel whims was still so close and so possible that it might happen again.
 
 "I think Bug called it Revenge Porn." Felicity started to lose control of herself. Her breathing became ragged, her vision swam with tears. She snatched a mug from her bedside and emptied it into her lap before throwing up in it.
 

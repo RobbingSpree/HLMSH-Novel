@@ -1,3 +1,9 @@
+---
+tags:
+  - Brunhilde
+  - Debug
+  - Felicity
+---
 Brun half stood in the ambulance, fighting the wobble and bounce of the vehicle trying to knock her over and more importantly fighting the urge to scream.
 
 Trouble lay on a gurney, strapped in place while the whole ambulance swayed through traffic and seemingly over every pothole. Fresh bruises already blooming on her skin along her arm and around her neck, and her entire shirt stained red and brown from the construction dust and mysterious other fluids Brun wanted to ignore. Trouble's stomach had a large wound pad stuck on to cover the gash she had got from Frank's handiwork, and Brun had been asked to apply constant pressure while they drove making ignoring why Trouble's shirt was stained a lot harder.

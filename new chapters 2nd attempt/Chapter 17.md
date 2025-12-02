@@ -1,3 +1,10 @@
+---
+tags:
+  - Debug
+  - Brunhilde
+  - Felicity
+  - trigger
+---
 Debug felt like everything was falling apart. Her life, her patience, her capacity to hold her pee.
 
 She had driven the car for about five minutes before she had the panic inducing thought that since the car was hotel property: Beth might report it stolen once they noticed it was gone and she didn't need the police appearing and making things worse right now. So she was on a harsh time limit to abandon the car.

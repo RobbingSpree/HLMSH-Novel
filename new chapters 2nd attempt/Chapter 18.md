@@ -1,3 +1,10 @@
+---
+tags:
+  - Brunhilde
+  - Debug
+  - Felicity
+  - trigger
+---
 Debug woke with a start. She couldn't understand what was being yelled at her, but she knew they were furious.
 
 She could see daylight, and someone tall casting a shadow over her yelling obscenities. 

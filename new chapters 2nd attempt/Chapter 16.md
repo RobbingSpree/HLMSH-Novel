@@ -1,3 +1,9 @@
+---
+tags:
+  - Brunhilde
+  - Felicity
+  - Sexy
+---
 Brun had been running her mind ragged the last week trying to work out what was wrong with herself. Maybe she just needed to be confronted to see clearly.
 
 Mere moments ago Trouble had been all over her, plastering her with kiss after kiss. But despite how her imagination had warned it had been fine, pleasant even. She wasn't scared or worried, if not for her concern about why Trouble had seemed so upset it had felt fun to let them attack her. 

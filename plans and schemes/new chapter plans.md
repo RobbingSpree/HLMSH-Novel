@@ -330,7 +330,7 @@ Debug: closed off
 Fel: Live wire
 
 
-# Intermission 1
+# [Intermission 1]
 Some short chapters filling the 2 week gap between act 1 and 2
 
 Debug and Trouble pick a nickname for Debug, settle on Bug, chat about both having no boob compared to Brun
@@ -379,7 +379,7 @@ almost forget they wanted to make Debug feel as bad as they did
 
 **maybe have a Brun scene at the end? About wondering why Trouble went**
 
-## Intermission 2
+## [Intermission 2]
 Another set of small scene fitting in the time skip gap between chapter 12 and 13
 
 Felicity psyches herself up for practicing putting on makeup to hide her bruises
@@ -427,7 +427,7 @@ have them send trouble away
 get cornered by beth about their proclivities
 have the security footage of debug and trouble kissing in the reception while brun seemingly watches put in front of them
 
-## Chapter 15 
+## [Chapter 15] 
 
 Debug POV
 Have a lot of flashbacks to childhood
@@ -471,7 +471,7 @@ Or it can be a follow on from a very good joke or game
 There's not a wrong way to do it
 And the only thing she SHOULD seek out is a partner who'll not pressure her to do sex a way she doesn't like
 
-## chapter 16
+## [Chapter 16]
 
 Brun POV
 She had only just gone outside the door to think
@@ -488,7 +488,7 @@ see she's been taken off all the shifts and the roster entierly
 Brun says she had a weird call from Beth about debug going missing
 but that taking them off all shifts is a bit much
 
-## chapter 17
+## [Chapter 17]
 Debug POV
 Escaping in car
 Get new clothes from charity bin
@@ -517,7 +517,7 @@ Brun knows why debug didn't mention her mom, she kinda a jerk
 But she does spot the blood debug left getting in the car
 Everyone gets in cop car
 
-## chapter 18
+## [Chapter 18]
 Debug POV
 Woken up by business owner yelling at her for loutering
 Cold 
@@ -547,7 +547,7 @@ Somehow Debug comes out of nowhere and decks him with a length of wood
 Trouble sees the trail of blood leading to what was Debug's hiding spot
 Trouble screams as loud as she can to get Brun on the scene 
 
-## chapter 19
+## [Chapter 19]
 
 Brun POV
 Running about the construction site, bunch of empty building and scaffolding
@@ -568,7 +568,7 @@ Have fight
 Debug collapses from blood loss and injuries and fever
 
 
-## intermission 3
+## [Intermission 3]
 Debug has a dissociative episode
 Brun gets big mad about Dee's injuries
 Fel has a panic attack and persists while discussing her past
@@ -612,10 +612,10 @@ Ok, so I kinda made none of that possible and most of these happen in chapter 17
 Need to rewrite this overarching plot
 
 
-## Attack 2
+## [Attack 2]
 Sinéad tries to get details of Debug's attack out of her
 
-## Chapter 20
+## [Chapter 20]
 Brun POV
 Brun is so mad
 Dee is very in and out of consciousness and hasn't given up her attacker to Brun

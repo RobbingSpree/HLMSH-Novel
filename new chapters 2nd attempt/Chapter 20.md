@@ -1,3 +1,7 @@
+---
+tags:
+  - Brunhilde
+---
 Brun couldn't be at a loss for words, everyone else seemed to have taken that role already. 
 
 If she didn't know better, Brun would think Trouble's mental health was improved by having a couple of nurses fuss over her and document all her injuries. When she had last been brought to the hospital it had seemed like a turning point for them, they smiled more and had been more open after then. For this visit Brun had been spending more time with Dee since she had a lot more doctor checkups and Sinéad had bailed on any responsibilities she had claimed were important to her.
@@ -20,4 +24,8 @@ Trouble reached back and put her hand on Brun's to get her attention and bring h
 
 Home. Brun thought to herself. Where was home for Trouble now? She knew one person she could ask, and as they rounded the corner she saw them. Flanked by a nurse checking the two IV lines attached to her, Debug looked up as she approached and Brun tried to count the number of different emotions she could see pass over their face. Hope was what Debug's face settled on, hope that they brought good news.
 
-"Trouble's been cleared for discharge today, the nurses say she'll be good to go home in about an hour. But I wanted to talk to you about that." Brun tried to keep a straight face, her heart felt like it was being twisted apart at the thought of 
+"Trouble's been cleared for discharge today, the nurses say she'll be good to go home in about an hour. But I wanted to talk to you about that." Brun tried to keep a straight face, her heart felt like it was being twisted apart at the thought of leaving Dee here alone. Brun had already felt terrible about not being able to spend every waking moment caring for these two dorks, but to have to leave one of them behind was worse.
+
+"You're not going back to the hotel." Dee responded as the emotion drained off her face. It wasn't a question, they had either heard from the impressive whisper network among the nurses that Trouble was having nightmares, or they were making a demand with respect to what had happened to them. Dee had been as mute as Trouble when it came to talking about what had happened to her, she wasn't even doing her old favorite of trying to make a game of using a marker to connect all her injuries like a morbid game of connect the dots. 
+
+"No, that place isn't home anymore." Brun could feel herself getting emotional and did her best to fight the rising urge to cry. "When you disappeared from it, when you weren't safe, when it hurt you. If you can't be safe there, we can't be there with you, and somewhere without you isn't home." 

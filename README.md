@@ -46,7 +46,7 @@ Total length: 46,000-ish words
 | 13             | 3400          | released         | Brun, Fel           | 37.3k         |
 | 14             | 2700          | released         | De, Brun            | 40.0k         |
 | Attack 1       | 800           | released         | De                  | 40.8k         |
-| 15             | 2800          | pending          | De, Fel             | 43.6k         |
+| 15             | 2800          | released         | De, Fel             | 43.6k         |
 | 16             | 2600          | pending          | Brun, Fel           | 46.2k         |
 | 17             | 2900          | Written          | De, Brun, Fel, Brun | 49.1k         |
 | 18             | 2300          | Written          | De, Fel, Brun       | 51.4k         |
@@ -60,7 +60,7 @@ Total length: 46,000-ish words
 approx. page length (assuming the average page length of 275 words per page): 202
 
 Latest posted chapter: 
-Intermission 2
+15
 
 Royal Road: https://www.royalroad.com/fiction/129272/her-love-makes-safe-harbors
 
