@@ -54,3 +54,12 @@ A friend of Debug works in a cafe and does contract work as a red hat hacker for
 She has a massive crush on Debug, but is way to shy to do anything about it 
 Trans mtf and has had bottom surgery, can drop into a very deep voice as a party trick
 Got her nickname from looking like she was moments away from glomping people but was always too shy and too afraid of how she would be perceived to do so
+
+## Bonnie Homes
+A nurse who is terrible at hitting on Debug and teaches her knitting. Volunteers to visit her when she gets out and gives Debug her number.
+Physical description:
+Poorly fed and under slept
+Has a lot of hair clips, still has fly aways 
+Whispy hair
+Pale as fuck
+Big glasses that often end up sitting in her hair

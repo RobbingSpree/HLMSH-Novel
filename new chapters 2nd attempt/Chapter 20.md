@@ -62,5 +62,19 @@ The phone rang for a few seconds.
 
 "Who's speaking?" Sinead's voice barked through the phone.
 
-"It's Brunhilde Brown, I'm your daughter's de facto partner." Thinking of her last conversation with Beth Brun felt she could almost empathize with her as she flexed a connection she knew Sinéad coveted. "Wer're just outside Debug's place and everything is shambles. Have the police finished going through looking for evidence? Dee asked us to drop by and grab something." 
+"It's Brunhilde Brown, I'm your daughter's de facto partner." Thinking of her last conversation with Beth; Brun felt she could almost empathize with her as she flexed a connection she knew Sinéad coveted. "Wer're just outside Debug's place and everything is shambles. Have the police finished going through looking for evidence? Dee asked us to drop by and grab something." 
+
+
+
+***
+
+Debug couldn't work out how this kept happening. 
+
+The entire reason she had that black book of contacts was cause this kept happening. She thought she must just have a face that screamed 'pester me when I'm alone' cause it had been almost relaxing spending time with Trouble and not being acosted like this.
+
+But without Brun coming to check on her ever half hour, she probably had that look, and one of the nurses had seen it and acted. And now here she was: learning to knit with a nurse at the end of her shift. 
+
+Bonnie, as she had introduced herself much to the agreement of her name tag, sat on the side of Debug's hospital bed holding the ball of yarn and making encouraging noises while Debug struggled.
+
+"So the other nurses were saying you were dating the tall glass of chocolate milk that kept visiting you, but she's also dating another patient. Was she two timing you and you two got into a fight? Did you...lose?" Debug tried to put down the knitting and watched as the last few minutes of work was undone as one needle slipped from her hand and fell entirely out of the tangle of knots. Debug frowned at it. 
 
