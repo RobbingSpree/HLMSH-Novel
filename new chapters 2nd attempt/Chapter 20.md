@@ -32,15 +32,15 @@ Home. Brun thought to herself. Where was home for Trouble now? She knew one pers
 
 "No, that place isn't home anymore." Brun could feel herself getting emotional and did her best to fight the rising urge to cry. "When you disappeared from it, when you weren't safe, when it hurt you. If you can't be safe there, we can't be there with you, and somewhere without you isn't home." Tears stung her eyes and she struggled to pretend she wasn't choking up. Dee seemed unmoved by her words, and with a pang of sadness for the disconnect between them Brun continued. "So the current plan is to take her to my place, but Frank might know where I live and he's already shown he knows how to mess with doors. My place is only a short term answer. You're the best when it comes to this stuff, what do you think?"
 
-Debug stared at Brun for an uncomfortable amount of time while Brun failed to understand the intense look on her face. Brun felt she was being scrutinized, but she didn't know what for. Brun could see Trouble looking back and forth between her and Dee, nervous energy radiating off her.
+Debug stared at Brun for an uncomfortable amount of time while Brun failed to understand the intense look on her face. Brun felt she was being scrutinized, but she didn't know what for. She could see Trouble looking back and forth between her and Dee, nervous energy radiating off her.
 
-"We've already been here." Debug finally said as the expression on her face softened and she broke eye contact and started talking at the nurse who was finishing up her checkup. "Deadbolt on the door, bars over the windows, only ground floor windows that can fit a person through, in a lovely suburb." Brun caught on quickly, Debug was talking about Trouble's house.
+"We've already been here." Debug finally said as the expression on her face softened and she broke eye contact and started talking at the nurse who was finishing up her checkup. "Deadbolt on the door, bars over the windows, only ground floor windows that can fit a person through, in a lively suburb." Brun caught on quickly, Debug was talking about Trouble's house.
 
 "You broke in there in seconds, and Frank has a key." Brun tried to not sound like she was shooting down Dee's suggestion, expecting the showmanship that often bid her to ask leading questions like this.
 
 "Yep, that did seem like it was purposely set up to be harder to leave than to enter. The deadbolt being on the outside was the big giveaway there."
 
-Brun saw Trouble look up at her again and feeling less pressure to watch Debug looked down to see if she could glean anything from their expressions. Trouble looked incredibly confused,Brun took a guess what they were thinking based on when they had looked up.
+Brun saw Trouble look up at her again and feeling less pressure to watch Debug looked down to see if she could glean anything from their expressions. Trouble looked incredibly confused, Brun took a guess what they were thinking based on when they had looked up.
 
 "Deadbolt is supposed to be on the side of the door you want to prevent entry into. If it's on the outside you can just manually slide it through a gap in the latch." Brun turned back to face Debug who already had a hint of a smile on their face. "Yes, Dee, I remember the rant you went on last year about that fire safety door being installed backwards. Do you plan we just take it off it's hinges and turn it around? I also don't want to bully you, but the doctors have been saying you need months of bedrest, when do we plan to do this?" Despite the tense situation, the nurses gave cheerful goodbyes to both of the injured.
 
@@ -50,21 +50,43 @@ Brun saw Trouble look up at her again and feeling less pressure to watch Debug l
 
 ***
 
-Brun set Trouble down, finally accomplished that all her gym visits were for a good reason. She'd barely broken a sweat carrying her darling creature from the bus stop to the clearly broken apartment door.
+Brun set Trouble down, feeling accomplished that all her gym visits were for a good reason. She'd barely broken a sweat carrying her darling creature from the bus stop to the clearly broken apartment door.
 
 (Paragraph about Trouble looking a little faint after a week of not walking)
 
 Debug had been clear she expected things to look like this. Brun had a stab of worry for Beth, they had been here that same night that whoever had tossed Debug's apartment had been. Was the reason why she'd not heard anything from them since then that whoever had hurt Debug had moved on and hurt manager Beth as well?
 
-"Dee gave me these as we were leaving." Brun handed her ward a pair of blue disposable gloves obviously stolen from the hospital. "We don't want to get wrapped up in whatever hellfire Sinéad brings down... actually..." Brun pulled out her phone and dialed Sinead's number, she'd gotten it the week prior while they had been searching for Debug incase they got split up, but it never mattered back then.
+"Dee gave me these as we were leaving." Brun handed her ward a pair of blue disposable gloves obviously stolen from the hospital. "We don't want to get wrapped up in whatever hellfire Sinéad brings down... actually..." Brun pulled out her phone and dialed Sinead's number, she'd gotten it the week prior while they had been searching for Debug incase they all got split up, but it never mattered back then.
 
 The phone rang for a few seconds.
 
 "Who's speaking?" Sinead's voice barked through the phone.
 
-"It's Brunhilde Brown, I'm your daughter's de facto partner." Thinking of her last conversation with Beth; Brun felt she could almost empathize with her as she flexed a connection she knew Sinéad coveted. "Wer're just outside Debug's place and everything is shambles. Have the police finished going through looking for evidence? Dee asked us to drop by and grab something." 
+"It's Brunhilde Brown, I'm your daughter's de facto partner." Thinking of her last conversation with Beth; Brun felt she could almost empathize with her as she flexed a connection she knew Sinéad coveted. "We're just outside Debug's place and everything is shambles. Have the police finished going through looking for evidence? Dee asked us to drop by and grab something." 
 
+There was a pregnant pause full of expecting Sinéad to lose her cool again, but instead Brun heard them taking a measured breath and calming themselves.
 
+"Yes, we found all the details we needed. The landlord should have taken steps to repair the door since we did a search, I'll give them a call. Regardless try to to leave your fingerprints everywhere incase we have to go back later." Brun was almost impressed at home serious and cavalier they were being Debug's house being broken into. "Also, don't call me again unless something actually happens."
+
+"Who else am I supposed to call about an active investigation?" Brun heard the call cut off as she started speaking. "How did she keep getting promotions? That lady is a terrible cop?"
+
+Trouble was making a face at her and nodding, Brun didn't need to know what exactly they meant to understand sarcasm. Behind the glib responses though, was obvious exhaustion, Trouble was not doing well standing on her own yet. Brun picked her princess back up and strode into the crime scene.
+
+Dee's apartment was very much evocative of her personality. Some parts of the studio apartment had a lot of attention put into them, the comfortable bed with a harem of pillows that she might have stolen from work. And then at the opposite end of the spectrum was the pile of books and boxes that had spilled off a small side table next to am armchair and piles around it rose up to essentially double the size of the side table. Her kitchen was tiny and very bare, if she didn't know better Brun would think Dee didn't cook for herself at home.
+
+Brun put Trouble back down in the arm chair and gave her a gentle pet to reassure her before turning to face the rest of the room once more.
+
+Next to the door, opposite the comfortable chair was where a lot of the mess seemed to be focused around. A small pile of important looking books, including what Dee had sent them to find in the first place: a small, black, leather bound book with no details on the cover and no latch to hold it closed. The pages buldged from use and writing. Picking up the book, Brun flipped it open and found it exactly as Debug described it: every page was filled with the names and phone numbers (and some notes about them) of all the odd people Debug had managed to meet while out and about. 
+
+For someone so guarded, Brun was confused how Dee could put time into meeting this many people, let alone getting all their phone numbers. But Brun had spent a week convinced Dee had the rizz to hit up random staff for heavy petting...so maybe she just had a vibe that lead people to think she was up for that.
+
+Unable to hold her curiosity, Brun had a quick peek at the other books scattered about. One was a crossword book, another was a book of terrible poems, and a third was fake. It was one of those book safes, but it appeared to be one Dee had made herself. The front cover had obvious bait written on it: Dark Past Secrets. Peering inside caused Brun to burst out laughing, looking around the room she found the evidence of how successful this trap had been.
+
+Brun brought the fake book over to Trouble to share the mirth with her.
+
+"Hahahaha, Trouble check this out. It's a fake book, one of the ones you'd hide a flask of whisky in or what not." Brun presented Trouble with the device. "And Dee has been cruel enough to put an obvious fake label on the front, as if she would actually write her secrets down." Brun under liner the words on the front with her finger just as Trouble had been all week. "Except...hehehehe...she put one of those dye packs in it and rigged it to blow when it was opened." Brun lost herself to laughter again imaginating the criminal finding this and getting a faceful. "And over there we even have an outline of them on the wall where they opened it." 
+
+The shillouette Brun was pointing at looked person shaped but it was very vague. It made whoever did this look as tall as Brun,  it the angle they opened it would have more to do with how tall they looked splattered on the wall.
 
 ***
 
@@ -76,5 +98,16 @@ But without Brun coming to check on her ever half hour, she probably had that lo
 
 Bonnie, as she had introduced herself much to the agreement of her name tag, sat on the side of Debug's hospital bed holding the ball of yarn and making encouraging noises while Debug struggled.
 
-"So the other nurses were saying you were dating the tall glass of chocolate milk that kept visiting you, but she's also dating another patient. Was she two timing you and you two got into a fight? Did you...lose?" Debug tried to put down the knitting and watched as the last few minutes of work was undone as one needle slipped from her hand and fell entirely out of the tangle of knots. Debug frowned at it. 
+"So the other nurses were saying you were dating the tall glass of chocolate milk that kept visiting you, but she's also dating another patient. Was she two timing you and you two got into a fight? Did you...lose?" Debug tried to put down the knitting and watched as the last few minutes of work was undone as one needle slipped from her hand and fell entirely out of the tangle of knots. Debug frowned at it before considering it for the best that this mess be undone and she start over.
 
+"We didn't fight. As far as I know, I woke up here and Trouble was saying I saved her from her abusive ex." Debug was not comfortable with the nurses gossiping about her this much, least of all of the told her about it. "Can you help me start again? I think I'm getting the hang of this." Debug was lying, she felt like knitting was akin to dancing while incredibly drunk and unable to remember the steps. She kept feeling like she had a job to do and didn't know what step she was up to any time she paused while knitting for too long. 
+
+Whereas learning to pick locks had made her feel blind, knitting made her feel lost. 
+
+"I'm not dating either of Brun or Trouble." Debug finished, trying to set the record as dull as possible so the nurses would get bored and find a new subject to focus on.
+
+"So you're single?" Something about Bonnie's voice told her she had said something wrong. Why would they be happy if she was single? That was a much less interesting story to gossip about. Debug concluded that they must have a betting pool for what was actually going on, and her confirmation was what Bonnie had bet on. And since they were nice, she decided to validate their assumption.
+
+"Yeah, I've not dated anyone for a while." Debug knew this was a lie, but she didn't think going on dates with Trouble counted if Trouble didn't have romantic feelings for her...or did they? Debug did have a hazy memory of Brun and Trouble...or someone who looked or sounded like them pronouncing their love for her...but that sounded more like a dream she had while running dry on blood than something that would happen to her. 
+
+Trouble had been overly affectionate when they had visited, but had kept a solid meter or so of distance from her at all times, like she was overreacting to something the nurses had said about infection risks or something. It might have had something to do with Brun being present, who had gone from keeping Trouble close to actively petting her at all times. It wasn't hard to see why the nurses had been gossiping about them.
