@@ -84,9 +84,29 @@ Unable to hold her curiosity, Brun had a quick peek at the other books scattered
 
 Brun brought the fake book over to Trouble to share the mirth with her.
 
-"Hahahaha, Trouble check this out. It's a fake book, one of the ones you'd hide a flask of whisky in or what not." Brun presented Trouble with the device. "And Dee has been cruel enough to put an obvious fake label on the front, as if she would actually write her secrets down." Brun under liner the words on the front with her finger just as Trouble had been all week. "Except...hehehehe...she put one of those dye packs in it and rigged it to blow when it was opened." Brun lost herself to laughter again imaginating the criminal finding this and getting a faceful. "And over there we even have an outline of them on the wall where they opened it." 
+"Hahahaha, Trouble check this out. It's a fake book, one of the ones you'd hide a flask of whisky in or what not." Brun presented Trouble with the device. "And Dee has been cruel enough to put an obvious fake label on the front, as if she would actually write her secrets down." Brun under liner the words on the front with her finger just as Trouble had been all week. "Except...hehehehe...she put one of those security dye packs in it and rigged it to blow when it was opened." Brun lost herself to laughter again imaginating the criminal finding this and getting a faceful. "And over there we even have an outline of them on the wall where they opened it." 
 
-The shillouette Brun was pointing at looked person shaped but it was very vague. It made whoever did this look as tall as Brun,  it the angle they opened it would have more to do with how tall they looked splattered on the wall.
+The shillouette Brun was pointing at looked person shaped but it was very vague. It made whoever did this look as tall as Brun, though the angle they opened it would have more to do with how tall their outline looked splattered on the wall. She was now a bit more aware why Sinéad didn't need to look for more clues when the criminal had painted themselves so obviously.
+
+Getting back to the job at hand, Brun returned to the outline painted on the wall and picked up Dee's contact book and started leafing through it.
+
+"Dee said we're looking for her lock picking mentor: Missile...maybe I should change my name...Debug and Missile and you Trouble kinda put me to shame with how cool your names are."
+
+Trouble was trying to say something with her expression, but Brun couldn't fathom what. Rather than try another game of twenty questions, Brun finished looking for the entry in Debug's book and started punching in the number on her phone.
+
+"How do I explain what we're asking for Trouble? Hello, we're dating your friend who's in hospital and we need you to turn a dungeon into a fortress?"
+
+"That's one way to start a call Buggy." The voice on the phone responded. They had somehow answered before it rang a single time. "I've not heard anything from you in like two months."
+
+"Ahh, right... actually I'm not Debug." Brun tried to explain herself, how did they know she was calling on Debug's behalf from her phone? "But she did ask me to call you."
+
+"Wait! You said she's in the hospital? Which hospital?"
+
+"I'm not at liberty to say." Brun knew Debug would have her guts for garters if she told anyone where they could find her, probably even more so now she was trapped there.
+
+"Doesn't matter, I found her." While Brun hadn't heard the phone ring, she sure heard the disconnect noise of the call ending.
+
+"Okay Trouble, I think we have to race back to Westmead before whoever Missile is gets there...I think I understand why she's called that now."
 
 ***
 
@@ -110,4 +130,16 @@ Whereas learning to pick locks had made her feel blind, knitting made her feel l
 
 "Yeah, I've not dated anyone for a while." Debug knew this was a lie, but she didn't think going on dates with Trouble counted if Trouble didn't have romantic feelings for her...or did they? Debug did have a hazy memory of Brun and Trouble...or someone who looked or sounded like them pronouncing their love for her...but that sounded more like a dream she had while running dry on blood than something that would happen to her. 
 
-Trouble had been overly affectionate when they had visited, but had kept a solid meter or so of distance from her at all times, like she was overreacting to something the nurses had said about infection risks or something. It might have had something to do with Brun being present, who had gone from keeping Trouble close to actively petting her at all times. It wasn't hard to see why the nurses had been gossiping about them.
+Bonnie scooted further up the bed, dropping the guard on the side that stopped Debug from rolling out so she could get as far up as possible. 
+
+"Here, let me show you how it's done again. It's cute how clumsy you are at this." Bonnie reached out to take Debug's hands with her own.
+
+Trouble had been overly affectionate when they had visited, but had kept a solid meter or so of distance from her at all times, like she was overreacting to something the nurses had said about infection risks or something. It might have had something to do with Brun being present, who had gone from keeping Trouble close to actively petting her at all times. It wasn't hard to see why the nurses had been gossiping about them. 
+
+In this moment Debug was a lot more thankful of how Trouble had given her space, cause as soon as Bonnie took Debug's hands she felt a cold sweat break out over her body. The dull ache that was her entire lower body started to feel like it was being pricked and torn, and all strength felt like it left her arms. Debug realised she wasn't looking with her eyes and felt like she understood the space she was in as though someone was describing it to her poorly.
+
+She didn't know how long it had been but she became aware that Bonnie was attaching another IV lines to her and the room had become very loud.
+
+"Her heart rate just spiked and then dropped through the floor, is the infection back?" Bonnie sounded very distraught, the knitting still lay in Debug's lap half dismantled. "Wait...she's coming good? Miss Nolanam? Are you okay?" The nurses had given Debug every possible variation of how to pronounce her surname, she wasn't going to correct them until someone guessed the correct way. Bonnie was starting to give her the same space that Trouble had been giving her all week.
+
+"I think...I'm allergic to girls."
