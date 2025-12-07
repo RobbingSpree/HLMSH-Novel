@@ -24,7 +24,7 @@ act 3 writing in progress
 - 2 chapters written (intermission 3, attack 2)
 - 1 chapter writing (20)
 
-Total length: 46,000-ish words
+Total length: 60,000-ish words
 
 | Chapter        | approx length | chapter Progress | POVs included       | running total |
 | -------------- | ------------- | ---------------- | ------------------- | ------------- |
@@ -52,12 +52,13 @@ Total length: 46,000-ish words
 | 18             | 2300          | Written          | De, Fel, Brun       | 51.4k         |
 | 19             | 2200          | Written          | Fel, Brun, Fel      | 53.6k         |
 | Act 2          |               | And game         | Solid effort        | Wow           |
-| Com (Rec)      | 1800          | Writing          | Brun, Fel, De       | 55.4k         |
+| Com (Rec)      | 1800          | Written          | Brun, Fel, De       | 55.4k         |
 | Intermission 3 | 1100          | Written          | De, Brun, Fel       | 56.5k         |
 | Attack 2       | 900           | Written          | De                  | 57.4k         |
-| 20             |               | Planning         | Fel, Brun           |               |
-| 21             |               | Planning         |                     |               |
-approx. page length (assuming the average page length of 275 words per page): 202
+| 20             | 2800          | Writing          | Brun                | 60.2k         |
+| 21             |               | Writing          | De                  |               |
+| 22             |               | Planning         |                     |               |
+approx. page length (assuming the average page length of 275 words per page): 218
 
 Latest posted chapter: 
 15

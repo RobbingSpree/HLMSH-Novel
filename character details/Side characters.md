@@ -53,7 +53,8 @@ a police officer that is friends with Frank and has been smoozing with managemen
 A friend of Debug works in a cafe and does contract work as a red hat hacker for a security firm
 She has a massive crush on Debug, but is way to shy to do anything about it 
 Trans mtf and has had bottom surgery, can drop into a very deep voice as a party trick
-Got her nickname from looking like she was moments away from glomping people but was always too shy and too afraid of how she would be perceived to do so
+Got her nickname from looking like she was moments away from glomping people but was always too shy and too afraid of how she would be perceived to do so. 
+Has a bit of a paranoid streak and gives out seemingly unique phone numbers to important people sonshe knows who's calling even if they use different lines cause that's a common thing they do in her security circles
 
 ## Bonnie Homes
 A nurse who is terrible at hitting on Debug and teaches her knitting. Volunteers to visit her when she gets out and gives Debug her number.
