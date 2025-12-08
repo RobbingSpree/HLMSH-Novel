@@ -13,23 +13,23 @@ The first thing she did was drive to a nearby mall and park near a concrete barr
 
 The place was utterly empty for the dead of morning, letting Debug actually relax and unclench for the first time since part way through her date with Trouble. 
 
-Her lock picks made quick work of the charity bin and in short order she had stollen a new shirt and shorts to cover up with and a library bag to jam her bloody rags in and the least worst sandals to protect her feet.
+Her lock picks made quick work of the charity bin and in short order she had stolen a new shirt and shorts to cover up with and a library bag to jam her bloody rags in and the least worst sandals to protect her feet. She called them new in her mind, but these clothes had seen better days. It was good form to donate clean clothes and these were not that, so she felt entitled to steal them when they would get thrown out otherwise.
 
 As she got dressed she caught several glimpses of the mess she had made of herself in her escape. She added her arms from the elbows down and her body from the waist down to her list of things to ignore at all costs. 
 
 The pain, on the other hand, was far too all encompassing to ignore.
 
-Every part of her body ached, any time she stopped moving she could feel her pulse across her whole body. With every beat of her heart the chorus of pain grew louder. Her legs felt like lead, slow and painful to move and concerningly wet. She had been exhausted when she got back from carrying Trouble home and hadn't slept since. She was running on less than fumes at this point, and now she had achieved the difficult part of actually escaping her adrenaline was swiftly wearing off. 
+Every part of her body ached, any time she stopped moving she could feel her pulse across her whole body. With every beat of her heart: the chorus of pain grew louder. Her legs felt like lead, slow and painful to move and concerningly wet. She had been exhausted when she got back from carrying Trouble home and hadn't slept since. She was running on less than fumes at this point, and now she had achieved the difficult part of actually escaping her adrenaline was swiftly wearing off. 
 
 Folding herself back into the car involved a lot of painful screaming. Putting on her new shorts had been difficult, but she'd managed it without having to bend at the waist. The car was going to be covered in her DNA after this with how much she could feel herself sweating...she hoped it was just sweat. But since she had started she might as well go through with the next step of her plan. 
 
-Through tear-streaked vision, she parked and abandoned the car on a random residential street. If she needed to go somewhere a lot furtherin the near future in a pinch she could come back and re-steal it.
+Through tear-streaked vision, she parked and abandoned the car on a random residential street. If she needed to go somewhere a lot further than her legs could carry her in the near future: she could come back and re-steal the car.
 
 But the most important thing now was hiding.
 
 Existing was taxing enough. Being seen or discovered by other people and having to explain herself would be too much. If she could just rest for a while, she could recover her energy and then go find something to eat.
 
-She had a lot of time to think about what had happened as she limped away looking for somewhere to hide. After a reasonable amount of sleepless worry sitting huddled in a corner between two buildings Debug confidently come to the conclusion that she was to blame for the whole situation.
+She had a lot of time to think about what had happened as she limped away looking for somewhere to hide. After a reasonable amount of sleepless worry sitting huddled in a corner between two buildings behind their dumpsters Debug confidently come to the conclusion that she was to blame for the whole situation.
 
 She had been on edge about Beth for months, the prying, the comments, the trying to be important to her. They must have been trying to get her to drop her guard so they could do something like this for ages. It was only after she had come back exhausted and vulnerable that she'd been attacked.
 
@@ -41,9 +41,9 @@ Beth had stolen Debug's phone, pocket knife and house keys when she'd been cuffe
 
 Without her phone she couldn't contact Sinéad, but with how convenient their timing was for popping back into her life they probably couldn't be trusted either. Sinéad had been the reason she had needed to change her name so many times, she would have been able to stick with her childhood name if she hadn't let Sinéad talk her into testifying and attracting so much attention.
 
-As daylight crept into the morning and the hidden alcove she was hiding in started to warm up, Debug felt exhaustion overwhelm her. Her eyes felt heavy, her arms felt heavy, and now that she'd been sitting in one place for long enough everything below her waist stopped feeling.
+As daylight crept into the morning and the hidden alcove she was hiding in started to warm up, Debug felt exhaustion overwhelm her. Her eyes felt heavy, her arms felt heavy, and now that she'd been sitting in one place for long enough everything below her waist stopped feeling anything.
 
-She had done all she could for now. As she fell asleep, she felt a pang on worry for of Trouble would be safe now the wolves had abandoned their disguise.
+She had done all she could for now. As she fell asleep, she felt a pang on worry for if Trouble would be safe now the wolves had abandoned their disguise.
 
 ***
 
@@ -57,17 +57,19 @@ Trouble trotted after her at a short distance, she didn't know where she was goi
 
 She needed to calm down and think this though again. 
 
-Months ago Dee had tried to explain how to approach solving riddles, it was the closest thing she had ever heard to how they thought. She knew she wouldn't be able to out fox Dee, but could Dee out fox themselves?  (Include actual way to solve riddles)
+Months ago Dee had tried to explain how to approach solving riddles, it was the closest thing she had ever heard to how they thought. She knew she wouldn't be able to out fox Dee, but could Dee out fox themselves?  
 
-While she was at the computer she had pulled up the security cameras for the last day or so and hadn't seen Dee after a quick scour of the footage. She had last been seen with Beth, but if Beth was looking for clues at their house they weren't at work anymore, Beth would have searched the hotel first before trying her house. If they didn't go home and wanted to not be found they'd need different clothes.
+"Work out what you know and what you NEED to know, you don't NEED to know everything." Brun muttered trying to recall the exact words Dee had used copying their emphasis on the word need and then remembering the rant they'd gone on after that about how some puzzles were better when there was no clear answer.
+
+While she was at the computer she had pulled up the security cameras for the last day or so and hadn't seen Dee after a quick scour of the footage. She had last been seen with Beth, but if Beth was looking for clues at their house they weren't at the hotel anymore, Beth would have searched the hotel first before trying her house. If they didn't go home and wanted to not be found they'd need different clothes.
 
 Brun turned around a strode back towards the hotel. If all Dee's spare clothes were still at work she would have the disguise she needed, if not she often mentioned finding good stuff in the second hand shops. 
 
 Trouble might have been saying something as Brun walked but she was entirely focused on her train of thought. 
 
-How would Dee get new clothes without going to a store? If she was trying to stay away from security cameras how could she get the same thing? Stealing them off clothes lines? Taking directly from charity bins? Mugging someone for their clothes?
+How would Dee get new clothes without going to a store? It was too late for any of them to be open. If she was trying to stay away from security cameras how could she get the same thing? Stealing them off clothes lines? Taking directly from charity bins? Mugging someone on the street for their clothes?
 
-Brun brust through the hotel front doors as much as someone could burst through automatic doors and made her way to the draw in the reception desk that Dee kept all her stuff in. 
+Brun burst through the hotel front doors as much as someone could burst through automatic doors and made her way to the drawer in the reception desk that Dee kept all her stuff in. 
 
 It was jam packed with clothes still. The lack of reception staff at the desk saving her from needing to explain herself.
 
@@ -115,7 +117,7 @@ Brun stared at her like she had grown a second head.
 
 "Her WHAT?" Brun sat down where she stood, apparently unable to comprehend that Debug had family.
 
-"Yeah, I met her the other while we were on a date." Trouble ommited her own collapse as it was clearly not as serious. "Bug said they were a Sargent. Sargent Sinéad...umm Bruce?" Brun just sat there with her mouth open blinking and making a lot of different expressions that all were different kinds of confused or contemplative. "She said she worked at the head office."
+"Yeah, I met her the other day while we were on a date." Trouble omitted her own collapse as it was clearly not as serious as whatever was going on today. "Bug said they were a Sargent. Sargent Sinéad...umm Bruce?" Brun just sat there with her mouth open blinking and making a lot of different expressions that all were different kinds of confused or contemplative. "She said she worked at the head office."
 
 "The state branch of the police have their office here." Brun interjected, finally coming out of her stupor. "We'll call and ask her if she knows where Dee goes to hide."
 
@@ -135,7 +137,7 @@ A quick visit back inside the hotel to use the computer later, Trouble was liste
 
 "One sec..." The police receptionist said, interrupting the music and their chat. "I'm just going to connect you now."
 
-Tense moments passed as the phone made several concerning noises the Trouble hoped it was supposed to make while making a call transfer.
+Tense moments passed as the phone made several concerning noises that Trouble hoped it was supposed to make while doing a call transfer.
 
 "Hello? You there?" A familiar voice asked through the phone in Bug's style of authoritative speaking.
 
@@ -165,30 +167,26 @@ Trouble was not sure she had made the right decision.
 
 ***
 
-Brun already knew why she had never heard of Debug's mom before now, they were a bit of an asshole.
+Brun now knew why she had never heard of Debug's mom before now, they were a bit of an asshole.
 
-It hadn't taken an entire five minutes before they could hear the siren and Sinéad tore into the packing lot. She had swiftly taken over Brun's investigation, but was cut short when trying to go through the security footage and the system seized up and finished the automated deletion of the month's worth of security tapes, or as Beth liked to call it: Deep Storage. She had often said that if the cops wanted their footage they could do whatever fancy tech they had access to to peel the data back off it.
+It hadn't taken the entire five minutes before they could hear the siren and watch as Sinéad tore into the packing lot. She had swiftly taken over Brun's investigation, but was cut short when trying to go through the security footage and the system seized up and finished the automated deletion of the month's worth of security tapes, or as Beth liked to call it: Deep Storage. She had often said that if the cops wanted their footage they could do whatever fancy tech they had access to to peel the data back off the drives.
 
 Sinéad, had swore loudly, but ultimately just started investigating personally rather than rely on the tapes.
 
-Burn had shown her were the car normally sat and that it was empty, and one of the few things she had managed to show her (and reaffirm for herself) was Beth leaving on foot.
+Burn had shown her were the car normally sat and that it's spot was empty, and one of the few things she had managed to show her on the tapes (and reaffirm for herself) was Beth leaving on foot.
 
 "There's a pile of shims in the bush?" Sinéad asked, she asked a lot more questions than Dee, but got essentially the same conclusions. 
 
-"Yeah, when we first got the car we didn't have keys for it so Dee would use those to unlock it to test if the remote she made would work. Or if she misplaced the remote after getting it to work." Brun answered, she was having fun telling Dee's mom stories about her daughter she didn't know.
+"Yeah, when we first got the car we didn't have keys for it so Dee would use those to unlock it to test if the remote she made would work. Or if she misplaced the remote after getting it to work." Brun answered, she was having fun telling Dee's mom stories about her daughter she didn't know. Bragging that her own connection was better than theirs even if she doubted that connection in the same moment.
 
 "So even if she didn't have the car's keys, she could make this go?"
 
-"Yeah, I even got good at it, that car was very easy to hot wire. She was going to teach you next Trouble." Brun pulled Trouble closer as she spoke to her, not comfortable with letting them stray too far away.
+"Yeah, I even got good at it, that car was very easy to hot wire. She was going to teach you next Trouble." Brun pulled Trouble closer as she spoke to her, not comfortable with letting them stray too far away under the current circumstances, instead Brun pushed away the idea of asking herself why she felt she had any say over what Trouble did.
 
 "And the blood?" Sinéad asked matter-of-factly.
 
 "The what?" Brun dragged Trouble over as she strode next to Sinéad. 
 
-On the ground she could see a lot of dark spots on the ground she would have assumed were just dirt. But they reflected the light differently.
-
-Sinéad followed the trail back to one of the walls of the hotel.
+On the ground she could see a lot of dark spots on the ground she would have assumed were just dirt, but they reflected the light from Sinéad's torch differently. Sinéad painstakingly followed the trail back to one of the walls of the hotel.
 
 "I lose the trail over here. But either Deh took an injured person with her, or she's injured." Sinéad stood back up to her full height, almost reaching Brun's chest. "Get in the car, more eyes will help. There's a bunch of flashlights in the backseat."
-
-

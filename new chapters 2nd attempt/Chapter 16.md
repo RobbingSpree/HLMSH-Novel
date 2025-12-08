@@ -152,4 +152,4 @@ Brun had been the picture of stoic and serious until tonight, she couldn't even 
 
 "What?" Trouble's thoughts ground to a halt as Brun's words fell like a wrench amongst her mind's gears.
 
-"Dee's not on the roster. She's no anywhere." Brun pointed at the screen, Trouble craning her neck to see around her friends rear. "Well she is still in a few systems, but if she had left on her own terms she would have deleted or changed the admin accounts she had all over the system." Brun stood back up to her full height and grabbed Trouble. "I don't know what's happening any more. But I think something is wrong."
+"Dee's not on the roster. She's not anywhere." Brun pointed at the screen, Trouble craning her neck to see around her friends rear. "Well she is still in a few systems, but if she had left on her own terms she would have deleted or changed the admin accounts she had all over the system." Brun stood back up to her full height and grabbed Trouble. "I don't know what's happening any more. But I think something is wrong."
