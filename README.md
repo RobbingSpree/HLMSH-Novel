@@ -17,14 +17,14 @@ act 1 publishing complete (10 chapters) 27000-ish words
 - 10 chapter(s) complete. (1-10)
 - Intermission 1 complete (1)
 act 2 writing in progress 21000-ish words
-- 9 chapters complete (11-16, Intermission 2-3, Attack 1)
-- 3 chapter in editing hell (17-19)
+- 11 chapters complete (11-18, Intermission 2-3, Attack 1)
+- 1 chapter in editing hell (19)
 - 1 chapters being written (communication (reconciliation))
 act 3 writing in progress 
-- 2 chapters written (intermission 3, attack 2)
-- 1 chapter writing (20)
+- 3 chapters written (intermission 3, attack 2, 20)
+- 1 chapter writing (21)
 
-Total length: 46,000-ish words
+Total length: 60,000-ish words
 
 | Chapter        | approx length | chapter Progress | POVs included       | running total |
 | -------------- | ------------- | ---------------- | ------------------- | ------------- |
@@ -55,7 +55,7 @@ Total length: 46,000-ish words
 | Com (Rec)      | 1800          | Writing          | Brun, Fel, De       | 55.6k         |
 | Intermission 3 | 1100          | Written          | De, Brun, Fel       | 56.7k         |
 | Attack 2       | 900           | Written          | De                  | 57.6k         |
-| 20             |               | Planning         | Fel, Brun           |               |
+| 20             | 2800          | Written          | Fel, Brun           | 60.4k         |
 | 21             |               | Planning         |                     |               |
 approx. page length (assuming the average page length of 275 words per page): 202
 
