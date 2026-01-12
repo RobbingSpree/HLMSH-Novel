@@ -643,3 +643,22 @@ Phone call ends, Brun mutters something about should have hit her when I had the
 Find address book, it's open
 Brun says starts planning to get in touch with the person mentioned 
 
+## Chapter 21
+
+The gang meet back up at the hospital
+Meet Missile and have a chat about how to secure themselves in Trouble's house
+Missile is very obviously harbouring a crush on Debug
+Debug won't let anyone touch her except for Trouble
+Gang agrees to take Missile to Trouble's house to give it a once over
+In the walk down to the lobby talking about if they need to bring any tools Brun stops dead
+She has spotted someone's shiluette she recognises who is dyed a very familiar blue
+
+## Chapter 22 
+
+Brun is conflicted about what to do
+She wants to do bloody vengeance 
+But also knows that will just open her to an assault charge
+Gets emotional grounding from Trouble who is unaware
+Brun grabs Beth's hand, slams it on the reception desk and demands they take a DNA swab under her fingernails to see if there's a match for Debug. 
+Trouble has a panic attack
+Brun grabs trouble in her spare arm and says to herself "I've got two arms, I can hold to women."

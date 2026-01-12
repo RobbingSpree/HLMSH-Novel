@@ -22,3 +22,9 @@
 | 16       | Sept 30th   | Oct 13th  | 14 days        | no              |
 | 17       | Oct 21st    | Oct 27th  | 6 days         | no              |
 | 18       | Oct 27th    | N/A       | n/a            | no              |
+| 19       |             |           |                |                 |
+| Com(rec) |             |           |                |                 |
+| Int 3    |             |           |                |                 |
+| Attack 2 |             |           |                |                 |
+| 20       |             |           |                |                 |
+| 21       |             |           |                |                 |
