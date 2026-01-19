@@ -48,14 +48,14 @@ Total length: 60,000-ish words
 | Attack 1       | 800           | released         | De                  | 40.8k         |
 | 15             | 2800          | released         | De, Fel             | 43.6k         |
 | 16             | 2600          | released         | Brun, Fel           | 46.2k         |
-| 17             | 3100          | pending          | De, Brun, Fel, Brun | 49.3k         |
-| 18             | 2300          | pending          | De, Fel, Brun       | 51.6k         |
-| 19             | 2200          | Written          | Fel, Brun, Fel      | 53.8k         |
+| 17             | 3100          | released         | De, Brun, Fel, Brun | 49.3k         |
+| 18             | 2300          | released         | De, Fel, Brun       | 51.6k         |
+| 19             | 2200          | released         | Fel, Brun, Fel      | 53.8k         |
 | Act 2          |               | And game         | Solid effort        | Wow           |
-| Com (Rec)      | 1800          | Writing          | Brun, Fel, De       | 55.6k         |
-| Intermission 3 | 1100          | Written          | De, Brun, Fel       | 56.7k         |
-| Attack 2       | 900           | Written          | De                  | 57.6k         |
-| 20             | 2800          | Written          | Fel, Brun           | 60.4k         |
+| Com (Rec)      | 1800          | released         | Brun, Fel, De       | 55.6k         |
+| Intermission 3 | 1100          | pending          | De, Brun, Fel       | 56.7k         |
+| Attack 2       | 900           | pending          | De                  | 57.6k         |
+| 20             | 3200          | Written          | Brun                | 60.8k         |
 | 21             |               | Planning         |                     |               |
 approx. page length (assuming the average page length of 275 words per page): 202
 

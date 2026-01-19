@@ -40,7 +40,7 @@ Dee stared at her for an uncomfortable amount of time while Brun failed to under
 
 Brun saw Trouble look up at her again, and feeling less pressure to watch Debug now, looked down to see if she could glean anything from their expressions. Trouble looked incredibly confused, Brun took a guess what they were thinking based on when they had looked up.
 
-"Deadbolt is supposed to be on the side of the door you want to prevent entry into. If it's on the outside you can just manually slide it through a gap in the latch." Brun turned back to face Debug who already had a hint of a smile on their face. "Yes, Dee, I remember the rant you went on last year about that fire safety door being installed backwards. Do you plan we just take it off it's hinges and turn it around? I also don't want to bully you, but the doctors have been saying you need months of bedrest, when do we plan to do this?" Despite the tense situation, the nurses gave cheerful goodbyes to both of the injured and a wink to Brun.
+"Deadbolt is supposed to be on the side of the door you want to prevent entry into. If it's on the outside you can just manually slide it through a gap in the latch." Brun turned back to face Debug who already had a hint of a smile on their face. "Yes, Dee, I remember the rant you went on last year about that fire safety door being installed backwards. Do you plan we just take it off it's hinges and turn it around? I also don't want to bully you, but the doctors have been saying you need months of bed rest, when do we plan to do this?" Despite the tense situation, the nurses gave cheerful goodbyes to both of the injured and a wink to Brun.
 
 "I didn't teach myself how to pick locks." Brun had to strain to hear Dee mumble with the IV pump next to her. "So we'll ask them for help, but they're a bit intense." Debug continued to look away as she spoke 
 
@@ -56,7 +56,7 @@ Brun kept pushing the question of if she and Trouble were dating now further dow
 
 Debug had been clear she expected her door to look like this. Brun had a stab of worry for Beth, they had been here that same night that whoever had tossed Debug's apartment had been. Was the reason why she'd not heard anything from them since then that whoever had hurt Debug had moved on and hurt manager Beth as well?
 
-"Dee gave me these as we were leaving." Brun handed her ward a pair of blue disposable gloves obviously stolen from the hospital. "We don't want to get wrapped up in whatever hellfire Sinéad brings down... actually..." Brun pulled out Trouble's phone and dialed Sinead's number, she'd gotten it the week prior while they had been searching for Debug incase they all got split up, but it never mattered back then. If Sinéad wouldn't answer her number she would use another.
+"Dee gave me these as we were leaving." Brun handed her ward a pair of blue disposable gloves obviously stolen from the hospital. "We don't want to get wrapped up in whatever hellfire Sinéad brings down... actually..." Brun pulled out Trouble's phone and dialed Sinead's number, she'd gotten it the week prior while they had been searching for Debug in case they all got split up, but it never mattered back then. If Sinéad wouldn't answer her number she would use another.
 
 The phone rang for a few seconds.
 
@@ -66,7 +66,7 @@ The phone rang for a few seconds.
 
 There was a pregnant pause full of expecting Sinéad to lose her cool again, but instead Brun heard them taking a measured breath and calming themselves.
 
-"Yes, we found all the details we needed. The landlord should have taken steps to repair the door since we did a search, I'll give them a call. Regardless try not to leave your fingerprints everywhere incase we have to go back later." Brun was almost impressed at how calm and cavalier they were being Debug's house being broken into. "Also, don't call me again unless something actually happens."
+"Yes, we found all the details we needed. The landlord should have taken steps to repair the door since we did a search, I'll give them a call. Regardless try not to leave your fingerprints everywhere in case we have to go back later." Brun was almost impressed at how calm and cavalier they were being Debug's house being broken into. "Also, don't call me again unless something actually happens."
 
 "Who else am I supposed to call about an active investigation?" Brun heard the call cut off as she started speaking. "How did she keep getting promotions? That lady is a terrible cop!"
 
@@ -76,7 +76,7 @@ Dee's apartment was very much evocative of her personality. Some parts of the st
 
 Brun put Trouble back down in a nearby and well loved arm chair, and gave her a gentle pet to reassure her, before turning to face the rest of the room once more.
 
-Next to the door, opposite the comfortable chair was where a lot of the mess seemed to be focused around, was a side table and what looked like a experimental blue artwork directly applied to the wall. A small pile of important looking books littered the table, including what Dee had sent them to find in the first place: a small, black, leather bound book with no details on the cover and no latch to hold it closed. The pages buldged from use and writing. Picking up the book, Brun flipped it open and found it exactly as Debug described it: every page was filled with the names and phone numbers (and some notes about them) of all the odd people Debug had managed to meet while out and about. 
+Next to the door, opposite the comfortable chair was where a lot of the mess seemed to be focused around, was a side table and what looked like a experimental blue artwork directly applied to the wall. A small pile of important looking books littered the table, including what Dee had sent them to find in the first place: a small, black, leather bound book with no details on the cover and no latch to hold it closed. The pages bulged from use and writing. Picking up the book, Brun flipped it open and found it exactly as Debug described it: every page was filled with the names and phone numbers (and some notes about them) of all the odd people Debug had managed to meet while out and about. 
 
 For someone so guarded, Brun was confused how Dee could put time into meeting this many people, let alone getting all their phone numbers. But Brun had spent a week convinced Dee had the rizz to hit up random staff at the hotel for heavy petting...so maybe she just had a vibe that lead people to think she was up for that.
 
@@ -84,7 +84,7 @@ Unable to hold her curiosity, Brun had a quick peek at the other books scattered
 
 Brun brought the fake book over to Trouble to share the mirth with her.
 
-"Hahahaha, Trouble check this out. It's a fake book, one of the ones you'd hide a flask of whisky in or what not." Brun presented Trouble with the device. "And Dee has been cruel enough to put an obvious fake label on the front, as if she would actually write her secrets down." Brun underlined the words on the front with her finger just as Trouble had been all week. "Except...hehehehe...she put one of those security dye packs in it and rigged it to blow when it was opened." Brun lost herself to laughter again imagining the criminal finding this and getting a faceful. "And over there we even have an outline of them on the wall where they opened it." 
+"Hahahaha, Trouble check this out. It's a fake book, one of the ones you'd hide a flask of whisky in or what not." Brun presented Trouble with the device. "And Dee has been cruel enough to put an obvious fake label on the front, as if she would actually write her secrets down." Brun underlined the words on the front with her finger just as Trouble had been all week. "Except...hehehehe...she put one of those security dye packs in it and rigged it to blow when it was opened." Brun lost herself to laughter again imagining the criminal finding this and getting a face-full. "And over there we even have an outline of them on the wall where they opened it." 
 
 The silhouette Brun was pointing at looked person shaped but it was very vague, the blue mess on the wall with the context of the trapped book was the outline of the criminal responsible. It made whoever did this look as tall as Brun, though the angle they opened it would have more to do with how tall their outline looked splattered on the wall. She was now a bit more aware why Sinéad didn't need to look for more clues when the criminal had painted themselves so obviously.
 
@@ -106,5 +106,5 @@ Trouble was trying to say something with her expression, but Brun couldn't fatho
 
 "Doesn't matter, I found her." While Brun hadn't heard the phone ring, she sure heard the disconnect noise of the call ending.
 
-"Okay Trouble, I think we have to race back to Westmead before whoever Missile is gets there...I think I understand why she's called that now." Brun picked her princess back up, gave her a quick kiss on the forehead and walked back through the broken doorway.
+"Okay Trouble, I think we have to race back to Westmead Hospital before whoever Missile is gets there...I think I understand why she's called that now." Brun picked her princess back up, gave her a quick kiss on the forehead and walked back through the broken doorway.
 
