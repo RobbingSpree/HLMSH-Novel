@@ -6,17 +6,17 @@ tags:
 ---
 Brun half stood in the ambulance, fighting the wobble and bounce of the vehicle trying to knock her over and more importantly fighting the urge to scream.
 
-Trouble lay on a gurney, strapped in place while the whole ambulance swayed through traffic and bounced seemingly over every pothole. Fresh bruises already blooming on her skin along her arm and around her neck, and her entire shirt stained red and brown from the construction dust and mysterious other fluids Brun wanted to ignore. Trouble's chest had a large wound pad stuck on to cover the gash she had got from Frank's handiwork, and Brun had been asked to apply constant pressure while they drove which made ignoring what Trouble's shirt was stained with a lot harder.
+Trouble lay on a gurney, strapped in place while the whole ambulance swayed through traffic and seemingly over every pothole. Fresh bruises already blooming on her skin along her arm and around her neck, and her entire shirt stained red and brown from the construction dust and mysterious other fluids Brun wanted to ignore. Trouble's chest had a large wound pad stuck on to cover the gash she had got from Frank's handiwork, and Brun had been asked to apply constant pressure while they drove making ignoring why Trouble's shirt was stained a lot harder.
 
-Next to Trouble was the a paramedic with sea legs a crab fisher would envy, ignoring the world while filling Debug's arms with IV lines. Brun had been avoiding looking at Dee for most of the drive so far, her heart twisting any time she glanced over and saw the seemingly unstoppable woman brought low. Dee had, in her mind, been the one thing that was beyond everyone's reach; either through her skittishness or what she now knew as paranoia rather than preparedness. But now, she was in some kind of restraint around her hips and legs and had a blanket covering her lower body for modesty since they'd cut her out of her clothes before getting her into the ambulance.
+Next to Trouble was the a paramedic, with sea legs a crab fisher would envy, ignoring the world while filling Debug's arms with IV lines. Brun had been avoiding looking at Dee for most of the drive so far, her heart twisting any time she glanced and saw the seemingly unstoppable woman brought low. Dee had, in her mind, been the one thing that was beyond everyone's reach, either through her skittishness or what she now knew as paranoia rather than preparedness. But now, she was in some kind of restraint around her hips and legs and had a blanket covering her lower body for modesty since they'd cut her out of her clothes before getting her into the ambulance.
 
-Several of her arguments with Sinéad earlier today had been on what the two of them considered was Debug's idea of safe, all of which had been proven wrong in both directions as neither would have guessed an active construction site. While none of the dumpsters she had suggested had provided the gift of her quarry hiding behind them, Sinéad always had a comment ready to throw in her face about how insecure or exposed the spot was and how Dee would never pick somewhere so thoughtless. Brun was entirely in support of Debug not talking to Sinéad after this was over, they made a poor mother figure. Someone who felt the need to waste time arguing about being right rather than doing something more to help had their priorities backwards.
+Several of her arguments with Sinéad earlier today had been on what the two of them considered was Debug's idea of safe, all of which had been proven wrong in both directions as neither would have guessed an active construction site. While none of the dumpsters she had suggested had provided the gift of her quarry hiding behind them, Sinéad always had a comment ready to throw in her face about how insecure or exposed the spot was and how Dee would never pick somewhere so thoughtless. Brun was entirely in support of Debug not talking to Sinéad after this was over, they made a poor mother. Someone who felt the need to waste time arguing about being right rather than doing something more to help had their priorities backwards.
 
 "Trouble, I need you to pull through this." Brun whispered, the wail of the ambulance's sirens mostly drowning her out so she didn't expect Trouble to hear her, this was more for her own benefit. "I need to tell you how much you mean to me. I need you to be here tomorrow so I can tell you I love you. And I need you to kick my ass so I can tell Debug too, cause I'm still a bit scared of her."
 
 "I can do that..." Trouble's quiet voice responded, though Brun pressing on her probably made it harder. "...but I don't think the doctors will let me kick anyone for a while." The fragile creature tried to smile up at Brun who burst into tears in response, Brun very much wanted to give her another kiss. Ever since she'd stepped across that threshold the previous night, every time she saw Trouble she wanted to hold her even closer, to reaffirm her love for them with more affection and attention than before.
 
-Brun had been sure that seeing Trouble slowly healing from her injuries had desensitized to serious injuries. She had been sure helping the nurses tally all Trouble's injuries and listening to them speculate on how she got them had desensitized her to thinking about the moment her friend had been hurt. But while she put her attention back on the job the paramedic had given her in the back of an ambulance, guilt ridden that she was unscathed and her friends, the women she loved, were once again hurt; Brun felt alone and terrified that she had missed every opportunity to make sure they knew how much she loved and cherished them.
+Brun had been sure that seeing Trouble slowly healing from her injuries had desensitized to serious injury, she had been sure helping the nurses tally all Trouble's injuries and listening to them speculate on how she got them had desensitized her to thinking about the moment her friend had been hurt. But while she put her attention back on the job the paramedic had given her in the back of an ambulance, guilt ridden that she was unscathed and her friends, the women she loved, were once again hurt, Brun felt alone and terrified that she had missed every opportunity to make sure her friends knew how much for loved and cherished them.
 
 ***
 
@@ -28,7 +28,7 @@ The first thing she saw was her knight and protector fighting off a doctor.
 
 The doctor watched Brun storm off quietly shaking her head before turning back to look at Trouble and noticed she was awake.
 
-"Ohh, great. Miss Brown wouldn't actually tell me what your name was. She kept saying to check her own medical file. Do you remember your name?" The doctor did their best to not loom over Trouble, but when she was trapped in a bed and drugged to the gills, it was difficult not to.
+"Ohh, great. Miss Brown wouldn't actually tell me what your name was. She kept saying to check her own medical file. Do you remember your name?" The doctor did their best to not loom over Trouble, but when she was trapped in a bed and drugged to the gills it was difficult not to.
 
 "Trouble." Trouble answered. 
 
@@ -60,7 +60,7 @@ Brun looked even more tired and must have yawned while Trouble wasn't looking ca
 
 "A kiss from a Princess is said to wake her true love~." 
 
-"No kisses." She said, her voice felt gruff and out of practice. "No one touch me." The idea of physical affection directed at her turned her stomach.
+"No kisses." She said, admonishing the voices around her. Her own voice felt gruff and out of practice. "No one touch me." The idea of physical affection directed at her turned her stomach.
 
 The two voices in the room both shouted something and spoke over one another, she couldn't understand anything they said. It felt like a wave of noise washing over her, but she enjoyed their tones and intonations even if their words meant nothing like this.
 
@@ -70,9 +70,9 @@ Once they calmed down the brighter voice tried to address her again.
 
 "I'm Love?" She asked, the words felt foreign as she said them.
 
-"I don't believe you're going to confess before I get a chance to kick Princess like she asked. She did aske me to you know." 
+"I don't believe you're going to confess before I get a chance to kick Princess like she asked. She did ask me to you know." 
 
-"Shush you." The deeper voice with it's wonderful rasp was higher up, if her eyes worked she would have had to look up from where she was lying to look at them. She imagined the pair talking to her being a dignitary sitting next to her and their bodyguard standing behind them.
+"Shush you." The deeper voice with it's wonderful rasp was higher up in the room, if her eyes worked she would have had to look up from where she was lying to look at them. She imagined the pair talking to her being a dignitary sitting next to her and their bodyguard standing behind them.
 
 She heard noises of shuffling and the bed she was on tipping to the side towards the voices.
 
@@ -80,6 +80,6 @@ She heard noises of shuffling and the bed she was on tipping to the side towards
 
 Tears sprung to her eyes, still too heavy to open, and her breath felt hot and damp. Words couldn't express what hearing that meant. She didn't know who had said it, but she knew they were very important.
 
-"Me too!" The bright voice piped up, moving about and causing the chair they were in to squeak. "You mean the world to me, you make me feel like I'm safe and protected. You both do. I want to do that for you too." The bright voice was audibly building courage, almost squeaking herself as she tried to encourage herself to keep going. "I love you, and I want to be your safe harbor too."
+"Me too!" The bright voice piped up, moving about and causing the chair they were in to squeak. "You mean the world to me, you make me feel like I'm safe and protected. You both do. I want to do that for you too." The bright voice was audibly building courage, almost squeaking herself as she encouraged herself to keep going. "I love you, and I want to be your safe harbor too."
 
 The emotions welled within her, the small and broken cup that was her heart overflowed and a wide smile pushed itself past the grimace on her face and the tears flowed freely.

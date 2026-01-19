@@ -16,7 +16,7 @@ She couldn't move her arms or really any part of her body.
 
 She felt like she was in a dream, her body refused to tell her what was going on and her memory was very fuzzy.
 
-Someone stood over her, a shillouette she recognised.
+Someone stood over her, a silhouette she recognized.
 
 "Mom?"
 
@@ -28,7 +28,7 @@ The person started to cry. She had probably messed something up again.
 
 "What?" The familiar person asked trying to take her hand.
 
-"Mel met June..." The words tumbled out of her like a practiced prayer. "June found Jill. Jill helped Deh. And they all bore..." A name swam to the front of her mind. "Me." Debug could feel herself weaping, but she didn't have the energy to wipe the tears or even stop crying.
+"Mel met June..." The words tumbled out of her like a practiced prayer. "June found Jill. Jill helped Deh. And they all bore..." A name swam to the front of her mind. "Me." Debug could feel herself weeping, but she didn't have the energy to wipe the tears or even stop crying.
 
 Sibéan sat in a chair next to her bed also crying while clutching at her hand, trying to avoid the serious number of tubes coming out of her.
 
@@ -44,13 +44,13 @@ Brun knows murder isn't the answer
 
 "Ma'am, I can understand your concern. But if it helps we didn't find any genetic material?" The nurse tried to placate the matter.
 
-"My girlfriend is in there, recovering from god knows what. And you're saying while fighting the world's most homophobic flight of stairs, she was raped?" As the words spilled out of Brun her voice kept raising higher and higher until it started to sound like a squeak. "And it's a good thing we don't have any leads on the creep that did it?" Brun had been trapped into calling Dee her girlfriend when she learned they had listed her as their emergency contact and had ticked defacto spouse on the form. She knew Dee could bend paperwork to suit her needs, but this probably warranted talking to her first.
+"My girlfriend is in there, recovering from god knows what. And you're saying while fighting the world's most homophobic flight of stairs, she was raped?" As the words spilled out of Brun her voice kept raising higher and higher until it started to sound like a squeak. "And it's a good thing we don't have any leads on the creep that did it?" Brun had been trapped into calling Dee her girlfriend when she learned they had listed her as their emergency contact and had ticked de-facto spouse on the form. She knew Dee could bend paperwork to suit her needs, but this probably warranted talking to her first.
 
 It was, however, a fact she didn't correct. She never would. Under more pleasant circumstances would have been touched they thought of her as someone who would come to their rescue, someone they would live with for long enough the government needed to be told. But she had to agree to a lot of stuff quite suddenly to not lose her access to her friend while they were treated.
 
-Some of the nurses had got wires crossed and had congratulated her on dating Trouble instead, remembering her from her other recent visit with a damaged waif. And because she was more preoccupied with keeping up with Dee's progress and the doctors informing her just how many ways from Sunday Dee had fucked herself by sleeping on a back ally while bleeding out in clothes she had stolen from a dumpster, the consensus between the nurses now become that they thought she was dating both Dee and Trouble.
+Some of the nurses had got wires crossed and had congratulated her on dating Trouble instead, remembering her from her other recent visit with a damaged waif. And because she was more preoccupied with keeping up with Dee's progress and the doctors informing her just how many ways Dee had fucked herself over by sleeping behind a dumpster while bleeding out in clothes she had stolen from a different dumpster, the consensus between the nurses now become that they thought she was dating both Dee and Trouble.
 
-This fact she didn't correct either. She never would. Under more relaxing circumstances that would probably be the dream. But having both her crushes be brought back to the hospital together made it seem like she was doing a terrible job fighting off potential suitors or jilted ex's. Which if Brun thought about it, was probably true.
+This fact she didn't correct either. She never would. Under more relaxing circumstances that would probably be the dream. But having both her crushes be brought back to the hospital together made it seem like she was doing a terrible job fighting off potential suitors or jilted ex's. Which as Brun thought about it, was probably true.
 
 "So, from the top: fractured wrist, fractured hip, a lot of infections, a little necrosis, and rape." The word fell out of her mouth like a lead weight. She needed to find a way to point Sinéad at whoever was responsible for this. She could take care of nursing Dee back to health, but she couldn't go to jail for righteous vengeance in the first degree. 
 
@@ -68,7 +68,7 @@ Trouble has no choice but to say it
 
 ***
 
-"That's about all I can think of at the moment." Trouble sighed and tried to relax. Sinéad sit next to her hospital bed with a stern look and the police detective she'd brought to take statements was looking frustrated with her. "I didn't realise how much of it I even could forget." 
+"That's about all I can think of at the moment." Trouble sighed and tried to relax. Sinéad sat next to her hospital bed with a stern look and a police detective she'd brought to take statements was looking frustrated with her. "I didn't realize how much of it I even could forget." 
 
 "It'll be a lot harder to pin anything beyond the assault he did yesterday with just this." Trouble didn't know how to recall anything more, when she had talked about it with Bug all her problems just felt like they could flow out of her and never return. Like they could vanish into the depths of Bug's kind eyes and pull the wounds right off her heart. But Sinéad wasn't as safe or comforting as Bug. Instead she would have to package it all up in an organised and digestible way the police could use.
 
@@ -84,7 +84,7 @@ She could feel herself tearing up at the thought of being trapped in her home ag
 
 "You were what?"
 
-"After I found out...he started trying to blackmail me with something." Felicity felt like throwing up, she was talking as matter-of-factly as she could but inside she felt like death trying to explain how things used to be. 
+"After I found out...he started trying to blackmail me with something." Felicity felt like throwing up, she was talking as matter-of-factly as she could but inside she felt like death trying to explain how things used to be. How easily things had gotten so bad.
 
 She had been in denial for so long, wanting to pretend that it was just stress or anxiety rather than malevolence. That being that much at risk and at the mercy of someone's cruel whims was still so close and so possible that it might happen again.
 
