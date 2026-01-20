@@ -115,7 +115,7 @@ Debug threw their weapon and from one moment to the next seemingly vanished. If 
 
 Brun burst around the corner. Tears in their eyes, a scream already escaping their lips. Brun was also wielding a weapon. They bore down on Frank winding up for a solid kick. Their weapon instantly forgotten and discarded.
 
-"SHE'S HERE!" Brun's attack looked like it caused Frank to shit himself with how much he body appeared to bend around Brun's foot.
+"SHE'S HERE!" Brun's attack looked like it caused Frank to shit himself with how much his body appeared to bend around Brun's foot.
 
 Sinéad also appeared from the other direction. Handcuffs already out as she landed on Frank and tried to hold Brun back, stop her from kicking him again. If Trouble wasn't strung up, she would have wanted to get one in too.
 Sinéad was trying to say something to Brun. Trying to get them to listen to reason.
