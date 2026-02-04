@@ -658,7 +658,15 @@ She has spotted someone's shiluette she recognises who is dyed a very familiar b
 Brun is conflicted about what to do
 She wants to do bloody vengeance 
 But also knows that will just open her to an assault charge
-Gets emotional grounding from Trouble who is unaware
-Brun grabs Beth's hand, slams it on the reception desk and demands they take a DNA swab under her fingernails to see if there's a match for Debug. 
-Trouble has a panic attack
-Brun grabs trouble in her spare arm and says to herself "I've got two arms, I can hold to women."
+Doesn't know enough about rape to know if there'd be any DNA evidence left on Beth when she's clearly already tried to remove the dye pack from her skin and hair
+Feels like just dobbing Beth into the cops is the coward's way out
+Gets emotional grounding from Trouble who is unaware of the situation
+Brun calls Sinéad and asks for them to call the APB on the hospital so they can catch her daughter's abusor
+Calls from Missile's phone
+Trouble catches on midway through the call
+Brun asks Missile to take Trouble outside while Brun stays on the phone with the police
+Trouble POV
+Gets really upset in Missile's arms
+Time blind
+Starts to disassociate 
+Brun comes and saves her

@@ -4,19 +4,19 @@ The entire reason she had that black book of contacts was cause this kept happen
 
 But without Brun coming to check on her ever half hour, she probably had that look, and one of the nurses had seen it and acted. And now here she was: learning to knit with a nurse at the end of her shift. 
 
-Bonnie, as she had introduced herself much to the agreement of her name tag, sat on the side of Debug's hospital bed holding the ball of yarn and making encouraging noises while Debug struggled.
+Bonnie, as she had introduced herself (much to the agreement of her name tag), sat on the side of Debug's hospital bed holding the ball of yarn and making encouraging noises while Debug struggled.
 
 "So the other nurses were saying you were dating the tall glass of chocolate milk that kept visiting you, but she's also dating another patient. Was she two timing you and you two got into a fight? Did you...lose?" Debug tried to put down the knitting and watched as the last few minutes of work was undone as one needle slipped from her hand and fell entirely out of the tangle of knots. Debug frowned at it before considering it for the best that this mess be undone and she start over.
 
-"We didn't fight. As far as I know, I woke up here and Trouble was saying I saved her from her abusive ex." Debug was not comfortable with the nurses gossiping about her this much, least of all of the told her about it. "Can you help me start again? I think I'm getting the hang of this." Debug was lying, she felt like knitting was akin to dancing while incredibly drunk and unable to remember the steps. She kept feeling like she had a job to do and didn't know what step she was up to any time she paused while knitting for too long. 
+"We didn't fight. As far as I know, I woke up here and Trouble was saying I saved her from her abusive ex." Debug was not comfortable with the nurses gossiping about her this much, least of all of they told her about it. "Can you help me start again? I think I'm getting the hang of this." Debug was lying, she felt like knitting was akin to dancing while incredibly drunk and unable to remember the steps. She kept feeling like she had a job to do and didn't know what step she was up to any time she paused for too long. 
 
 Whereas learning to pick locks had made her feel blind, knitting made her feel lost. 
 
 "I'm not dating either of Brun or Trouble." Debug finished, trying to set the record as dull as possible so the nurses would get bored and find a new subject to focus on.
 
-"So you're single?" Something about Bonnie's voice told her she had said something wrong. Why would they be happy if she was single? That was a much less interesting story to gossip about. Debug concluded that they must have a betting pool for what was actually going on, and her confirmation was what Bonnie had bet on. And since they were nice, she decided to validate their assumption.
+"So you're single?" Something about Bonnie's voice told her she had said was the wrong choice to dissuade attention. Why would they be happy if she was single? That was a much less interesting story to gossip about. Debug concluded that they must have a betting pool for what was actually going on, and her confirmation was what Bonnie had bet on. And since they were nice, she decided to validate their assumption.
 
-"Yeah, I've not dated anyone for a while." Debug knew this was a lie, but she didn't think going on dates with Trouble counted if Trouble didn't have romantic feelings for her...or did they? Debug did have a hazy memory of Brun and Trouble...or someone who looked or sounded like them pronouncing their love for her...but that sounded more like a dream she had while running dry on blood than something that would happen to her. 
+"Yeah, I've not dated anyone for a while." Debug knew this was a lie, but she didn't think going on dates with Trouble counted if Trouble didn't have romantic feelings for her...or did they? Debug did have a hazy memory of Brun and Trouble...or someone who looked or sounded like them pronouncing their love for her...but that sounded more like a dream she had while running dry on blood than something that would actually happen to her. 
 
 Bonnie scooted further up the bed, dropping the guard on the side that stopped Debug from rolling out so she could get as far up as possible. 
 
